@@ -1,9 +1,5 @@
+Madagaskar 2 / Madagascar: Escape 2 Africa 2008 
+=============
+[![Madagaskar 2 / Madagascar: Escape 2 Africa 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/madagaskar-2-madagascar-escape-2-africa-2008)
 
-        Madagaskar 2 / Madagascar: Escape 2 Africa 2008 
-        =============
-        
-        [![Madagaskar 2 / Madagascar: Escape 2 Africa 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/madagaskar-2-madagascar-escape-2-africa-2008)
-        
-        
  W długo oczekiwanym sequelu 'Madagaskaru' - kontynuacji znakomitego przeboju kina familijnego z 2005 roku - Lew Alex, Zebra Marty, Żyrafa Melman, Hipopotamica Gloria, Król Julian Maurice, Pingwiny i Szympansy wyrzucone na odległy brzeg Madagaskaru snują nowy plan. W obliczu niesprzyjających okoliczności losu, mieszkańcy Manhattanu uknuli plan tak szalony, że może okazać się całkiem skuteczny. Z wojskową precyzją Pingwiny dokonały naprawy starego rozbitego samolotu - tak przynajmniej może się wydawać na pierwszy rzut oka. Niedługo po starcie linii lotniczych Pingwin, z dość zaskakującą załogą na pokładzie, samolot zdołał się utrzymać w powietrzu na tyle długo, żeby przenieść naszych bohaterów do najdzikszego miejsca na ziemi - bezkresnych równin Afryki. W tym właśnie nieplanowanym 'docelowym porcie lotniczym' członkowie naszej wyrosłej w cieplarnianych warunkach nowojorskiego zoo załogi natrafiają po raz pierwszy na swoich dzikich współbraci - ich własne gatunki żyjące w naturalnych warunkach. Afryka wydaje się być wymarzonym miejscem na ziemi… ale czy lepszym niż ich własny dom w Central Parku?  ... przynajmniej może się wydawać na pierwszy rzut oka. Niedługo po starcie linii lotniczych Pingwin, z dość zaskakującą załogą na pokładzie, samolot zdołał się utrzymać w powietrzu na tyle długo, żeby przenieść naszych bohaterów do najdzikszego miejsca na ziemi - bezkresnych równin Afryki. W tym właśnie nieplanowanym 'docelowym porcie lotniczym' członkowie naszej wyrosłej w cieplarnianych warunkach nowojorskiego zoo załogi natrafiają po raz pierwszy na swoich dzikich współbraci - ich własne gatunki żyjące w naturalnych warunkach. Afryka wydaje się być wymarzonym miejscem na ziemi… ale czy lepszym niż ich własny dom w Central Parku?
-    

@@ -1,9 +1,5 @@
+Sophie Scholl - ostatnie dni / Sophie Scholl - Die letzten Tage 2005 
+=============
+[![Sophie Scholl - ostatnie dni / Sophie Scholl - Die letzten Tage 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sophie-scholl-ostatnie-dni-sophie-scholl-die-letzten-tage-2005)
 
-        Sophie Scholl - ostatnie dni / Sophie Scholl - Die letzten Tage 2005 
-        =============
-        
-        [![Sophie Scholl - ostatnie dni / Sophie Scholl - Die letzten Tage 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sophie-scholl-ostatnie-dni-sophie-scholl-die-letzten-tage-2005)
-        
-        
  Monachium, rok 1943. Hitler prowadzi w Europie wyniszczającą wojnę. Grupa młodych ludzi, w większości studentów, uznaje bierny opór za jedyny sposób na osłabienie nazistów i ich nieludzkiej machiny wojennej. Powstaje Biała Róża, ruch oporu stawiający sobie za cel obalenie Trzeciej Rzeszy. Sophie Scholl jest jedyną kobietą w jego szeregach. Z początku nieświadoma i naiwna, nie podejrzewa jeszcze, że zapisze się na kartach historii. 18 listopada 1943 roku Sophie i jej brat Hans zostają zatrzymani podczas rozdawania ulotek na uniwersytecie, a następnie aresztowani. Na przestrzeni kolejnych dni przesłuchania Sophie przez oficera Gestapo, Mohra, przeradzają się stopniowo w psychologiczny pojedynek... Reżyser Marc Rothemund stworzył wstrząsający portret jednej z najbardziej podziwianych bohaterek walki z nazistowskim reżimem w Niemczech. Julia Jentsch ('Edukatorzy', 'Schneeland') z niezwykłą intensywnością i inteligencją widoczną w każdym geście we wspaniały sposób ukazuje ostatnie dni kobiety, której los jest już przesądzony, jako triumf pasji, odwagi i człowieczeństwa.  ... zostają zatrzymani podczas rozdawania ulotek na uniwersytecie, a następnie aresztowani. Na przestrzeni kolejnych dni przesłuchania Sophie przez oficera Gestapo, Mohra, przeradzają się stopniowo w psychologiczny pojedynek... Reżyser Marc Rothemund stworzył wstrząsający portret jednej z najbardziej podziwianych bohaterek walki z nazistowskim reżimem w Niemczech. Julia Jentsch ('Edukatorzy', 'Schneeland') z niezwykłą intensywnością i inteligencją widoczną w każdym geście we wspaniały sposób ukazuje ostatnie dni kobiety, której los jest już przesądzony, jako triumf pasji, odwagi i człowieczeństwa.
-    

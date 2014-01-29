@@ -1,9 +1,5 @@
+Fuck for Forest 2012 
+=============
+[![Fuck for Forest 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fuck-for-forest-2012)
 
-        Fuck for Forest 2012 
-        =============
-        
-        [![Fuck for Forest 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fuck-for-forest-2012)
-        
-        
  Młody Norweg Danny zawsze miał trudności z otoczeniem. Po raz kolejny próbuje odnaleźć miejsce dla siebie. W Berlinie spotyka grupę Fuck for Forest, która gromadzi pieniądze na  ratowanie przyrody, sprzedając amatorskie porno w Internecie. Wszystkie filmy są własnej produkcji, do której czasami zapraszani są również przechodnie na ulicy. Członkowie grupy głęboko wierzą w to, że wyzwolą świat z seksualnych zahamowań.  Danny czuje się świetnie w nowym otoczeniu,  które łączy hedonizm z aktywizmem. Fuck for Forest zbiera 420 000 euro i jedzie do Amazonii kupić ziemię, aby oddać ją za darmo Indianom.  W Amazonii napotykają jednak nieprzewidziane okoliczności. „Fuck for Forest” Michała Marczaka stał się sensacją tegorocznego 28. Warszawskiego Festiwalu Filmowego, zdobywając główną nagrodę w konkursie filmów dokumentalnych. Film został zaproszony na renomowane festiwale filmowe, między innymi w Rotterdamie, Nowym Jorku (Tribeca) oraz Toronto (Hot Docs). Film wejdzie na ekrany kin w Niemczech, Norwegii i Wielkiej Brytanii w 2013 roku.   ... łączy hedonizm z aktywizmem. Fuck for Forest zbiera 420 000 euro i jedzie do Amazonii kupić ziemię, aby oddać ją za darmo Indianom.  W Amazonii napotykają jednak nieprzewidziane okoliczności. „Fuck for Forest” Michała Marczaka stał się sensacją tegorocznego 28. Warszawskiego Festiwalu Filmowego, zdobywając główną nagrodę w konkursie filmów dokumentalnych. Film został zaproszony na renomowane festiwale filmowe, między innymi w Rotterdamie, Nowym Jorku (Tribeca) oraz Toronto (Hot Docs). Film wejdzie na ekrany kin w Niemczech, Norwegii i Wielkiej Brytanii w 2013 roku.
-    

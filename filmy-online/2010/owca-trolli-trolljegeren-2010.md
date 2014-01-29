@@ -1,9 +1,5 @@
+Łowca trolli / Trolljegeren 2010 
+=============
+[![Łowca trolli / Trolljegeren 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/owca-trolli-trolljegeren-2010)
 
-        Łowca trolli / Trolljegeren 2010 
-        =============
-        
-        [![Łowca trolli / Trolljegeren 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/owca-trolli-trolljegeren-2010)
-        
-        
  Czy zastanawiacie się, dlaczego w Norwegii jest tak mało chrześcijan? Sytuacja jest znacznie poważniejsza, niż się wydaje. To wszystko wina trolli, które przez wieki siały spustoszenie. Przekazy mówią o ich ogromnej sile i równie ogromnej głupocie. Brutalne i nieobliczalne nie wybrzydzają - jedzą wszystko, ale ich przysmakiem pozostaje krew chrześcijan. Rządy Norwegii od wieków dementują informacje o tych legendarnych stworach i specjalnej, tajnej jednostce, która zajmować się ma ich eliminacją. Sytuacja jest na tyle poważna, że również Polska jest zamieszana w spisek. Do tej pory nikt nie interesował się dziwacznym myśliwym, który rzekomo specjalizuje się w polowaniu na niedźwiedzie. Sytuacja zmienia się diametralnie, kiedy grupa upierdliwych studentów zaczyna wokół niego węszyć. Szybko przekonują się, że niedźwiedzie to tylko przykrywka, a rzeczywistość to nie bajka i może zaboleć. Trolle, które znali z 'Władcy Pierścieni' czy 'Harry'ego Pottera' to miłe stworki w porównaniu do paskudztwa, jakie spotkają w norweskich lasach.  ... się ma ich eliminacją. Sytuacja jest na tyle poważna, że również Polska jest zamieszana w spisek. Do tej pory nikt nie interesował się dziwacznym myśliwym, który rzekomo specjalizuje się w polowaniu na niedźwiedzie. Sytuacja zmienia się diametralnie, kiedy grupa upierdliwych studentów zaczyna wokół niego węszyć. Szybko przekonują się, że niedźwiedzie to tylko przykrywka, a rzeczywistość to nie bajka i może zaboleć. Trolle, które znali z 'Władcy Pierścieni' czy 'Harry'ego Pottera' to miłe stworki w porównaniu do paskudztwa, jakie spotkają w norweskich lasach.
-    

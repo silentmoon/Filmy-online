@@ -1,9 +1,5 @@
+Prezydent - Miłość w Białym Domu / The American President 1995 
+=============
+[![Prezydent - Miłość w Białym Domu / The American President 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prezydent-milosc-w-bialym-domu-the-american-president-1995)
 
-        Prezydent - Miłość w Białym Domu / The American President 1995 
-        =============
-        
-        [![Prezydent - Miłość w Białym Domu / The American President 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prezydent-milosc-w-bialym-domu-the-american-president-1995)
-        
-        
  Prezydent Stanów Zjednoczonych, Andrew Shepherd (Michael Douglas), jest wdowcem w średnim wieku. Przystojny, mądry, wrażliwy, otwarty na ludzkie sprawy i przede wszystkim wielki mąż stanu. Ma dorastającą córkę Lucy (Shawna Waldron), której poświęca dużo uwagi. Prezydent ubiega się o drugą kadencję w Białym Domu. I właśnie w roku wyborów Shepherd poznaje kobietę, która zawładnęła jego sercem i może zrujnować jego polityczną karierę. Rodzi się między nimi uczucie, ożywa tęsknota za prawdziwą miłością. Zażyła znajomość prezydenta z młodą kobietą staje się przyczyną wielu spekulacji. Sydney Ellen Wade (Annette Bening) jest wykształcona, sympatyczna i bardzo ładna. Pierwsza wizyta w Białym Domu specjalistki od strategii politycznych ma charakter służbowy - występuje w imieniu organizacji ekologicznej, walczącej o ochronę środowiska. Potem jej wizyty są już mniej oficjalne. Zjawia się coraz częściej, dając tym samym powód do plotek i domysłów. Niewiele czasu trzeba, aby wścibscy dziennikarze zwietrzyli sensację.  ... tęsknota za prawdziwą miłością. Zażyła znajomość prezydenta z młodą kobietą staje się przyczyną wielu spekulacji. Sydney Ellen Wade (Annette Bening) jest wykształcona, sympatyczna i bardzo ładna. Pierwsza wizyta w Białym Domu specjalistki od strategii politycznych ma charakter służbowy - występuje w imieniu organizacji ekologicznej, walczącej o ochronę środowiska. Potem jej wizyty są już mniej oficjalne. Zjawia się coraz częściej, dając tym samym powód do plotek i domysłów. Niewiele czasu trzeba, aby wścibscy dziennikarze zwietrzyli sensację.
-    

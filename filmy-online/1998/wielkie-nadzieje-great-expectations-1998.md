@@ -1,9 +1,5 @@
+Wielkie nadzieje / Great Expectations 1998 
+=============
+[![Wielkie nadzieje / Great Expectations 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wielkie-nadzieje-great-expectations-1998)
 
-        Wielkie nadzieje / Great Expectations 1998 
-        =============
-        
-        [![Wielkie nadzieje / Great Expectations 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wielkie-nadzieje-great-expectations-1998)
-        
-        
  Od chwili, gdy oczy młodego Finna (Jeremy James Kissner) spoczęły na Estelli (Raquel Beaudene), śliczna dziewczyna stała się jego inspiracją... i obsesją. Mimo przestróg 'uważaj ona Ci tylko złamie serce', Finn postanowił zdobyć jej miłość. Bez skutku. Siedem lat później, Finn rzuca rysowanie i zarabia połowem ryb. Jego życie zmienia się całkowicie, gdy prawnik z Nowego Jorku składa mu zaskakującą propozycję - Finn (Ethan Hawke) otrzyma fundusze potrzebne do zorganizowania samodzielnej wystawy, jeśli wyjedzie do Nowego Jorku i powróci do rysowania. Wielkie nadzieje chłopaka odżywają w Nowym Jorku, przebywa tam bowiem piękna i niedostępna Estella (Gwyneth Paltrow).   ... samodzielnej wystawy, jeśli wyjedzie do Nowego Jorku i powróci do rysowania. Wielkie nadzieje chłopaka odżywają w Nowym Jorku, przebywa tam bowiem piękna i niedostępna Estella (Gwyneth Paltrow).
-    

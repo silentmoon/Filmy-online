@@ -1,9 +1,5 @@
+Piła mechaniczna 3D / Texas Chainsaw 3D 2013 
+=============
+[![Piła mechaniczna 3D / Texas Chainsaw 3D 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pila-mechaniczna-3d-texas-chainsaw-3d-2013)
 
-        Piła mechaniczna 3D / Texas Chainsaw 3D 2013 
-        =============
-        
-        [![Piła mechaniczna 3D / Texas Chainsaw 3D 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pila-mechaniczna-3d-texas-chainsaw-3d-2013)
-        
-        
  Po dwudziestu latach łańcuch piły ponownie pokryje się krwią! Kontynuacja jednego z najbardziej przerażających horrorów wszech czasów! Dwadzieścia lat temu w miasteczku Newt w Teksasie doszło do potwornej masakry. Patologiczna rodzina Sawyerów zwabiała turystów, a następnie mordowała ich z niespotykaną brutalnością. Najokrutniejszym z nich był niejaki Leatherface (Dan Yeager), wyposażony w piłę mechaniczną i noszący na głowie maskę zrobioną z ludzkiej skóry. Sawyerowie zostali zlinczowani i zabici przez okolicznych mieszkańców. Przy życiu ostało się jednak jedno dziecko z pokręconej rodziny – dziewczynka o imieniu Heather (Alexandra Daddario), która została potajemnie przygarnięta przez Gavina (David Born) i Arlene (Sue Rock), okolicznych mieszkańców. W wieku 20 lat dziewczyna dowiaduje się, że została adoptowana, a prawdziwa rodzina zostawiła jej spadek. Heather, wspólnie ze swoim chłopakiem i trójką przyjaciół wyrusza do Newt. Kiedy docierają na miejsce, do ogromnego, starego domu po babci, współtowarzysze dziewczyny udają się do okolicznego sklepu. Ona sama postanawia zwiedzić odziedziczone włości. Jeszcze nie wie, że otwierając jedne z drzwi wypuszcza przerażającego Leatherface'a na wolność. Psychopata bardzo długo czekał na tak idealną okazję do zemsty…  ... zostali zlinczowani i zabici przez okolicznych mieszkańców. Przy życiu ostało się jednak jedno dziecko z pokręconej rodziny – dziewczynka o imieniu Heather (Alexandra Daddario), która została potajemnie przygarnięta przez Gavina (David Born) i Arlene (Sue Rock), okolicznych mieszkańców. W wieku 20 lat dziewczyna dowiaduje się, że została adoptowana, a prawdziwa rodzina zostawiła jej spadek. Heather, wspólnie ze swoim chłopakiem i trójką przyjaciół wyrusza do Newt. Kiedy docierają na miejsce, do ogromnego, starego domu po babci, współtowarzysze dziewczyny udają się do okolicznego sklepu. Ona sama postanawia zwiedzić odziedziczone włości. Jeszcze nie wie, że otwierając jedne z drzwi wypuszcza przerażającego Leatherface'a na wolność. Psychopata bardzo długo czekał na tak idealną okazję do zemsty…
-    

@@ -1,9 +1,5 @@
+Stan gry / State of Play 2009 
+=============
+[![Stan gry / State of Play 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stan-gry-state-of-play-2009)
 
-        Stan gry / State of Play 2009 
-        =============
-        
-        [![Stan gry / State of Play 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stan-gry-state-of-play-2009)
-        
-        
  Russell Crowe wciela się w rolę Cala McAffreya, doświadczonego reportera z Waszyngtonu, którego nieustępliwość prowadzi do rozwiązania tajemnicy morderstwa i spisku w sferach politycznych. Ambitny kongresmen Stephen Collins (Ben Affleck) jest przyszłością swojej partii politycznej: przewodniczącym komitetu nadzorującego wydatki na obronę. W tej wschodzącej gwieździe pokładane są wielkie nadzieje – ma zostać czołową osobistością w kraju - do dnia, kiedy jego piękna asystentka ginie tragicznie, a skrywane tajemnice wychodzą na światło dzienne. Pracując dla swojego wydawcy, twardej jak stal Cameron Lynne (Helen Mirren), która zleciła mu zbadanie sprawy, McAffrey ma wątpliwe szczęście bycia jednocześnie starym przyjacielem Collinsa. Kiedy wspólnie z nową w zawodzie partnerką Dellą Frye (Rachel McAdams) usiłują poznać tożsamość zabójcy, McAffrey natyka się na procedurę tuszowania faktów, które mogłyby wstrząsnąć strukturami władzy. W mieście politycznych doradców i bogatych polityków, odkrywa jedyną prawdę: Kiedy stawką są miliardy, nie ma osoby, której uczciwość byłaby poza podejrzeniem.  ... ginie tragicznie, a skrywane tajemnice wychodzą na światło dzienne. Pracując dla swojego wydawcy, twardej jak stal Cameron Lynne (Helen Mirren), która zleciła mu zbadanie sprawy, McAffrey ma wątpliwe szczęście bycia jednocześnie starym przyjacielem Collinsa. Kiedy wspólnie z nową w zawodzie partnerką Dellą Frye (Rachel McAdams) usiłują poznać tożsamość zabójcy, McAffrey natyka się na procedurę tuszowania faktów, które mogłyby wstrząsnąć strukturami władzy. W mieście politycznych doradców i bogatych polityków, odkrywa jedyną prawdę: Kiedy stawką są miliardy, nie ma osoby, której uczciwość byłaby poza podejrzeniem.
-    

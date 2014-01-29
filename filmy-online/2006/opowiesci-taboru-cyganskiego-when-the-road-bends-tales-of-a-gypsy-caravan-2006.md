@@ -1,9 +1,5 @@
+Opowieści taboru cygańskiego / When the Road Bends: Tales of a Gypsy Caravan 2006 
+=============
+[![Opowieści taboru cygańskiego / When the Road Bends: Tales of a Gypsy Caravan 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/opowiesci-taboru-cyganskiego-when-the-road-bends-tales-of-a-gypsy-caravan-2006)
 
-        Opowieści taboru cygańskiego / When the Road Bends: Tales of a Gypsy Caravan 2006 
-        =============
-        
-        [![Opowieści taboru cygańskiego / When the Road Bends: Tales of a Gypsy Caravan 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/opowiesci-taboru-cyganskiego-when-the-road-bends-tales-of-a-gypsy-caravan-2006)
-        
-        
  Indie to początek 'cygańskiej drogi', ojczyzna Romów. Od koncertowej pieśni o pięknej Cygance przechodzimy do Harisha, tancerza z Rajastanu, który godzinami nakłada makijaż, spódnice i biżuterię na każdy pokaz. Jest przystojnym mężczyzną około trzydziestki i nieoficjalnym liderem grupy, ponieważ mówi najlepiej po angielsku i w pobliżu każdej sali koncertowej w Ameryce i w Europie umie znaleźć indyjską restaurację. Kiedy spódnice z cekinami wirują wokół niego nad podłogą, dla większości widzów jest on tylko uderzająco piękną kobietą i zdecydowanie mu się ta kobieca rola podoba. Ale w maleńkiej kuchni jego rodzinnego domu w Jaiselmer widzimy jak Harish odmawia poranną modlitwę poojah, a obok stoi zdjęcie jego rodziców. Następnie wyjaśnia bez krztyny użalania się nad sobą, że zaczął tańczyć tylko dlatego, że największe dochody w jego mieście przynosi turystyka, a on musiał utrzymać rodzinę po przedwczesnej śmierci swoich rodziców. [opis dystrybutora]   ... większości widzów jest on tylko uderzająco piękną kobietą i zdecydowanie mu się ta kobieca rola podoba. Ale w maleńkiej kuchni jego rodzinnego domu w Jaiselmer widzimy jak Harish odmawia poranną modlitwę poojah, a obok stoi zdjęcie jego rodziców. Następnie wyjaśnia bez krztyny użalania się nad sobą, że zaczął tańczyć tylko dlatego, że największe dochody w jego mieście przynosi turystyka, a on musiał utrzymać rodzinę po przedwczesnej śmierci swoich rodziców. [opis dystrybutora]
-    

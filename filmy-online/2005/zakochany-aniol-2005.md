@@ -1,9 +1,5 @@
+Zakochany Anioł 2005 
+=============
+[![Zakochany Anioł 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakochany-aniol-2005)
 
-        Zakochany Anioł 2005 
-        =============
-        
-        [![Zakochany Anioł 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakochany-aniol-2005)
-        
-        
  Anioł Giordano (Krzysztof Globisz) wiedzie pogodne życie we współczesnej Polsce. Sumiennie, acz bez nadmiernego wysiłku, wypełnia swe anielskie obowiązki. Codziennie spełnia przynajmniej jeden dobry uczynek. Dzięki dyskretnej pomocy Nieba i kilku magicznym gadżetom radzi sobie całkiem nieźle. Jednak tylko do czasu. Pewnego dnia niebiańska centrala odcina pomoc, tak by Anioł mógł zaznać smaku prawdziwych ludzkich uczuć. Giordano nieoczekiwanie traci swą moc. Z przerażeniem odkrywa też swą męską tożsamość. Dla Anioła takie odkrycie może skończyć się tylko załamaniem nerwowym... Od czego jednak są przyjaciele? Z pomocą biedakowi przychodzą: Szajbus (Jerzy Trela) i Arsen Lupin (Janusz Gajos). Szajbus odkrywa przed Giordano uroki 'zakazanych' przyjemności oraz tłumaczy pożytki z bliskiego kontaktu z kobietą. To za jego sprawą Giordano zakochuje się w pięknej pani psycholog, Romie (Anna Radwan). Jednak zdobycie kobiety na Ziemi nie jest wcale takie łatwe, zwłaszcza dla byłego Anioła... [opis dystrybutora]  ... odkrywa też swą męską tożsamość. Dla Anioła takie odkrycie może skończyć się tylko załamaniem nerwowym... Od czego jednak są przyjaciele? Z pomocą biedakowi przychodzą: Szajbus (Jerzy Trela) i Arsen Lupin (Janusz Gajos). Szajbus odkrywa przed Giordano uroki 'zakazanych' przyjemności oraz tłumaczy pożytki z bliskiego kontaktu z kobietą. To za jego sprawą Giordano zakochuje się w pięknej pani psycholog, Romie (Anna Radwan). Jednak zdobycie kobiety na Ziemi nie jest wcale takie łatwe, zwłaszcza dla byłego Anioła... [opis dystrybutora]
-    

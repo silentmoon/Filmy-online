@@ -1,9 +1,5 @@
+Gorzka czekolada / Merci pour le chocolat 2000 
+=============
+[![Gorzka czekolada / Merci pour le chocolat 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gorzka-czekolada-merci-pour-le-chocolat-2000)
 
-        Gorzka czekolada / Merci pour le chocolat 2000 
-        =============
-        
-        [![Gorzka czekolada / Merci pour le chocolat 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gorzka-czekolada-merci-pour-le-chocolat-2000)
-        
-        
  Andre Polonski, pianista wirtuoz, i Marie-Claire Muller, przedsiębiorcza dyrektorka fabryki czekolady, biorą ślub w Lozannie, po tym jak kilka lat wcześniej przeżyli krótki romans. Pierwszą żoną Andre była Lisbeth, z którą miał syna Wilhelma. Po sześciu latach małżeństwa Lisbeth zginęła w wypadku samochodowym w Szwajcarii. Młoda pianistka Jeanne Pollet przygotowuje się do konkursu muzycznego, który ma odbyć się w Budapeszcie. Przypadkowo odkrywa, że nie jest córką ludzi, których przez całe życie uważała za swoich rodziców - na skutek szpitalnej pomyłki tuż po urodzeniu zajęła miejsce Wilhelma, który zamiast niej trafił do domu Polonskich. Zaintrygowana faktem, że może być córką sławnego Andre Polonskiego, postanawia odnaleźć prawdziwego ojca i pewnego dnia puka do drzwi jego domu... Wkrótce jej uwagę zaczyna zwracać dziwne zachowanie Marie-Claire. Nabiera podejrzeń, że kobieta systematycznie podtruwa swego męża i pasierba podając im środki odurzające w czekoladzie do picia. Czy tak jest w istocie?   ... których przez całe życie uważała za swoich rodziców - na skutek szpitalnej pomyłki tuż po urodzeniu zajęła miejsce Wilhelma, który zamiast niej trafił do domu Polonskich. Zaintrygowana faktem, że może być córką sławnego Andre Polonskiego, postanawia odnaleźć prawdziwego ojca i pewnego dnia puka do drzwi jego domu... Wkrótce jej uwagę zaczyna zwracać dziwne zachowanie Marie-Claire. Nabiera podejrzeń, że kobieta systematycznie podtruwa swego męża i pasierba podając im środki odurzające w czekoladzie do picia. Czy tak jest w istocie?
-    

@@ -1,9 +1,5 @@
+Scooby-Doo 2002 
+=============
+[![Scooby-Doo 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-2002)
 
-        Scooby-Doo 2002 
-        =============
-        
-        [![Scooby-Doo 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-2002)
-        
-        
  Dwa lata po rozwiązaniu Mystery Incorporated, Scooby-Doo oraz jego przyjaciele: Fred (Freddie Prinze Jr.), Daphne (Sarah Michelle Gellar), Shaggy (Matthew Lillard) i Velma (Linda Cardellini) zostają wezwani na Wyspę Strachów, gdzie mają zbadać serię paranormalnych wydarzeń. Właściciel wyspy, Emile Mondavarious (Rowan Atkinson), obawia się, że jego popularny kurort rzeczywiście może być nawiedzony. Robi wszystko, co w jego mocy, by pojednać skłóconych członków grupy i pomóc im w wyjaśnieniu tajemnicy, nim nadnaturalne zjawiska wystraszą tłumy jego gości. Scooby i jego wspólnicy będą musieli przezwyciężyć osobiste animozje i zapomnieć o wszystkim, co wiedzą (lub wydaje im się, że wiedzą) na temat fałszywych duchów i zjaw, by rozwiązać sprawę, uratować siebie i - być może - cały świat.   ... w wyjaśnieniu tajemnicy, nim nadnaturalne zjawiska wystraszą tłumy jego gości. Scooby i jego wspólnicy będą musieli przezwyciężyć osobiste animozje i zapomnieć o wszystkim, co wiedzą (lub wydaje im się, że wiedzą) na temat fałszywych duchów i zjaw, by rozwiązać sprawę, uratować siebie i - być może - cały świat.
-    

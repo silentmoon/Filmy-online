@@ -1,9 +1,5 @@
+Siódma pieczęć / Det Sjunde inseglet 1957 
+=============
+[![Siódma pieczęć / Det Sjunde inseglet 1957 ](http://vidos.pl/images/player.gif)](http://vidos.pl/siodma-pieczec-det-sjunde-inseglet-1957)
 
-        Siódma pieczęć / Det Sjunde inseglet 1957 
-        =============
-        
-        [![Siódma pieczęć / Det Sjunde inseglet 1957 ](http://vidos.pl/images/player.gif)](http://vidos.pl/siodma-pieczec-det-sjunde-inseglet-1957)
-        
-        
  Rycerz Antonius Block (Max von Sydow) powraca wraz z giermkiem Jönsem (Gunnar Björnstrand) z wyprawy krzyżowej. Gdy po rycerza niespodziewanie przychodzi Śmierć (Bengt Ekerot), ten wyzywa ją na szachowy pojedynek o własne życie i toczy trudną partię w trakcie całej podróży do domu. Wędrówka przez dotknięte zarazą terytorium, którego mieszkańcy miotają się pomiędzy sacrum surowych praktyk pokutnych a profanum nieskrępowanej zabawy i nieprawości, podsyca w zobojętniałym Blocku refleksję nad losem człowieka. Świadom zbliżającego się końca, znużony swoją egzystencją rycerz stara się nie tyle wygrać, co przedłużyć samą grę i zyskać na czasie, by znaleźć odpowiedzi na dręczące go pytania o istnienie Boga, sens ludzkiego życia i istotę przemijania.   ... refleksję nad losem człowieka. Świadom zbliżającego się końca, znużony swoją egzystencją rycerz stara się nie tyle wygrać, co przedłużyć samą grę i zyskać na czasie, by znaleźć odpowiedzi na dręczące go pytania o istnienie Boga, sens ludzkiego życia i istotę przemijania.
-    

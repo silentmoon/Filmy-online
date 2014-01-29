@@ -1,9 +1,5 @@
+Kung Fu Panda 2008 
+=============
+[![Kung Fu Panda 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kung-fu-panda-2008)
 
-        Kung Fu Panda 2008 
-        =============
-        
-        [![Kung Fu Panda 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kung-fu-panda-2008)
-        
-        
  Optymistycznie nastawiony do życia, troszkę niezgrabny Po jest największym fanem Kung Fu w okolicy … co jednak nie zawsze przydaje się w jego codziennej pracy – sprzedawcy w prowadzonym przez rodzinę sklepie z makaronem. Wybrany nieoczekiwanie do wypełnienia starożytnej przepowiedni, Po nie może uwierzyć, że jego marzenia mogą się lada moment spełnić. Wstępuje do świata Kung Fu i zaczyna ćwiczyć u boku swoich idoli, legendarnych pięciu zawodników – Tygrysicy, Żurawia, Modliszka, Żmii i Małpy – pod przewodnictwem lidera grupy, nauczyciela i trenera , Mistrza Shifu. Zanim jeszcze wszyscy zorientują się, o co tak naprawdę chodzi w tej grze, mściwy i zdradziecki biały lampart Tai Lung zmierza w ich kierunku, aby rozbić grupę w proch i pył. Tym razem to właśnie Po będzie musiał stawić czoła niebezpiecznemu przeciwnikowi i uratować wszystkich przed nadciągającym niebezpieczeństwem. Czy uda mu się ziścić marzenie o mistrzowskim opanowaniu sztuki walki? Po całym swoim sercem i 'masą' oddany jest zadaniu, jakie ma do wykonania. Z czasem okaże się, że ten nieoczekiwany bohater ze swoich słabości potrafi uczynić atut i największą siłę swojego działania.  ... Modliszka, Żmii i Małpy – pod przewodnictwem lidera grupy, nauczyciela i trenera , Mistrza Shifu. Zanim jeszcze wszyscy zorientują się, o co tak naprawdę chodzi w tej grze, mściwy i zdradziecki biały lampart Tai Lung zmierza w ich kierunku, aby rozbić grupę w proch i pył. Tym razem to właśnie Po będzie musiał stawić czoła niebezpiecznemu przeciwnikowi i uratować wszystkich przed nadciągającym niebezpieczeństwem. Czy uda mu się ziścić marzenie o mistrzowskim opanowaniu sztuki walki? Po całym swoim sercem i 'masą' oddany jest zadaniu, jakie ma do wykonania. Z czasem okaże się, że ten nieoczekiwany bohater ze swoich słabości potrafi uczynić atut i największą siłę swojego działania.
-    

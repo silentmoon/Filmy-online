@@ -1,9 +1,5 @@
+Jak urodzić i nie zwariować / What to Expect When You're Expecting 2012 
+=============
+[![Jak urodzić i nie zwariować / What to Expect When You're Expecting 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jak-urodzic-i-nie-zwariowac-what-to-expect-when-you-re-expecting-2012)
 
-        Jak urodzić i nie zwariować / What to Expect When You're Expecting 2012 
-        =============
-        
-        [![Jak urodzić i nie zwariować / What to Expect When You're Expecting 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jak-urodzic-i-nie-zwariowac-what-to-expect-when-you-re-expecting-2012)
-        
-        
  Komedia w gwiazdorskiej obsadzie na podstawie bestsellerowego poradnika dla przyszłych rodziców 'W oczekiwaniu na dziecko'. Poznaj pełne nieoczekiwanych zwrotów akcji, splatające się ze sobą historie pięciu par, które stają przed wyzwaniami zbliżającego się rodzicielstwa. Guru fitnessu Jules i gwiazdor tanecznego show Evan odkryją, że celebryckie życie na wysokich obrotach to nic w porównaniu z przygotowaniami do porodu. Wendy właśnie znajduje się w epicentrum burzy hormonów, a gromy, z imponującą precyzją, trafiają w jej męża Gary'ego. Alex, uczęszcza na spotkania 'bracholi' – świeżo upieczonych ojców, którzy mówią, 'jak to naprawdę jest'. Rosie i Marco mają z kolei problem z zupełnie innej beczki: co zrobić, kiedy dziecko pojawia się jeszcze przed pierwszą randką rodziców? Wszyscy oni będą musieli odpowiedzieć sobie na pytanie: jak urodzić i nie zwariować…  ... a gromy, z imponującą precyzją, trafiają w jej męża Gary'ego. Alex, uczęszcza na spotkania 'bracholi' – świeżo upieczonych ojców, którzy mówią, 'jak to naprawdę jest'. Rosie i Marco mają z kolei problem z zupełnie innej beczki: co zrobić, kiedy dziecko pojawia się jeszcze przed pierwszą randką rodziców? Wszyscy oni będą musieli odpowiedzieć sobie na pytanie: jak urodzić i nie zwariować…
-    

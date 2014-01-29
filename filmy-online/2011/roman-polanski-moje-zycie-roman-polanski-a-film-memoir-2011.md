@@ -1,9 +1,5 @@
+Roman Polański: moje życie / Roman Polanski: A Film Memoir 2011 
+=============
+[![Roman Polański: moje życie / Roman Polanski: A Film Memoir 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/roman-polanski-moje-zycie-roman-polanski-a-film-memoir-2011)
 
-        Roman Polański: moje życie / Roman Polanski: A Film Memoir 2011 
-        =============
-        
-        [![Roman Polański: moje życie / Roman Polanski: A Film Memoir 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/roman-polanski-moje-zycie-roman-polanski-a-film-memoir-2011)
-        
-        
  „Roman Polański: moje życie” to wyjątkowy film, spowiedź artysty, człowieka wrażliwego i pełnego skrajnych często emocji, które nagromadziły się podczas barwnego i złożonego życia. Polański, przebywając w areszcie domowym w Szwajcarii, zaprosił do domu w Gstaad swojego przyjaciela. Ich wielogodzinne rozmowy to próba odbudowania pewnego świata, przywołania wspomnień, zdarzeń, bolesnych, trudnych przeżyć. W ten sposób powstał niezwykły filmowy portret, który nikogo nie pozostawi obojętnym. Reżyser wraca w nim do miejsc, ludzi i uczuć, których już nie ma, a które złożyły się na to kim jest i gdzie jest dziś: przywołuje czas wojny, kreśli obraz rodziców, opowiada o tragicznych wydarzeniach w USA, pracy za granicą i kobietach swojego życia. Mówi w nim o rzeczach, o których mało kto odważyłby się powiedzieć przed kamerą i robi to w sposób niezwykle poruszający i wzruszający.  ... pozostawi obojętnym. Reżyser wraca w nim do miejsc, ludzi i uczuć, których już nie ma, a które złożyły się na to kim jest i gdzie jest dziś: przywołuje czas wojny, kreśli obraz rodziców, opowiada o tragicznych wydarzeniach w USA, pracy za granicą i kobietach swojego życia. Mówi w nim o rzeczach, o których mało kto odważyłby się powiedzieć przed kamerą i robi to w sposób niezwykle poruszający i wzruszający.
-    

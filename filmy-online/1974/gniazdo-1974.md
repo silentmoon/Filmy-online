@@ -1,9 +1,5 @@
+Gniazdo 1974 
+=============
+[![Gniazdo 1974 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gniazdo-1974)
 
-        Gniazdo 1974 
-        =============
-        
-        [![Gniazdo 1974 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gniazdo-1974)
-        
-        
  W przeddzień bitwy pod Cedynią Mieszko, władca Polan, w gorączce wspomina swoje życie. Wbrew woli ojca Ziemomysła przejął po nim władzę, widząc konieczność twardego rządzenia dziedzictwem. Jego brat Czcibor podporządkował mu się, chcąc uniknąć zwady w rodzinie. Mieszko zaprowadził posłuch w drużynie i wśród książąt plemiennych; dla wzmocnienia państwa przyjął od Czechów chrzest i zawarł z nimi sojusz, poślubiając Dobrawę. Uniezależnił się tak, że na swym dworze gościł cesarza Ottona jak równego sobie. Lecz w zjednoczeniu Słowian przeszkadzają mu Weleci, dowodzeni przez Wichmana, i margrabia Hodo, wódz Marchii Brandenburskiej. Pod Cedynią wojska Niemców i Weletów ponoszą klęskę. Mieszko uwalnia pochwyconych germańskich wodzów, by świadczyli przed zachodnim światem o sile nowego państwa Słowian.  ... Ottona jak równego sobie. Lecz w zjednoczeniu Słowian przeszkadzają mu Weleci, dowodzeni przez Wichmana, i margrabia Hodo, wódz Marchii Brandenburskiej. Pod Cedynią wojska Niemców i Weletów ponoszą klęskę. Mieszko uwalnia pochwyconych germańskich wodzów, by świadczyli przed zachodnim światem o sile nowego państwa Słowian.
-    

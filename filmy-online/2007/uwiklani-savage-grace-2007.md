@@ -1,9 +1,5 @@
+Uwikłani / Savage Grace 2007 
+=============
+[![Uwikłani / Savage Grace 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uwiklani-savage-grace-2007)
 
-        Uwikłani / Savage Grace 2007 
-        =============
-        
-        [![Uwikłani / Savage Grace 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uwiklani-savage-grace-2007)
-        
-        
  Skandalizująca historia bogatej rodziny Baekeland, w której wyrafinowana estetyka przenika się z niszczącą siłą obsesji, elegancja zderza się z przemocą. Film, który powstał na podstawie powieści Natalie Robins i Stevena M. L. Aronsona pokazuje prawdziwą, choć niezwykłą, historię Barbary Daly (Julianne Moore). Wżeniła się ona w klasę wyższą, poślubiając dziedzica fortuny twórców bakelitu, Brooksa Baekelanda. Piękna i charyzmatyczna kobieta zupełnie nie pasowała do powściągliwego męża, a narodziny ich jedynego potomka, Tony'ego, zachwiały jeszcze bardziej podstawami niestabilnego i burzliwego małżeństwa. Czując odrzucenie ojca, chłopiec zbliżał się do równie osamotnionej matki, a relacje tych dwojga z czasem stawały się coraz bardziej skomplikowane i kontrowersyjne. Film w sześciu odsłonach pokazuje czasy od 1946 do 1972. Pogoń Baekelandów za społecznymi honorami i 'cudownym życiem' prowadzi od ich wielkiego wzlotu, po tragiczny upadek i zbrodnię.  ... powściągliwego męża, a narodziny ich jedynego potomka, Tony'ego, zachwiały jeszcze bardziej podstawami niestabilnego i burzliwego małżeństwa. Czując odrzucenie ojca, chłopiec zbliżał się do równie osamotnionej matki, a relacje tych dwojga z czasem stawały się coraz bardziej skomplikowane i kontrowersyjne. Film w sześciu odsłonach pokazuje czasy od 1946 do 1972. Pogoń Baekelandów za społecznymi honorami i 'cudownym życiem' prowadzi od ich wielkiego wzlotu, po tragiczny upadek i zbrodnię.
-    

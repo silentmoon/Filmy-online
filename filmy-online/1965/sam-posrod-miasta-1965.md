@@ -1,9 +1,5 @@
+Sam pośród miasta 1965 
+=============
+[![Sam pośród miasta 1965 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sam-posrod-miasta-1965)
 
-        Sam pośród miasta 1965 
-        =============
-        
-        [![Sam pośród miasta 1965 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sam-posrod-miasta-1965)
-        
-        
  Film opowiada o czterdziestoletnim, zagubionym romantyku, który ciągle nie potrafi odnaleźć swojego miejsca w życiu. Konrad (Zbigniew Cybulski) wywodzi się rodu Kolumbów. Jego charakter ukształtowały doświadczenia czasów wojny. Dwadzieścia lat po jej zakończeniu, mimo dobrej pozycji zawodowej, cały czas nie może przyzwyczaić się do nowej rzeczywistości. To nieprzystosowanie staje się dolegliwe w chwili, gdy w wyniku awarii samolotu musi odłożyć wyjazd do Iraku. Co ma robić przez cały dzień i noc w Warszawie? Konrad załatwiłjuż wszystkie sprawy prywatne i służbowe, więc nie ma co robić. Bohater włóczy się bez celu po mieście, daremnie usiłując skontaktować się ze swoją przyjaciółką, Ewą. Próbuje zagłuszyć nagłą samotność w studenckim barze. Z poznaną tam atrakcyjną dziewczyną, Basią przenosi się do klubu studenckiego. Panująca tam zabawowa atmosfera bardzo mu nie służy. Zostawia dziewczynę i dalej samotnie wędruje po stolicy, przywołują dawne wspomnienia z lat wojny. W barze upija się i postanawia wrócić do klubu po Basię. Razem z nią odwiedza Ewę, u której zastaje innego mężczyznę...  ... przez cały dzień i noc w Warszawie? Konrad załatwiłjuż wszystkie sprawy prywatne i służbowe, więc nie ma co robić. Bohater włóczy się bez celu po mieście, daremnie usiłując skontaktować się ze swoją przyjaciółką, Ewą. Próbuje zagłuszyć nagłą samotność w studenckim barze. Z poznaną tam atrakcyjną dziewczyną, Basią przenosi się do klubu studenckiego. Panująca tam zabawowa atmosfera bardzo mu nie służy. Zostawia dziewczynę i dalej samotnie wędruje po stolicy, przywołują dawne wspomnienia z lat wojny. W barze upija się i postanawia wrócić do klubu po Basię. Razem z nią odwiedza Ewę, u której zastaje innego mężczyznę...
-    

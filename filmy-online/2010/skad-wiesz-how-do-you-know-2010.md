@@ -1,9 +1,5 @@
+Skąd wiesz? / How Do You Know 2010 
+=============
+[![Skąd wiesz? / How Do You Know 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/skad-wiesz-how-do-you-know-2010)
 
-        Skąd wiesz? / How Do You Know 2010 
-        =============
-        
-        [![Skąd wiesz? / How Do You Know 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/skad-wiesz-how-do-you-know-2010)
-        
-        
  Lisa (Witherspoon) to dziewczyna, dla której aktywność fizyczna jest pasją życia. Kiedy zostaje wykluczona z drużyny, wszystko, co było dla niej ważne, w minucie przestało istnieć. Lisa zastanawia się nad rozpoczęciem bardziej ustabilizowanego życia. W takim niezbyt rokującym na przyszłość nastroju zaczyna romans z Mattym (Wilson), zawodnikiem baseballa, skoncentrowanym na sobie facecie, nie pozbawionym jednak uroku osobistego. George (Paul Rudd) to twardo stąpający po ziemi, urodzony biznesmen. Ma trudne relacje z ojcem, Charlesem (Nicholson), które jeszcze bardziej zostają wystawione na próbę w momencie, kiedy George jest oskarżony o przestępstwo finansowe, którego nie popełnił. George stara się zachować spokój i trzeźwość umysłu, a to dzięki wrodzonej uczciwości i optymizmowi. Zanim jeszcze relacja Lisy i Matta nabierze rozpędu, przypadkowo spotyka ona Georga. Z jednej strony dla obojga jest to jeden z najgorszych dni w życiu – Lisa straciła miejsce w drużynie, a George przechodzi trudne chwile w firmie, z drugiej, kiedy cały świat wydaje się rozpadać na kawałki, tych dwoje odkrywa, że właśnie rodzi się coś wspaniałego.   ... urodzony biznesmen. Ma trudne relacje z ojcem, Charlesem (Nicholson), które jeszcze bardziej zostają wystawione na próbę w momencie, kiedy George jest oskarżony o przestępstwo finansowe, którego nie popełnił. George stara się zachować spokój i trzeźwość umysłu, a to dzięki wrodzonej uczciwości i optymizmowi. Zanim jeszcze relacja Lisy i Matta nabierze rozpędu, przypadkowo spotyka ona Georga. Z jednej strony dla obojga jest to jeden z najgorszych dni w życiu – Lisa straciła miejsce w drużynie, a George przechodzi trudne chwile w firmie, z drugiej, kiedy cały świat wydaje się rozpadać na kawałki, tych dwoje odkrywa, że właśnie rodzi się coś wspaniałego.
-    

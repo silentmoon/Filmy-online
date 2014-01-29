@@ -1,9 +1,5 @@
+Szkoła podstawowa / Obecná škola 1991 
+=============
+[![Szkoła podstawowa / Obecná škola 1991 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szkola-podstawowa-obecn-kola-1991)
 
-        Szkoła podstawowa / Obecná škola 1991 
-        =============
-        
-        [![Szkoła podstawowa / Obecná škola 1991 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szkola-podstawowa-obecn-kola-1991)
-        
-        
  Dyrektor szkoły jest idiotą, ale nieszkodliwym, a nawet poczciwym. Jego ulubione zajęcie to ogłaszanie komunikatów i zakazów przez szkolny radiowęzeł. Komunikatów nikt nie słucha, zakazy nie są przestrzegane, lecz to jedyna chwila, która daje mu choćby namiastkę ważności. Nauczycielka Maxova zupełnie rozminęła się z możliwościami. Jeśli chwilami skupia uwagę uczniów, to tylko ze względu na intrygującą ich niewiadomą: nosi dessous czy nie. Gdy obłęd 'wyzwala' ją ze szkolnej udrękim na jej miejsce pojawia się tajemniczy pan Hnizdo podkreślający swój kult dyscypliny paramilitarnym uniformem ozdobionym pasem. Film pokazuje Czechy, które dostały kilka lat oddechu między końcem wojny a początkiem sowietyzacji.  ... udrękim na jej miejsce pojawia się tajemniczy pan Hnizdo podkreślający swój kult dyscypliny paramilitarnym uniformem ozdobionym pasem. Film pokazuje Czechy, które dostały kilka lat oddechu między końcem wojny a początkiem sowietyzacji.
-    

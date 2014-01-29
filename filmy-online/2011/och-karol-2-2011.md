@@ -1,9 +1,5 @@
+Och, Karol 2 2011 
+=============
+[![Och, Karol 2 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/och-karol-2-2011)
 
-        Och, Karol 2 2011 
-        =============
-        
-        [![Och, Karol 2 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/och-karol-2-2011)
-        
-        
  Karol (Piotr Adamczyk) ma wszystko. Świetnie zarabia, jest najlepszym pracownikiem dużej firmy, jeździ sportowym samochodem i posiada piękny dom, gdzie codziennie czeka na niego jeszcze piękniejsza narzeczona Maria (Małgorzata Socha). Jest czarujący, uwielbia seks, a kobiety zniewala w mgnieniu oka. Doskonale zdaje sobie sprawę, że podoba się kobietom i z rozkoszą korzysta z tego dobrodziejstwa. Oprócz narzeczonej ma trzy kochanki. Ognistą Wandę (Małgorzataa Foremniak), dla której pejcz i kajdanki to dopiero początek dobrej zabawy, infantylną i słodką jak landrynka Paulinę (Marta Żmuda Trzebiatowska) i nieco zachowawczą, ale namiętną Irenę (Katarzyna Zielińska). Każda z jego kobiet jest inna, lecz dla niego to żaden problem. Karol świetnie sobie radzi, skacząc z łóżka do łóżka i realizując ich kolejne zachcianki. Takie życie to marzenie niejednego faceta. Każda bajka jednak kiedyś się kończy. Jego narzeczona Maria w końcu dowie się prawdy i zaplanuje zemstę. Pewnego dnia Karol wróci do domu i będzie przekonany, że śni. W progu przywita go narzeczona i kochanki - wszystkie gotowe spędzić z nim każdą wolną chwilę w łóżku. Karol przekona się, czym jest życie seksualne na wysokich obrotach.  ... a Foremniak), dla której pejcz i kajdanki to dopiero początek dobrej zabawy, infantylną i słodką jak landrynka Paulinę (Marta Żmuda Trzebiatowska) i nieco zachowawczą, ale namiętną Irenę (Katarzyna Zielińska). Każda z jego kobiet jest inna, lecz dla niego to żaden problem. Karol świetnie sobie radzi, skacząc z łóżka do łóżka i realizując ich kolejne zachcianki. Takie życie to marzenie niejednego faceta. Każda bajka jednak kiedyś się kończy. Jego narzeczona Maria w końcu dowie się prawdy i zaplanuje zemstę. Pewnego dnia Karol wróci do domu i będzie przekonany, że śni. W progu przywita go narzeczona i kochanki - wszystkie gotowe spędzić z nim każdą wolną chwilę w łóżku. Karol przekona się, czym jest życie seksualne na wysokich obrotach.
-    

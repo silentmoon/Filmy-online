@@ -1,9 +1,5 @@
+Lęk pierwotny / Primal Fear 1996 
+=============
+[![Lęk pierwotny / Primal Fear 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lek-pierwotny-primal-fear-1996)
 
-        Lęk pierwotny / Primal Fear 1996 
-        =============
-        
-        [![Lęk pierwotny / Primal Fear 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lek-pierwotny-primal-fear-1996)
-        
-        
  Martin Vail to jeden z najbardziej znanych i wziętych chicagowskich obrońców w sprawach kryminalnych. Arogancki i cyniczny bardziej interesuje się popularnością niż dociekaniem prawdy. Kiedy zostaje zamordowany arcybiskup Chicago Rushmon, Vail podejmuje się obrony oskarżonego, widząc w głośnej sprawie kolejną szansę na zdobycie sławy i zaszczytów. W pobliżu miejsca zbrodni zostaje schwytany członek chóru kościelnego, 19-letni Aaron Stampler. Na jego ubraniu znaleziono ślady krwi, jest więc głównym podejrzanym o dokonanie zbrodni. Przebywającego w areszcie Aarona odwiedza Vail proponując ubogiemu i nieśmiałemu młodzieńcowi bezpłatną obronę. Oskarżony przez cały czas utrzymuje, że nie popełnił morderstwa. Początkowo obrońca kieruje się jedynie własnym interesem, jednak z czasem zaczyna wierzyć w niewinność swego klienta i zamierza to udowodnić. Vail odkrywa mroczne tajemnice z przeszłości arcybiskupa. Sprawa zatacza coraz szersze kręgi. Obrońca jest bliski rozwiązania zagadki, ale szyki psuje mu równie ambitna i zawzięta młoda prawniczka Janet Venable, jego była uczennica z którą miał romans.  ... krwi, jest więc głównym podejrzanym o dokonanie zbrodni. Przebywającego w areszcie Aarona odwiedza Vail proponując ubogiemu i nieśmiałemu młodzieńcowi bezpłatną obronę. Oskarżony przez cały czas utrzymuje, że nie popełnił morderstwa. Początkowo obrońca kieruje się jedynie własnym interesem, jednak z czasem zaczyna wierzyć w niewinność swego klienta i zamierza to udowodnić. Vail odkrywa mroczne tajemnice z przeszłości arcybiskupa. Sprawa zatacza coraz szersze kręgi. Obrońca jest bliski rozwiązania zagadki, ale szyki psuje mu równie ambitna i zawzięta młoda prawniczka Janet Venable, jego była uczennica z którą miał romans.
-    

@@ -1,9 +1,5 @@
+Granica / Borderline 1980 
+=============
+[![Granica / Borderline 1980 ](http://vidos.pl/images/player.gif)](http://vidos.pl/granica-borderline-1980)
 
-        Granica / Borderline 1980 
-        =============
-        
-        [![Granica / Borderline 1980 ](http://vidos.pl/images/player.gif)](http://vidos.pl/granica-borderline-1980)
-        
-        
  Jeb Maynard (Charles Bronson) jest strażnikiem na granicy USA z Meksykiem, od lat zmagającym się z napływem nielegalnych imigrantów. Pewnego dnia jego najlepszy przyjaciel Scooter Jackson (Wilford Brimley) i młody meksykański chłopiec zostają brutalnie zamordowani. Jeb poprzysięga sprawcy zemstę. Zdeterminowany, postanawia za wszelką cenę schwytać mordercę. W prywatnym śledztwie pomaga mu Elena Morales (Karmin Murcelo), nielegalna imigrantka z Meksyku, którą z czasem zaczyna darzyć gorącym uczuciem. Elena pragnie doprowadzić do aresztowania Hotchkissa (Ed Harris), nie znającego ludzkich uczuć przemytnika, który sprowadził ją do Stanów. Wkrótce Maynard stanie twarzą w twarz z mordercą.  ... darzyć gorącym uczuciem. Elena pragnie doprowadzić do aresztowania Hotchkissa (Ed Harris), nie znającego ludzkich uczuć przemytnika, który sprowadził ją do Stanów. Wkrótce Maynard stanie twarzą w twarz z mordercą.
-    

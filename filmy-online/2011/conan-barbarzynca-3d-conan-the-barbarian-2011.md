@@ -1,9 +1,5 @@
+Conan Barbarzyńca 3D / Conan the Barbarian 2011 
+=============
+[![Conan Barbarzyńca 3D / Conan the Barbarian 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/conan-barbarzynca-3d-conan-the-barbarian-2011)
 
-        Conan Barbarzyńca 3D / Conan the Barbarian 2011 
-        =============
-        
-        [![Conan Barbarzyńca 3D / Conan the Barbarian 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/conan-barbarzynca-3d-conan-the-barbarian-2011)
-        
-        
  Ekranizacja przygód jednego z najsłynniejszych herosów w historii kina i literatury, tym razem zrealizowana w technologii 3D! Przesiąknięty klimatem magii i tajemnicy, obfitujący w spektakularne sceny walk i efekty specjalne, nowy 'Conan Barbarzyńca' nie jest kontynuacją cyklu sprzed lat, lecz zupełnie nowym otwarciem opowieści o przygodach herosa z Cymerii. Conan od najmłodszych lat przejawia talent wojownika. Jednak nim zdąży dorosnąć, w jego rodzinnych stronach rozgorzeje krwawa wojna. Khalar Zym – potężny władca i czarnoksiężnik – zgładzi całe plemię małego Conana. Prawie całe – na swoje nieszczęście nie zdoła schwytać walecznego chłopca. Mijają lata. Conan jest już dojrzałym wojownikiem, który nie ma sobie równych. Od lat realizuje krwawy plan zemsty – podąża tropem Khalara i likwiduje bez litości kolejnych jego popleczników. Pewnego dnia przyjdzie mu stoczyć walkę, na którą czekał całe życie. Nim jednak do niej dojdzie, musi ocalić z jego rąk dziedziczkę odwiecznej mocy władców Acheronu. Jeśli Khalarowi uda się złożyć rytualną ofiarę z jej życia, posiądzie drzemiącą w niej moc i stanie się niepokonany.   ... krwawa wojna. Khalar Zym – potężny władca i czarnoksiężnik – zgładzi całe plemię małego Conana. Prawie całe – na swoje nieszczęście nie zdoła schwytać walecznego chłopca. Mijają lata. Conan jest już dojrzałym wojownikiem, który nie ma sobie równych. Od lat realizuje krwawy plan zemsty – podąża tropem Khalara i likwiduje bez litości kolejnych jego popleczników. Pewnego dnia przyjdzie mu stoczyć walkę, na którą czekał całe życie. Nim jednak do niej dojdzie, musi ocalić z jego rąk dziedziczkę odwiecznej mocy władców Acheronu. Jeśli Khalarowi uda się złożyć rytualną ofiarę z jej życia, posiądzie drzemiącą w niej moc i stanie się niepokonany.
-    

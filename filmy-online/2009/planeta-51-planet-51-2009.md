@@ -1,9 +1,5 @@
+Planeta 51 / Planet 51 2009 
+=============
+[![Planeta 51 / Planet 51 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/planeta-51-planet-51-2009)
 
-        Planeta 51 / Planet 51 2009 
-        =============
-        
-        [![Planeta 51 / Planet 51 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/planeta-51-planet-51-2009)
-        
-        
  Nowy film twórców „Shreka”! Typowi mieszkańcy planety mają dwoje czułków, osiem palców i panicznie boją się inwazji obcych cywilizacji. 16-letni Lem jest wzorowym uczniem i wiedzie beztroskie życie marząc o kosmosie oraz o swojej uroczej zielonoskórej sąsiadce Neerze. Pewnego dnia, w samym środku rodzinnego grilla  na podwórku Neery ląduje niezidentyfikowany obiekt latający opatrzony śmiesznie brzmiącym napisem „NASA”. Gdy sterujący nim Kapitan Russ Baker opuszcza swój statek, aby triumfalnie wbić w nieodkrytą dotąd ziemię amerykańską flagę zauważa… kilkoro wgapionych w siebie otwartych ze zdziwienia oczu. Spanikowany bierze nogi za pas i znajduje schronienie w planetarium, w którym pracuje Lem. Po początkowej fazie wzajemnej nieufności między bohaterami stopniowo zaczyna kiełkować przyjaźń. Teraz Lem, wraz z pomocą życzliwych lecz niezbyt bystrych przyjaciół, musi nie tylko ukryć swojego ziemskiego przyjaciela przed ścigającym go wojskiem, ale także pomóc mu jak najszybciej wrócić na przejęty przez władze planety statek.   ... statek, aby triumfalnie wbić w nieodkrytą dotąd ziemię amerykańską flagę zauważa… kilkoro wgapionych w siebie otwartych ze zdziwienia oczu. Spanikowany bierze nogi za pas i znajduje schronienie w planetarium, w którym pracuje Lem. Po początkowej fazie wzajemnej nieufności między bohaterami stopniowo zaczyna kiełkować przyjaźń. Teraz Lem, wraz z pomocą życzliwych lecz niezbyt bystrych przyjaciół, musi nie tylko ukryć swojego ziemskiego przyjaciela przed ścigającym go wojskiem, ale także pomóc mu jak najszybciej wrócić na przejęty przez władze planety statek.
-    

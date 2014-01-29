@@ -1,9 +1,5 @@
+Marysia i Napoleon 1966 
+=============
+[![Marysia i Napoleon 1966 ](http://vidos.pl/images/player.gif)](http://vidos.pl/marysia-i-napoleon-1966)
 
-        Marysia i Napoleon 1966 
-        =============
-        
-        [![Marysia i Napoleon 1966 ](http://vidos.pl/images/player.gif)](http://vidos.pl/marysia-i-napoleon-1966)
-        
-        
  Akcja filmu rozgrywa się w dwóch planach: współczesnym i historycznym. Do Warszawy przyjeżdża na stypendium młody francuski historyk. Zakochuje się w pięknej Polce, studentce historii sztuki. Na ścianie dworku w Walewicach wiszą portrety Napoleona Bonaparte i szambelanowej Marii Walewskiej, wielkiej miłości cesarza, wykorzystującej jego względy do wstawienia się za ojczyznę. Para współczesnych bohaterów dostrzega swoje uderzające podobieństwo do postaci historycznych i jak za dotknięciem czarodziejskiej różdżki parokrotnie przenosi się w czasy napoleońskie, gdzie wciela się w rolę Napoleona i pani Walewskiej. A że nie wszystko w tej opowieści pokrywa się z faktami podręcznikowymi - złóżmy to na karb niedostatecznej wiedzy oraz poczucia humoru pary współczesnych kochanków. W ich romansie, bowiem role zostały odwrócone zgodnie z charakterem nowoczesnej polskiej dziewczyny z roku 1966- równie pięknej jak ta z roku 1806, lecz niezależnej i świadomie dysponującej swą urodą oraz losem.   ... dotknięciem czarodziejskiej różdżki parokrotnie przenosi się w czasy napoleońskie, gdzie wciela się w rolę Napoleona i pani Walewskiej. A że nie wszystko w tej opowieści pokrywa się z faktami podręcznikowymi - złóżmy to na karb niedostatecznej wiedzy oraz poczucia humoru pary współczesnych kochanków. W ich romansie, bowiem role zostały odwrócone zgodnie z charakterem nowoczesnej polskiej dziewczyny z roku 1966- równie pięknej jak ta z roku 1806, lecz niezależnej i świadomie dysponującej swą urodą oraz losem.
-    

@@ -1,9 +1,5 @@
+Opowieści z Narnii: Książę Kaspian / The Chronicles of Narnia: Prince Caspian 2008 
+=============
+[![Opowieści z Narnii: Książę Kaspian / The Chronicles of Narnia: Prince Caspian 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/opowiesci-z-narnii-ksiaze-kaspian-the-chronicles-of-narnia-prince-caspian-2008)
 
-        Opowieści z Narnii: Książę Kaspian / The Chronicles of Narnia: Prince Caspian 2008 
-        =============
-        
-        [![Opowieści z Narnii: Książę Kaspian / The Chronicles of Narnia: Prince Caspian 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/opowiesci-z-narnii-ksiaze-kaspian-the-chronicles-of-narnia-prince-caspian-2008)
-        
-        
  Ekranizacja drugiego z siedmiu tomów słynnej serii C.S.Lewisa. Od poprzednich przygód rodzeństwa Pevensie w Narnii minął już ponad rok, wedle angielskiej rachuby czasu. Teraz, dzieci znowu trafiają do swego królestwa, jednak czas w Narnii płynie inaczej. Od ich zniknięcia minęło 1300 lat i wiele się zmieniło. Magiczne stworzenia i mówiące zwierzęta stały się jedynie legendą, a rządy sprawuje okrutny uzurpator Miraz (Sergio Castellitto). Prawowity władca, tytułowy Książę Kaspian (Ben Barnes) to bratanek Miraza. Zmuszony do ucieczki, znajduje schronienie wśród rodowitych Narnijczyków, którzy rzekomo wyginęli. Rodzeństwo Pevensie musi pomóc księciu w pokonaniu stryja i odzyskaniu tronu...  ... Kaspian (Ben Barnes) to bratanek Miraza. Zmuszony do ucieczki, znajduje schronienie wśród rodowitych Narnijczyków, którzy rzekomo wyginęli. Rodzeństwo Pevensie musi pomóc księciu w pokonaniu stryja i odzyskaniu tronu...
-    

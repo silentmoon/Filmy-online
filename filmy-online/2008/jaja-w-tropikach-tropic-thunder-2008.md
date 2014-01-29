@@ -1,9 +1,5 @@
+Jaja w tropikach / Tropic Thunder 2008 
+=============
+[![Jaja w tropikach / Tropic Thunder 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jaja-w-tropikach-tropic-thunder-2008)
 
-        Jaja w tropikach / Tropic Thunder 2008 
-        =============
-        
-        [![Jaja w tropikach / Tropic Thunder 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jaja-w-tropikach-tropic-thunder-2008)
-        
-        
  Ben Stiller, Jack Black i Robert Downey Jr. stoją na czele gwiazdorskiej obsady najnowszej komedii akcji 'Jaja w tropikach'. To historia grupy egocentrycznych aktorów, zaangażowanych, żeby nakręcić najlepszy w historii kina film wojenny. Rosnące w zastraszającym tempie koszty oraz kaprysy gwiazdorów grożą wstrzymaniem produkcji. Sfrustrowany reżyser chwyta się więc ostatniej deski ratunku - wysyła ekipę filmową w dzikie tereny południowo-wschodniej Azji, by film zyskał realizm partyzanckich podchodów. Aktorzy muszą sobie poradzić bez asystentów, pomocników a nawet telefonów komórkowych. Ale nikt nie przewidział, że  ekipa zetknie się z lokalną bandą handlarzy narkotyków. Ci błędnie biorą amerykańskich aktorów za agentów wywiadu i swoimi dość konwencjonalnymi w tych kręgach metodami (karabin, granat, bomba) starają się rozwiązać problem zachodnich 'najeźdźców'. Co może z tego wyniknąć? - świetna zabawa i mnóstwo śmiechu!!!  ... realizm partyzanckich podchodów. Aktorzy muszą sobie poradzić bez asystentów, pomocników a nawet telefonów komórkowych. Ale nikt nie przewidział, że  ekipa zetknie się z lokalną bandą handlarzy narkotyków. Ci błędnie biorą amerykańskich aktorów za agentów wywiadu i swoimi dość konwencjonalnymi w tych kręgach metodami (karabin, granat, bomba) starają się rozwiązać problem zachodnich 'najeźdźców'. Co może z tego wyniknąć? - świetna zabawa i mnóstwo śmiechu!!!
-    

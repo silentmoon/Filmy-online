@@ -1,9 +1,5 @@
+Wyspa / Ostrov 2006 
+=============
+[![Wyspa / Ostrov 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wyspa-ostrov-2006)
 
-        Wyspa / Ostrov 2006 
-        =============
-        
-        [![Wyspa / Ostrov 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wyspa-ostrov-2006)
-        
-        
  Film opowiada historię człowieka, który w młodości, podczas II wojny światowej, w nadziei na uratowanie własnego życia, na rozkaz Niemców, zabija swojego przełożonego - szypra Tichona. Jednak hitlerowcy wysadzają w powietrze barkę, a marynarza - mordercę ratują mnisi z maleńkiego klasztoru, na maleńkiej wyspie?Następnie akcja przenosi się do roku 1976. Anatolij- główny bohater pracuje w kotłowni monastyru. Całymi dniami wozi węgiel. Jego mieszkanie to szopa w której stoi piec, a łóżko to sterta węgla. Współbraci- mnichów zbija z tropu jego dziwność- to on niewiadomo po co wrzuca do pieca cudze buty, to on gromko krzyczy, nie oddaje należytej czci inhumenowi? Jednak w każdym takim dzikim zachowaniu jest zamysł- jest to sposób zwrócenia uwagi ludzi na ważne rzeczy. Na wyspę z daleka przyjeżdżają ludzie, wierząc że Anatolij może udzielić im mądrej odpowiedzi, uleczyć choroby i wygnać smutki. On nikomu nie odmawia pomocy, ale wewnątrz cierpi, ciąży mu świadomość ciężaru grzechu, dokonanego wtedy na barce. Modli się o wybaczenie do zabitego towarzysza. Ale jak uznać, że wybaczył jeśli nie ma żadnej odpowiedzi...  ... piec, a łóżko to sterta węgla. Współbraci- mnichów zbija z tropu jego dziwność- to on niewiadomo po co wrzuca do pieca cudze buty, to on gromko krzyczy, nie oddaje należytej czci inhumenowi? Jednak w każdym takim dzikim zachowaniu jest zamysł- jest to sposób zwrócenia uwagi ludzi na ważne rzeczy. Na wyspę z daleka przyjeżdżają ludzie, wierząc że Anatolij może udzielić im mądrej odpowiedzi, uleczyć choroby i wygnać smutki. On nikomu nie odmawia pomocy, ale wewnątrz cierpi, ciąży mu świadomość ciężaru grzechu, dokonanego wtedy na barce. Modli się o wybaczenie do zabitego towarzysza. Ale jak uznać, że wybaczył jeśli nie ma żadnej odpowiedzi...
-    

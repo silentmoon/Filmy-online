@@ -1,9 +1,5 @@
+Pozory i złudzenia / Corps a corps 2003 
+=============
+[![Pozory i złudzenia / Corps a corps 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pozory-i-zludzenia-corps-a-corps-2003)
 
-        Pozory i złudzenia / Corps a corps 2003 
-        =============
-        
-        [![Pozory i złudzenia / Corps a corps 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pozory-i-zludzenia-corps-a-corps-2003)
-        
-        
  Laura (Emmanuelle Seigner), striptizerka z nocnego klubu, robi wyjątkowe wrażenie na jednym z gości. Przystojny, bogaty i elegancki Marco (Philippe Torreton) szybko proponuje jej małżeństwo. Laura postanawia porzucić dla niego dotychczasowe życie. Ale wychodząc z klubu po swoim ostatnim nocnym występie, ulega tragicznemu wypadkowi samochodowemu. W jego wyniku do końca życia pozostanie głucha i oszpecona bliznami. Zakochany Marco nie opuszcza jej jednak w tragicznej sytuacji. Zabiera ją do swojej luksusowej rezydencji, pomaga w rehabilitacji i powrocie do normalnego życia. Krótko po tym pobierają się. Sześć lat później, mały incydent w szkole, w który zamieszany będzie ich syn Jeannot (Clement Brilland), rzuci cień na życie ich rodziny, a także przeszłość i prawdziwe intencje Marco. Prywatne śledztwo doprowadzi Laurę do przerażającego odkrycia.  ... Zabiera ją do swojej luksusowej rezydencji, pomaga w rehabilitacji i powrocie do normalnego życia. Krótko po tym pobierają się. Sześć lat później, mały incydent w szkole, w który zamieszany będzie ich syn Jeannot (Clement Brilland), rzuci cień na życie ich rodziny, a także przeszłość i prawdziwe intencje Marco. Prywatne śledztwo doprowadzi Laurę do przerażającego odkrycia.
-    

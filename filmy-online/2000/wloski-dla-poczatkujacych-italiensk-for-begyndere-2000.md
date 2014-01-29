@@ -1,9 +1,5 @@
+Włoski dla początkujących / Italiensk for begyndere 2000 
+=============
+[![Włoski dla początkujących / Italiensk for begyndere 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wloski-dla-poczatkujacych-italiensk-for-begyndere-2000)
 
-        Włoski dla początkujących / Italiensk for begyndere 2000 
-        =============
-        
-        [![Włoski dla początkujących / Italiensk for begyndere 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wloski-dla-poczatkujacych-italiensk-for-begyndere-2000)
-        
-        
  'Włoski dla początkujących' opowiada historię samotnych, nieszczęśliwych ludzi, których losy dość przypadkowo zaczynają się ze sobą splatać pewnej ponurej kopenhaskiej zimy. Młody duchowny, Andreas (Anders W. Berthelsen), po śmierci żony osiedla się na przedmieściach Kopenhagi, gdzie ma zastąpić starego pastora. W tym samym czasie niezdarna sprzedawczyni - Olimpia (Anette Stovelbak) - sprzeciwia się apodyktycznemu ojcu i - chcąc urozmaicić swoje życie - postanawia zrobić coś czego nigdy wcześniej nie robiła. Introwertyczna fryzjerka Karen (Anne Eleonora Jorgensen) nieoczekiwanie odkrywa największy sekret swojej matki. Jorgen Mortensen (Peter Gantzler), recepcjonista w miejscowym hotelu, rozpaczliwie próbuje zdobyć miłość pięknej, włoskiej kelnerki, w czym pomaga mu przyjaciel, impulsywny i nieokrzesany Halvfinn (w tej roli fantastyczny Lars Kaalund). Drogi tych ludzi krzyżują się niespodziewanie na wieczorowym kursie włoskiego dla początkujących. Życie każdego z nich diametralnie się zmienia przynosząc upragnione szczęście i miłość.  ... czego nigdy wcześniej nie robiła. Introwertyczna fryzjerka Karen (Anne Eleonora Jorgensen) nieoczekiwanie odkrywa największy sekret swojej matki. Jorgen Mortensen (Peter Gantzler), recepcjonista w miejscowym hotelu, rozpaczliwie próbuje zdobyć miłość pięknej, włoskiej kelnerki, w czym pomaga mu przyjaciel, impulsywny i nieokrzesany Halvfinn (w tej roli fantastyczny Lars Kaalund). Drogi tych ludzi krzyżują się niespodziewanie na wieczorowym kursie włoskiego dla początkujących. Życie każdego z nich diametralnie się zmienia przynosząc upragnione szczęście i miłość.
-    

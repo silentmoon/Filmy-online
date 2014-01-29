@@ -1,9 +1,5 @@
+Przeklęty / Thinner 1996 
+=============
+[![Przeklęty / Thinner 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przeklety-thinner-1996)
 
-        Przeklęty / Thinner 1996 
-        =============
-        
-        [![Przeklęty / Thinner 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przeklety-thinner-1996)
-        
-        
  Horror, ekranizacja prozy mistrza gatunku Stephena Kinga. Monstrualnie gruby, ważący ok. 150 kg, prawnik z Maine (Burke) potrąca samochodem ze skutkiem śmiertelnym przechodzącą przez jezdnię młodą Cygankę. Jako członek miejscowego establishmentu, dobry znajomy zarówno szefa policji, jak i prowadzącego sprawę sędziego, szybko zostaje oczyszczony z zarzutu spowodowania wypadku. W tej sytuacji ojciec ofiary, sędziwy król Cyganów (Constantine), postanawia wziąć sprawiedliwość we własne ręce; rzuca na grubasa oryginalną klątwę 'chudnij!' Klątwa okazuje się niezwykle skuteczna; pechowy kierowca traci kilogram za kilogramem, nie stosując przy tym żadnej diety (raczej przeciwnie). Najpierw jest tym szczerze zachwycony, jednak wkrótce (gdy zaczyna ewoluować w kierunku szkieletu) początkowa radość zamienia się w przerażenie... źródło: Gazeta.pl   ... własne ręce; rzuca na grubasa oryginalną klątwę 'chudnij!' Klątwa okazuje się niezwykle skuteczna; pechowy kierowca traci kilogram za kilogramem, nie stosując przy tym żadnej diety (raczej przeciwnie). Najpierw jest tym szczerze zachwycony, jednak wkrótce (gdy zaczyna ewoluować w kierunku szkieletu) początkowa radość zamienia się w przerażenie... źródło: Gazeta.pl
-    

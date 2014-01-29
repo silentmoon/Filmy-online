@@ -1,9 +1,5 @@
+Hej, Skarbie / Precious 2009 
+=============
+[![Hej, Skarbie / Precious 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hej-skarbie-precious-2009)
 
-        Hej, Skarbie / Precious 2009 
-        =============
-        
-        [![Hej, Skarbie / Precious 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hej-skarbie-precious-2009)
-        
-        
  Życie szesnastoletniej Clareece 'Precious' Jones (Gabourey Sidibe) z Harlemu jest odzwierciedleniem najgorszej patologii istniejącej w enklawach biedy amerykańskiej społeczności. Dziewczyna jest chorobliwie otyłą analfabetką, żyje z zasiłku, a na domiar złego, już po raz drugi zachodzi w ciąże z własnym ojcem. W tej trudnej sytuacji nie znajduje oparcia nawet w matce (Mo'Nique), która terroryzuje ją na każdym kroku, ograniczając w ten sposób możliwości rozwoju. Dopiero, kiedy pójdzie do specjalnej szkoły dla kobiet w trudnej sytuacji przekona się, że są ludzie, którzy wyciągną do niej pomocna dłoń, nauczycielka, psychoterapeutka, lekarz czy koleżanki z zajęć. Precious, pomimo tragicznej sytuacji, zacznie zmieniać swoje życie.  ... pójdzie do specjalnej szkoły dla kobiet w trudnej sytuacji przekona się, że są ludzie, którzy wyciągną do niej pomocna dłoń, nauczycielka, psychoterapeutka, lekarz czy koleżanki z zajęć. Precious, pomimo tragicznej sytuacji, zacznie zmieniać swoje życie.
-    

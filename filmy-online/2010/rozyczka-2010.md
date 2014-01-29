@@ -1,9 +1,5 @@
+Różyczka 2010 
+=============
+[![Różyczka 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rozyczka-2010)
 
-        Różyczka 2010 
-        =============
-        
-        [![Różyczka 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rozyczka-2010)
-        
-        
  Robert Więckiewicz, Magdalena Boczarska i Andrzej Seweryn w niebezpiecznym trójkącie miłosnym. Najnowszy film Jana Kidawy-Błońskiego. Znany pisarz (Andrzej Seweryn) przeżywa romans z dużo młodszą od siebie, piękną kobietą (Magdalena Boczarska). Wbrew wywołującej oburzenie środowiska różnicy wieku, wykształcenia i pozycji intelektualista poślubia atrakcyjną „dziewczynę znikąd”. Zaślepiony uczuciem nie podejrzewa, że ich kontrowersyjny związek może nie być kwestią przypadku. Nie wie, że jego partnerka od dawna spotyka się po kryjomu z innym mężczyzną (Robert Więckiewicz), z którym łączy ją nie tylko silna namiętność, ale i groźna intryga. Zaangażowana w niemoralny układ z agentem, przekazuje mu informacje mające służyć kompromitacji pisarza. Erotyczna fascynacja kochankiem stopniowo przeradza się w głębokie uczucie, choć kobieta zdaje sobie sprawę, że jest jedynie narzędziem w zaplanowanej akcji tajnych służb. Opowieść zainspirowana prawdziwymi wydarzeniami. Niebezpieczną gra uczuć między cenionym pisarzem, jego piękną młodą żoną oraz jej kochankiem, rozgrywająca się w burzliwych latach 60-tych.  ... Nie wie, że jego partnerka od dawna spotyka się po kryjomu z innym mężczyzną (Robert Więckiewicz), z którym łączy ją nie tylko silna namiętność, ale i groźna intryga. Zaangażowana w niemoralny układ z agentem, przekazuje mu informacje mające służyć kompromitacji pisarza. Erotyczna fascynacja kochankiem stopniowo przeradza się w głębokie uczucie, choć kobieta zdaje sobie sprawę, że jest jedynie narzędziem w zaplanowanej akcji tajnych służb. Opowieść zainspirowana prawdziwymi wydarzeniami. Niebezpieczną gra uczuć między cenionym pisarzem, jego piękną młodą żoną oraz jej kochankiem, rozgrywająca się w burzliwych latach 60-tych.
-    

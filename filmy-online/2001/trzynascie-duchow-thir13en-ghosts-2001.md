@@ -1,9 +1,5 @@
+Trzynaście duchów / Thir13en Ghosts 2001 
+=============
+[![Trzynaście duchów / Thir13en Ghosts 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trzynascie-duchow-thir13en-ghosts-2001)
 
-        Trzynaście duchów / Thir13en Ghosts 2001 
-        =============
-        
-        [![Trzynaście duchów / Thir13en Ghosts 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trzynascie-duchow-thir13en-ghosts-2001)
-        
-        
  Arthur Kriticos (Tony Shalhoub) i jego dwoje dzieci (Shannon Elizabeth i Alec Roberts) dostają niespodziewany spadek. W samą porę. Rodzinę dotknęła niedawno tragedia - spalił im się dom, w pożarze zginęła pani Kriticos (Kathryn Anderson), przepadł też cały majątek. Załamany śmiercią żony Arthur mieszka teraz w obskurnym mieszkaniu i ledwo wiąże koniec z końcem. Pewnego dnia Kriticosowie dowiadują się, że odziedziczyli po niedawno zmarłym wuju Cyrusie (F. Murray Abraham) wielki dom. Odludna rezydencja jest wspaniała, choć dość dziwna. Została wykonana w całości ze szkła, pełno w niej antyków i osobliwej maszynerii, ściany zdobią łacińskie inskrypcje. Radośnie obejmując dom w posiadanie Kriticosowie nie są świadomi kilku spraw: po pierwsze wuj Cyrus był okultystą i łowcą duchów. Po drugie: w piwnicy uwięzione są dusze 12 wyjątkowo krwiożerczych potępieńców. Po trzecie: do domu łatwiej wejść niż z niego wyjść. Po czwarte: być może dom jest czymś  niż tylko domem. I wreszcie po piąte: bohaterowie szybko się o tym wszystkim przekonają na własnej skórze, ale wtedy będzie już za późno...   ... wielki dom. Odludna rezydencja jest wspaniała, choć dość dziwna. Została wykonana w całości ze szkła, pełno w niej antyków i osobliwej maszynerii, ściany zdobią łacińskie inskrypcje. Radośnie obejmując dom w posiadanie Kriticosowie nie są świadomi kilku spraw: po pierwsze wuj Cyrus był okultystą i łowcą duchów. Po drugie: w piwnicy uwięzione są dusze 12 wyjątkowo krwiożerczych potępieńców. Po trzecie: do domu łatwiej wejść niż z niego wyjść. Po czwarte: być może dom jest czymś więcej niż tylko domem. I wreszcie po piąte: bohaterowie szybko się o tym wszystkim przekonają na własnej skórze, ale wtedy będzie już za późno...
-    

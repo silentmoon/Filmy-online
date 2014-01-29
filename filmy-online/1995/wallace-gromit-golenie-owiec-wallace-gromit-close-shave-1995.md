@@ -1,9 +1,5 @@
+Wallace & Gromit: Golenie Owiec / Wallace & Gromit: Close Shave 1995 
+=============
+[![Wallace & Gromit: Golenie Owiec / Wallace & Gromit: Close Shave 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wallace-gromit-golenie-owiec-wallace-gromit-close-shave-1995)
 
-        Wallace & Gromit: Golenie Owiec / Wallace & Gromit: Close Shave 1995 
-        =============
-        
-        [![Wallace & Gromit: Golenie Owiec / Wallace & Gromit: Close Shave 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wallace-gromit-golenie-owiec-wallace-gromit-close-shave-1995)
-        
-        
  W mieście brakuje wełny, ponieważ ktoś porywa owce. Pewnej nocy z takiego właśnie transportu ucieka jedna owca i znajduje schronienie u niczego nie podejrzewających Wallacea i Gromita, zajmujących się czyszczeniem okien. Następnego dnia nasi bohaterzy odkrywają, że niemal wszystko w domu zostało nadgryzione. Wtedy też dostają zlecenie na umycie okien w sklepie z wełną, w którym jest pod dostatkiem brakującej wszędzie wełny. Jego właścicielką jest Wendolene oraz jej pies Preston. Wallace jest oczarowany właścicielką, nie wie, że sprawczyni jego domowych kłopotów uciekła właśnie z jej transportu. Po powrocie do domu znajdują tam wszystko zdemolowane przez owcę. Podczas czyszczenia owieczki psuje się maszyneria i strzyże z niej wełnę, Wallace jest zachwycony efektem postrzyżyn. Jednak chwile szczęścia nie mogą trwać zbyt długo, na trop zagubionej owcy wpada Preston.  ... Preston. Wallace jest oczarowany właścicielką, nie wie, że sprawczyni jego domowych kłopotów uciekła właśnie z jej transportu. Po powrocie do domu znajdują tam wszystko zdemolowane przez owcę. Podczas czyszczenia owieczki psuje się maszyneria i strzyże z niej wełnę, Wallace jest zachwycony efektem postrzyżyn. Jednak chwile szczęścia nie mogą trwać zbyt długo, na trop zagubionej owcy wpada Preston.
-    

@@ -1,9 +1,5 @@
+Mr. & Mrs. Smith 2005 
+=============
+[![Mr. & Mrs. Smith 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mr-mrs-smith-2005)
 
-        Mr. & Mrs. Smith 2005 
-        =============
-        
-        [![Mr. & Mrs. Smith 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mr-mrs-smith-2005)
-        
-        
  Na pozór: John i Jane Smith są zwyczajnym małżeństwem ze sporym stażem, wiodącym ustabilizowany, żeby nie powiedzieć nudny żywot w uroczym domu na przedmieściach. Funkcjonują bez większych zgrzytów, wzlotów czy upadków, ale nie da się ukryć, że codzienna rutyna obojgu za bardzo nie służy. Bo czyż rozmowa o nowych przyprawach do sosu jest w stanie dodać życiu pikanterii? Naprawdę: John i Jane Smith są płatnymi zabójcami, których skuteczność i profesjonalizm są szeroko doceniane i wysoko opłacane. Po prostu nie mają sobie równych. Pracują dla konkurencyjnych organizacji. I choć w branży ich sława ich wyprzedza, to o sobie wzajemnie nic nie wiedzą. Prawda nie może wyjść na jaw.   ... doceniane i wysoko opłacane. Po prostu nie mają sobie równych. Pracują dla konkurencyjnych organizacji. I choć w branży ich sława ich wyprzedza, to o sobie wzajemnie nic nie wiedzą. Prawda nie może wyjść na jaw.
-    

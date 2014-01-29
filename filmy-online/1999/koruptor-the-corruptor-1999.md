@@ -1,9 +1,5 @@
+Koruptor / The Corruptor 1999 
+=============
+[![Koruptor / The Corruptor 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/koruptor-the-corruptor-1999)
 
-        Koruptor / The Corruptor 1999 
-        =============
-        
-        [![Koruptor / The Corruptor 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/koruptor-the-corruptor-1999)
-        
-        
  Chinatown, Nowy Jork, czasy obecne. Rozpętała się wojna pomiędzy związaną z chińską mafią, tzw. Triadą, rodziną Tongów, na czele której stoją 'Wujek' Benny Wong (Kim Chan) i Henry Lee (Ric Young), a konkurencyjnym gangiem, wyróżniającym się szczególną gwałtownością działania. Przywódcą gangu jest Bobby Wu (Byron Mann). Nowojorska policja utrzymuje specjalną jednostkę do zwalczania azjatyckiej przestępczości zorganizowanej. Kieruje nią doświadczony, wielokrotnie odznaczany detektyw Nick Chen (Chow Yun-Fat) - pierwszy Chińczyk z urodzenia w siłach amerykańskiej policji. Nick nie jeden ze swoich sukcesów, a co za tym idzie - awansów, zawdzięcza informacjom zdobytym od ludzi z Triady . . .   ... detektyw Nick Chen (Chow Yun-Fat) - pierwszy Chińczyk z urodzenia w siłach amerykańskiej policji. Nick nie jeden ze swoich sukcesów, a co za tym idzie - awansów, zawdzięcza informacjom zdobytym od ludzi z Triady . . .
-    

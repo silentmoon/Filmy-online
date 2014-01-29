@@ -1,9 +1,5 @@
+Półksiężyc / Niwemang 2006 
+=============
+[![Półksiężyc / Niwemang 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/polksiezyc-niwemang-2006)
 
-        Półksiężyc / Niwemang 2006 
-        =============
-        
-        [![Półksiężyc / Niwemang 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/polksiezyc-niwemang-2006)
-        
-        
  Mamo, legendarny kurdyjski muzyk mieszkający w Iranie, ma jedno ostatnie marzenie - móc dać przed śmiercią koncert na terenie irackiego Kurdystanu. Po siedmiu miesiącach wypełnionych ubieganiem się o wszelkie możliwe pozwolenia i próbami ze swoimi dziesięcioma synami, wyrusza w pełną przygód podróż. Nic nie jest w stanie go powstrzymać: ani warunki jazdy, ani kolejne niepowodzenia, ani zapowiedź własnej śmierci w czasie półksiężyca. Mamo upiera się by wykraść śpiewaczkę Hesho, trzymaną w zamkniętym mieście w ramach kary za publiczne śpiewanie w towarzystwie mężczyzn, które zostało zabronione irańskim kobietom. Próba przewiezienia jej przez granicę zostaje udaremniona, rzucając na całą wyprawę cień niepowodzenia. Zaczyna się wyścig ze śmiercią...  ... Hesho, trzymaną w zamkniętym mieście w ramach kary za publiczne śpiewanie w towarzystwie mężczyzn, które zostało zabronione irańskim kobietom. Próba przewiezienia jej przez granicę zostaje udaremniona, rzucając na całą wyprawę cień niepowodzenia. Zaczyna się wyścig ze śmiercią...
-    

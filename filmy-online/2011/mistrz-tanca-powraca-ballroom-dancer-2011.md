@@ -1,9 +1,5 @@
+Mistrz tańca powraca / Ballroom Dancer 2011 
+=============
+[![Mistrz tańca powraca / Ballroom Dancer 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mistrz-tanca-powraca-ballroom-dancer-2011)
 
-        Mistrz tańca powraca / Ballroom Dancer 2011 
-        =============
-        
-        [![Mistrz tańca powraca / Ballroom Dancer 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mistrz-tanca-powraca-ballroom-dancer-2011)
-        
-        
  W 2000 roku ukraiński tancerz – Slavik Kryklyvyy, odnosi spektakularny sukces. Wraz z ówczesną partnerką Joanną Leunis (znaną polskim widzom z gościnnego występu w „Tańcu z gwiazdami”) zajmuje pierwsze miejsce w Światowych Mistrzostwach w Tańcach Latynoskich. Wydaje się, że kariera stoi przed nim otworem, ale z niewiadomych przyczyn Slavik porzuca taniec. Dziś, gdy jego ciało nie jest już tak sprawne i elastyczne jak kiedyś, planuje powrót na taneczny parkiet. Razem z Anną, jego nową zawodową i życiową partnerką, chce ponownie zabłysnąć w świecie gwiazd tańca. Czy będzie potrafiła dopasować się do emocjonalnej i wymagającej natury partnera? Czy ich miłość przetrwa tak trudne i bolesne wyzwanie? Slavik chce wrócić na szczyt i zdetronizować swoją poprzednią partnerkę, która wraz z nowym partnerem (Michałem Malitowskim) pozostaje niepokonana od lat. Polska premiera filmu „Mistrz tańca powraca” odbyła się podczas 9. festiwalu PLANETE+ DOC.  ... Anną, jego nową zawodową i życiową partnerką, chce ponownie zabłysnąć w świecie gwiazd tańca. Czy będzie potrafiła dopasować się do emocjonalnej i wymagającej natury partnera? Czy ich miłość przetrwa tak trudne i bolesne wyzwanie? Slavik chce wrócić na szczyt i zdetronizować swoją poprzednią partnerkę, która wraz z nowym partnerem (Michałem Malitowskim) pozostaje niepokonana od lat. Polska premiera filmu „Mistrz tańca powraca” odbyła się podczas 9. festiwalu PLANETE+ DOC.
-    

@@ -1,9 +1,5 @@
+Jumanji 1995 
+=============
+[![Jumanji 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jumanji-1995)
 
-        Jumanji 1995 
-        =============
-        
-        [![Jumanji 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jumanji-1995)
-        
-        
  Historia niezwykłej gry - zwanej 'Jumanji' - rozpoczyna się w XIX wieku, kiedy to dwaj chłopcy zakopują w lesie tajemniczą skrzynkę. Mija sto lat. Nieśmiały i zagubiony, dwunastoletni Alan Parrish znajduje pudełko, we wnętrzu którego ukryte jest 'Jumnaji'. Chłopiec opowiada o tajemniczym odkryciu swej jedynej przyjaciółce, Sarze Whittle. Podczas nieobecności opiekunów obydwoje rozpoczynają rozgrywkę. Wtedy dochodzi do nieprzewidzianych zdarzeń. Nagle w pokoju pojawiają się nietoperze, a Alan zostaje 'wchłonięty' przez grę i znika. Przerażona Sara ucieka. 26 lat później do tego samego domu wprowadza się rodzeństwo - Judy i Peter, którymi od śmierci rodziców zajmuje się ciotka, Nora. Od samego początku wokół dzieci zaczynają dziać się dziwne rzeczy. Wkrótce oni odnajdują 'Jumanji'. Gdy tylko rzucają kostką, w domu pojawiają się dzikie zwierzęta, a niebawem gracze przenoszą się do samego serca dżungli. Na swej drodze spotykają zaginionego przed laty Alana Parrisha. Wspólnie usiłują powrócić do rzeczywistego świata...   ... nietoperze, a Alan zostaje 'wchłonięty' przez grę i znika. Przerażona Sara ucieka. 26 lat później do tego samego domu wprowadza się rodzeństwo - Judy i Peter, którymi od śmierci rodziców zajmuje się ciotka, Nora. Od samego początku wokół dzieci zaczynają dziać się dziwne rzeczy. Wkrótce oni odnajdują 'Jumanji'. Gdy tylko rzucają kostką, w domu pojawiają się dzikie zwierzęta, a niebawem gracze przenoszą się do samego serca dżungli. Na swej drodze spotykają zaginionego przed laty Alana Parrisha. Wspólnie usiłują powrócić do rzeczywistego świata...
-    

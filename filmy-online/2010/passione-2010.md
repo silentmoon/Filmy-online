@@ -1,9 +1,5 @@
+Passione 2010 
+=============
+[![Passione 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/passione-2010)
 
-        Passione 2010 
-        =============
-        
-        [![Passione 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/passione-2010)
-        
-        
  „Neapol to miasto namalowane za pomocą dźwięków. A muzyka stanowi jeden z najważniejszych jego elementów” – mówi John Turturro, znany amerykański aktor i reżyser z włoskim rodowodem, jeden z ulubionych aktorów braci Coen. Odgrywa on w filmie rolę narratora, próbującego przedstawić widzom muzyczną duszę ukochanego miasta. Neapol to miasto z kontrastów, które przez kolejne stulecia przeżyło najazdy Arabów, Normanów i… amerykańskich turystów. Z każdej z tych kultur przyswoiło jakiś element i właśnie na tym podłożu wyrosła jedyna w swoim rodzaju muzyczna tradycja. Na wąskich uliczkach Neapolu można usłyszeć prawie wszystko: od melancholijnych, przypominających portugalskie fado pieśni miłosnych, poprzez kiczowate, ale pogodne kawałki rozrywkowe, utwory zaangażowane politycznie i społecznie, aż po reggae. 'Passione'  to mariaż klasycznego dokumentu i muzycznych impresji, które nadają filmowi niepowtarzalny czar i urok. W kolejnych scenach widzowie poznają przedstawicieli neapolitańskiej sceny muzycznej, którzy, wraz z reżyserem filmu – Johnem Turturro, odsłonią przed nimi inne oblicze Neapolu –jedynego w swoim rodzaju miasta tętniącego muzyką świata.   ... jakiś element i właśnie na tym podłożu wyrosła jedyna w swoim rodzaju muzyczna tradycja. Na wąskich uliczkach Neapolu można usłyszeć prawie wszystko: od melancholijnych, przypominających portugalskie fado pieśni miłosnych, poprzez kiczowate, ale pogodne kawałki rozrywkowe, utwory zaangażowane politycznie i społecznie, aż po reggae. 'Passione'  to mariaż klasycznego dokumentu i muzycznych impresji, które nadają filmowi niepowtarzalny czar i urok. W kolejnych scenach widzowie poznają przedstawicieli neapolitańskiej sceny muzycznej, którzy, wraz z reżyserem filmu – Johnem Turturro, odsłonią przed nimi inne oblicze Neapolu –jedynego w swoim rodzaju miasta tętniącego muzyką świata.
-    

@@ -1,9 +1,5 @@
+Dzielnica! / Nyócker! 2004 
+=============
+[![Dzielnica! / Nyócker! 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dzielnica-nyocker-2004)
 
-        Dzielnica! / Nyócker! 2004 
-        =============
-        
-        [![Dzielnica! / Nyócker! 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dzielnica-nyocker-2004)
-        
-        
  „Dzielnica!” to niekonwencjonalny film animowany. Z pewnością skierowany jest do widzów dorosłych, choćby ze względu na sprośny język i obfitą nagość (scen przemocy jest niewiele). Jest agresywny politycznie, zarówno pod kątem amerykańskiej polityki zagranicznej, jak i węgierskich polityków: zamazując im oczy, obsadza ich tym samym w roli kryminalistów. Reżyser nie boi się także „zaangażować” do filmu prezydenta Busha, Papieża, Vladimira Putina czy Osamy bin Ladena w małych, drugoplanowych rólkach. Skojarzenia z South Parkiem nasuwają się automatycznie, dawka bezlitosnej satyry i skandalu obyczajowego jest podobna. Dzielnica! zachowuje jednak przy tym typowo europejski punkt widzenia, przesycony lokalną kulturą i problematyką. Specyficzna atmosfera filmu dużo zawdzięcza również muzyce – węgierski hip-hop znakomicie koresponduje nie tylko z postaciami i wydarzeniami przedstawionymi w filmie, ale również z jego dynamiką i sposobem animacji.   ... Osamy bin Ladena w małych, drugoplanowych rólkach. Skojarzenia z South Parkiem nasuwają się automatycznie, dawka bezlitosnej satyry i skandalu obyczajowego jest podobna. Dzielnica! zachowuje jednak przy tym typowo europejski punkt widzenia, przesycony lokalną kulturą i problematyką. Specyficzna atmosfera filmu dużo zawdzięcza również muzyce – węgierski hip-hop znakomicie koresponduje nie tylko z postaciami i wydarzeniami przedstawionymi w filmie, ale również z jego dynamiką i sposobem animacji.
-    

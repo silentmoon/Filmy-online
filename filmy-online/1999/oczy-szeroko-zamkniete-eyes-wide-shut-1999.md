@@ -1,9 +1,5 @@
+Oczy szeroko zamknięte / Eyes Wide Shut 1999 
+=============
+[![Oczy szeroko zamknięte / Eyes Wide Shut 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/oczy-szeroko-zamkniete-eyes-wide-shut-1999)
 
-        Oczy szeroko zamknięte / Eyes Wide Shut 1999 
-        =============
-        
-        [![Oczy szeroko zamknięte / Eyes Wide Shut 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/oczy-szeroko-zamkniete-eyes-wide-shut-1999)
-        
-        
  Alice Harford (Nicole Kidman) i William Harford (Tom Cruise) są małżeństwem. William jest znanym lekarzem. Zajmuje się leczeniem bogaczy, dzięki czemu jest dość zamożny. Jego żona prowadzi galerię i udziela się towarzysko. Oboje należą do nowojorskiej śmietanki. Są atrakcyjni, czas upływa im na spotkaniach towarzyskich, w czasie których często otrzymują propozycje kontaktów pozamałżeńskich, z których nie korzystają. Ich życie zmienia się jednak podczas pewnego przyjęcia. Po balu lekko oszołomiona Alice wyznaje mężowi, że nie zawsze była mu wierna. Wkrótce William zostaje wezwany do pacjenta. To wezwanie staje się początkiem jego erotycznych wypraw, podczas których odkrywa własne obsesje seksualne. Przeżywa wzruszające chwile z prostytutką. Dzięki przyjacielowi trafia na bal maskowy, który przeradza się w szaloną orgię. Wszystko zaczyna przybierać niebezpieczne rozmiary. Scenariusz filmu oparto na motywach powieści Arthura Schnitzlera, pisarza zaprzyjaźnionego z Freudem.   ... balu lekko oszołomiona Alice wyznaje mężowi, że nie zawsze była mu wierna. Wkrótce William zostaje wezwany do pacjenta. To wezwanie staje się początkiem jego erotycznych wypraw, podczas których odkrywa własne obsesje seksualne. Przeżywa wzruszające chwile z prostytutką. Dzięki przyjacielowi trafia na bal maskowy, który przeradza się w szaloną orgię. Wszystko zaczyna przybierać niebezpieczne rozmiary. Scenariusz filmu oparto na motywach powieści Arthura Schnitzlera, pisarza zaprzyjaźnionego z Freudem.
-    

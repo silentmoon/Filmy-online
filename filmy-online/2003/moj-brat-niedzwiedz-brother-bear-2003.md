@@ -1,9 +1,5 @@
+Mój brat niedźwiedź / Brother Bear 2003 
+=============
+[![Mój brat niedźwiedź / Brother Bear 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/moj-brat-niedzwiedz-brother-bear-2003)
 
-        Mój brat niedźwiedź / Brother Bear 2003 
-        =============
-        
-        [![Mój brat niedźwiedź / Brother Bear 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/moj-brat-niedzwiedz-brother-bear-2003)
-        
-        
  Disney z dumą prezentuje animowany film MÓJ BRAT NIEDŹWIEDŹ, wspaniałą epicką przygodę, niosącą moc humoru, a zarazem wzruszeń, z pięcioma nowymi, cudownymi piosenkami autorstwa zdobywcy Oscara - Phila Collinsa. Jest to doskonała rozrywka, która zachwyci całą rodzinę. Niezwykle widowiskowy film, oparty na motywach starej indiańskiej legendy, opowiada historię zapalczywego chłopca o imieniu Kenai, który za sprawą magii zostaje przemieniony w niedźwiedzia. Musi teraz oglądać świat z zupełnie nowej perspektywy, pobierając tym samym jedyną w swoim rodzaju, niezwykle wartościową lekcję życia. Starając się znaleźć sposób, by powrócić do ludzkiej postaci i nie mogąc porozumieć się ze swoim starszym bratem, Kenai zaprzyjaźnia się z wesołym niedźwiadkiem grizzly - Kodą i razem ruszają w pełną niebezpieczeństw podróż. Pośród zapierającej dech, przepięknej scenerii poznają wiele dzikich zwierząt, w tym dwa zabawne łosie Rutta i Tuka, wełniste mamuty, niesforne barany i inne!  ... świat z zupełnie nowej perspektywy, pobierając tym samym jedyną w swoim rodzaju, niezwykle wartościową lekcję życia. Starając się znaleźć sposób, by powrócić do ludzkiej postaci i nie mogąc porozumieć się ze swoim starszym bratem, Kenai zaprzyjaźnia się z wesołym niedźwiadkiem grizzly - Kodą i razem ruszają w pełną niebezpieczeństw podróż. Pośród zapierającej dech, przepięknej scenerii poznają wiele dzikich zwierząt, w tym dwa zabawne łosie Rutta i Tuka, wełniste mamuty, niesforne barany i inne!
-    

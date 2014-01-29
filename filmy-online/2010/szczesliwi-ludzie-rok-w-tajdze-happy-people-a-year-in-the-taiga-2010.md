@@ -1,9 +1,5 @@
+Szczęśliwi ludzie: rok w tajdze / Happy People: A Year in the Taiga 2010 
+=============
+[![Szczęśliwi ludzie: rok w tajdze / Happy People: A Year in the Taiga 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szczesliwi-ludzie-rok-w-tajdze-happy-people-a-year-in-the-taiga-2010)
 
-        Szczęśliwi ludzie: rok w tajdze / Happy People: A Year in the Taiga 2010 
-        =============
-        
-        [![Szczęśliwi ludzie: rok w tajdze / Happy People: A Year in the Taiga 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szczesliwi-ludzie-rok-w-tajdze-happy-people-a-year-in-the-taiga-2010)
-        
-        
  W samym sercu syberyjskiej głuszy, z dala od cywilizacji, 300 osób zamieszkuje małą miejscowości Bakhtia nad rzeką Jenisej – tak Werner Herzog, współautor i narrator filmu 'Szczęśliwi ludzie: rok w tajdze', rozpoczyna niezwykłą opowieść. Razem z filmowcami, którzy tam dotarli, obserwujemy rok z życia myśliwych, wędkarzy i innych osób zamieszkujących wioskę. Codzienność w przykrytym śniegiem niedostępnym regionie świata.  Z pięknych kadrów filmu wyłania się obraz faktycznie szczęśliwych i spełnionych ludzi. Widać w nich także wielką miłość Dmitrija Wasiukowa, drugiego reżysera, do tajgi i jej mieszkańców. Malowniczym obrazom towarzyszy przepiękna, kontemplacyjna muzyka. Oni żyją z ziemi, są samowystarczalni i prawdziwie wolni. Nie ma podatków, nie ma rządu, nie ma prawa, nie ma biurokracji, nie ma telefonów, nie ma radia, mają za to własne wartości i normy postępowania. Jeśli cywilizacja ludzka zostałaby zniszczona, oni przetrwaliby dzięki wiedzy swoich przodków – twierdzi Herzog.   ... faktycznie szczęśliwych i spełnionych ludzi. Widać w nich także wielką miłość Dmitrija Wasiukowa, drugiego reżysera, do tajgi i jej mieszkańców. Malowniczym obrazom towarzyszy przepiękna, kontemplacyjna muzyka. Oni żyją z ziemi, są samowystarczalni i prawdziwie wolni. Nie ma podatków, nie ma rządu, nie ma prawa, nie ma biurokracji, nie ma telefonów, nie ma radia, mają za to własne wartości i normy postępowania. Jeśli cywilizacja ludzka zostałaby zniszczona, oni przetrwaliby dzięki wiedzy swoich przodków – twierdzi Herzog.
-    

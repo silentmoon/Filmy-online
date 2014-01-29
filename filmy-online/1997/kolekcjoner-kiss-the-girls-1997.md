@@ -1,9 +1,5 @@
+Kolekcjoner / Kiss the Girls 1997 
+=============
+[![Kolekcjoner / Kiss the Girls 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kolekcjoner-kiss-the-girls-1997)
 
-        Kolekcjoner / Kiss the Girls 1997 
-        =============
-        
-        [![Kolekcjoner / Kiss the Girls 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kolekcjoner-kiss-the-girls-1997)
-        
-        
  W miasteczku studenckim Uniwersytetu Północnej Kalifornii, znika w niewyjaśnionych okolicznościach siostrzenica Alexa. Nie czekając na działania miejscowej policji Alex samotnie podejmuje się wyjaśnienia tej sprawy. Traktowany jak intruz, brnie w śledztwie odkrywając coraz nowsze dowody, że zniknięcie siostrzenicy nie jest przypadkowe. Alex Cross szybko odkrywa, że z miasteczka znikneło już siedem innych dziewcząt, a ciała dwóch następnych niedawno odnaleziono. To daje mu pewność, że ma do czynienia z seryjnym mordercą, który przybiera imię Casanova. Alex samotnie drążący w śledztwie znajduje pomoc w niedoszłej ofierze Casanovy, Kate McTiernan. Od tej pory rozwiązanie zagadki jest dla obojga sprawą prywatną, ale droga do niej będzie niezwykle uciążliwa.   ... pewność, że ma do czynienia z seryjnym mordercą, który przybiera imię Casanova. Alex samotnie drążący w śledztwie znajduje pomoc w niedoszłej ofierze Casanovy, Kate McTiernan. Od tej pory rozwiązanie zagadki jest dla obojga sprawą prywatną, ale droga do niej będzie niezwykle uciążliwa.
-    

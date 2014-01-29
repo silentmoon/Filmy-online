@@ -1,9 +1,5 @@
+Zaczyna się od pocałunku / Just a Kiss 2002 
+=============
+[![Zaczyna się od pocałunku / Just a Kiss 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zaczyna-sie-od-pocalunku-just-a-kiss-2002)
 
-        Zaczyna się od pocałunku / Just a Kiss 2002 
-        =============
-        
-        [![Zaczyna się od pocałunku / Just a Kiss 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zaczyna-sie-od-pocalunku-just-a-kiss-2002)
-        
-        
  Zdradzać czy nie zdradzać? Oto jest pytanie, na które muszą odpowiedzieć Dag, reżyser reklam telewizyjnych i jego pragmatyczna dziewczyna Halley oraz Peter, gwiazda reklamy masła orzechowego i jego neurotyczna ukochana, Rebecca. Ulegając pokusie pocałowania flirtującej z nim Rebecci Dag nie zdaje sobie sprawy, że ta krótka chwila słabości wywoła lawinę trudnych do przewidzenia konsekwencji. Gdy jego niewinny skok w bok wychodzi na jaw, nic już nie może powstrzymać reakcji łańcuchowej kolejnych miłosnych przygód. Zranione ofiary niewierności Daga i Rebeki za wszelką cenę próbują się na nich odegrać. Peter umawia się ze stewardessą na podniebną randkę, a wściekła Halley ulega czarowi uwodzicielskiego skrzypka. Tymczasem Rebecca kolejny raz daje się ponieść emocjom, a playboy Dag pozwala zakuć się w kajdany zwolenniczce seksualnej dominacji. Na szczęście w odpowiedniej chwili wskazówki zegara zostaną cofnięte, a Dag i jego przyjaciele otrzymają rzadką szansę naprawienia swoich błędów.   ... łańcuchowej kolejnych miłosnych przygód. Zranione ofiary niewierności Daga i Rebeki za wszelką cenę próbują się na nich odegrać. Peter umawia się ze stewardessą na podniebną randkę, a wściekła Halley ulega czarowi uwodzicielskiego skrzypka. Tymczasem Rebecca kolejny raz daje się ponieść emocjom, a playboy Dag pozwala zakuć się w kajdany zwolenniczce seksualnej dominacji. Na szczęście w odpowiedniej chwili wskazówki zegara zostaną cofnięte, a Dag i jego przyjaciele otrzymają rzadką szansę naprawienia swoich błędów.
-    

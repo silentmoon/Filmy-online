@@ -1,9 +1,5 @@
+Jazda na krawędzi / TT3D: Closer to the Edge 2011 
+=============
+[![Jazda na krawędzi / TT3D: Closer to the Edge 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jazda-na-krawedzi-tt3d-closer-to-the-edge-2011)
 
-        Jazda na krawędzi / TT3D: Closer to the Edge 2011 
-        =============
-        
-        [![Jazda na krawędzi / TT3D: Closer to the Edge 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jazda-na-krawedzi-tt3d-closer-to-the-edge-2011)
-        
-        
  „Motocykle 3D: Jazda na krawędzi” - najlepiej sprzedająca się produkcja dokumentalna w historii brytyjskiej kinematografii. To opowieść o pasji, wolności wyboru i woli walki, której akcja rozgrywa się na brytyjskiej wyspie Man. Już od 1904 roku organizowane są tam uliczne wyścigi motocyklowe „Isle of Man TT Races” - zaliczane do jednych z najbardziej widowiskowych i niebezpiecznych imprez tego typu na świecie. Wyspa jest jedynym terytorium należącym do Wielkiej Brytanii, na którym nie obowiązuje ograniczenie prędkości. W filmie występuje jedna z najgłośniejszych postaci ostatnich lat, 29-letnia gwiazda, człowiek legenda wyścigów motocyklowych Guy Martin. Bohaterem filmu jest także Ian Hutchinson, który na motocyklu CBR600RR wygrał 5 kolejnych wyścigów na Isle of Man w 2010 roku. Dokonał tego jako pierwszy w historii wyścigów. Narratorem filmu jest JARED LETO, amerykański aktor znany z takich filmów jak „Cienka czerwona linia”, „Podziemny krąg”, „Requiem dla snu” czy „Mr Nobody”. Wokalista i gitarzysta zespołu „30 seconds to Mars”.   ... na którym nie obowiązuje ograniczenie prędkości. W filmie występuje jedna z najgłośniejszych postaci ostatnich lat, 29-letnia gwiazda, człowiek legenda wyścigów motocyklowych Guy Martin. Bohaterem filmu jest także Ian Hutchinson, który na motocyklu CBR600RR wygrał 5 kolejnych wyścigów na Isle of Man w 2010 roku. Dokonał tego jako pierwszy w historii wyścigów. Narratorem filmu jest JARED LETO, amerykański aktor znany z takich filmów jak „Cienka czerwona linia”, „Podziemny krąg”, „Requiem dla snu” czy „Mr Nobody”. Wokalista i gitarzysta zespołu „30 seconds to Mars”.
-    

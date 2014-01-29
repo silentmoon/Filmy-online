@@ -1,9 +1,5 @@
+Roman Barbarzyńca 3D / Ronal barbaren 2011 
+=============
+[![Roman Barbarzyńca 3D / Ronal barbaren 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/roman-barbarzynca-3d-ronal-barbaren-2011)
 
-        Roman Barbarzyńca 3D / Ronal barbaren 2011 
-        =============
-        
-        [![Roman Barbarzyńca 3D / Ronal barbaren 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/roman-barbarzynca-3d-ronal-barbaren-2011)
-        
-        
  Plemię kulturystycznych Barbarzyńców cieszy się w krainie Wszechściemia sławą niepokonanych wojowników. Jednak pewnego dnia, wskutek zdradzieckiej intrygi, prawie wszyscy bitni pakerzy trafiają do niewoli okrutnego księcia Zamordora, chorobliwie napalonego na władzę nad światem. Prawie czyni wielką różnicę. Obdarzony wąskimi barami i szerokim uśmiechem Roman (Maciej Stuhr), wieczny przedmiot kpin współplemieńców, pozostał na wolności i musi zebrać w sobie nadludzką odwagę, aby ruszyć z odsieczą uwięzionym barbarzyńcom. W pełnej przygód i humoru wyprawie herosowi z przypadku towarzyszyć będą Wrzaskier (Czesław Mozil) - bard zdolny do wszystkiego (poza śpiewaniem), Ksenia (Anna Mucha) - dziewica-wojowniczka, która świetnie radzi sobie z każdym orężem oraz wiedziony proroczymi wizjami elf-niedorajda Lameras. Drużyna Śmieszenia stawi czoło grającemu o tron Wszechściemia Zamordorowi i jego wiernemu słudze - generałowi Szauronowi.  ... aby ruszyć z odsieczą uwięzionym barbarzyńcom. W pełnej przygód i humoru wyprawie herosowi z przypadku towarzyszyć będą Wrzaskier (Czesław Mozil) - bard zdolny do wszystkiego (poza śpiewaniem), Ksenia (Anna Mucha) - dziewica-wojowniczka, która świetnie radzi sobie z każdym orężem oraz wiedziony proroczymi wizjami elf-niedorajda Lameras. Drużyna Śmieszenia stawi czoło grającemu o tron Wszechściemia Zamordorowi i jego wiernemu słudze - generałowi Szauronowi.
-    

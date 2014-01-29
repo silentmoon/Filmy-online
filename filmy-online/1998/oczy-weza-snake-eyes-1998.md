@@ -1,9 +1,5 @@
+Oczy węża / Snake Eyes 1998 
+=============
+[![Oczy węża / Snake Eyes 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/oczy-weza-snake-eyes-1998)
 
-        Oczy węża / Snake Eyes 1998 
-        =============
-        
-        [![Oczy węża / Snake Eyes 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/oczy-weza-snake-eyes-1998)
-        
-        
  Rick Santoro (Nicolas Cage), nie całkiem uczciwy detektyw z wydziału zabójstw policji w Atlantic City, wybiera się jako widz na walkę bokserską o tytuł mistrza wagi ciężkiej, która ma się odbyć w hali sportowej Atlantic City Arena. Jest bardzo ciekawy jej przebiegu, gdyż jednym z bokserów jest Lincoln Tyler (Stan Shaw), niegdyś szkolny kolega Ricka. Wśród widzów jest paru VIP-ów, m.in. sekretarz obrony USA w asyście swoich ochroniarzy, którymi kieruje komandor marynarki Kevin Dunne (Gary Sinise), prywatnie przyjaciel Santoro. Kiedy Tyler pada na ringu, nieoczekiwanie rozlega się kilka strzałów, od których ginie sekretarz obrony. Aby chronić Kevina, nieobecnego w tym dramatycznym momencie na sali, Rick przejmuje śledztwo. Wraz z Kevinem rozpoczynają poszukiwania tajemniczej młodej kobiety, która była przy sekretarzu w momencie zamachu i przekazywała mu jakieś dokumenty. Rick dowiaduje się od Tylera, że bokserowi sowicie zapłacono, aby w odpowiednim momencie padł na matę. Lincoln uświadamia mu jednocześnie, że był tylko pionkiem w starannie przygotowanym spisku, którego organizatorzy nie cofną się przed niczym, aby zatrzeć ślady swojej zbrodni.  ... Dunne (Gary Sinise), prywatnie przyjaciel Santoro. Kiedy Tyler pada na ringu, nieoczekiwanie rozlega się kilka strzałów, od których ginie sekretarz obrony. Aby chronić Kevina, nieobecnego w tym dramatycznym momencie na sali, Rick przejmuje śledztwo. Wraz z Kevinem rozpoczynają poszukiwania tajemniczej młodej kobiety, która była przy sekretarzu w momencie zamachu i przekazywała mu jakieś dokumenty. Rick dowiaduje się od Tylera, że bokserowi sowicie zapłacono, aby w odpowiednim momencie padł na matę. Lincoln uświadamia mu jednocześnie, że był tylko pionkiem w starannie przygotowanym spisku, którego organizatorzy nie cofną się przed niczym, aby zatrzeć ślady swojej zbrodni.
-    

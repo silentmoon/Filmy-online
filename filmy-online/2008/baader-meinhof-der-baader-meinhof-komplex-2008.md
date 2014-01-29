@@ -1,9 +1,5 @@
+Baader-Meinhof / Der Baader Meinhof Komplex 2008 
+=============
+[![Baader-Meinhof / Der Baader Meinhof Komplex 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/baader-meinhof-der-baader-meinhof-komplex-2008)
 
-        Baader-Meinhof / Der Baader Meinhof Komplex 2008 
-        =============
-        
-        [![Baader-Meinhof / Der Baader Meinhof Komplex 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/baader-meinhof-der-baader-meinhof-komplex-2008)
-        
-        
  Niemcy, lata 70. Dzieci pokolenia nazistów pod przywództwem Andreasa Baadera (Moritz Bleibtreu), byłej dziennikarki Ulrike Meinhof (Martina Gedeck) oraz Gudrun Ensslin (Johanna Wokalek) walczą przeciwko sprawie, która zdaje się dla nich być nową twarzą faszyzmu: polityce USA w Wietnamie, na Bliskim Wschodzie oraz w krajach Trzeciego Świata, wspieranej przez główne postacie z niemieckiej polityki, wymiaru sprawiedliwości i przemysłu. Założona przez Baadera, Meinhof i Ensslinin Frakcja Czerwonej Armii wypowiada wojnę Republice Federalnej Niemiec. Są zabici, są ranni, sytuacja eskaluje, podstawy młodej jeszcze demokracji zostają wstrząśnięte. Człowiek, który co prawda nie toleruje czynów terrorystów, ale mimo to próbuje je zrozumieć to tropiący ich naczelnik urzędu kryminalnego Horst Herold (Bruno Ganz). Mimo sukcesów w ściganiu terrorystów jest świadomy, ze sama tylko policja nie jest w stanie powstrzymać spirali przemocy.   ... in Frakcja Czerwonej Armii wypowiada wojnę Republice Federalnej Niemiec. Są zabici, są ranni, sytuacja eskaluje, podstawy młodej jeszcze demokracji zostają wstrząśnięte. Człowiek, który co prawda nie toleruje czynów terrorystów, ale mimo to próbuje je zrozumieć to tropiący ich naczelnik urzędu kryminalnego Horst Herold (Bruno Ganz). Mimo sukcesów w ściganiu terrorystów jest świadomy, ze sama tylko policja nie jest w stanie powstrzymać spirali przemocy.
-    

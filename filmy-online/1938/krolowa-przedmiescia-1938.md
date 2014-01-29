@@ -1,9 +1,5 @@
+Królowa przedmieścia 1938 
+=============
+[![Królowa przedmieścia 1938 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolowa-przedmiescia-1938)
 
-        Królowa przedmieścia 1938 
-        =============
-        
-        [![Królowa przedmieścia 1938 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolowa-przedmiescia-1938)
-        
-        
  Mania jest nieślubnym dzieckiem dziewczyny z przedmieścia Krakowa i adwokata. Ulegając woli rodziny porzuca on dziewczynę, zostawiając dużą 'rekompensatę' pieniężną. Dziewczyna umiera, zostawia jednak przed śmiercią niejakiemu panu Majcherkowi list i dokument, świadczący o tym, że Mania po osiągnięciu pełnoletności będzie mogła otrzymać pieniądze. Nieuczciwy Majcherek (znając treść listu) musi więc czekać 20 lat, aby móc ubiegać się o rękę Mani i tym samym wejść w posiadanie jej majątku. Niczego nieświadoma Mania mieszka na przedmieściu z Maciejową (która ją w dzieciństwie przygarnęła) sądząc, że jest jej córką. Kiedy Majcherek zaczyna adorować Manię okazuje się, że ma już dwóch rywali - chłopców z sąsiedztwa. Wtedy też pojawia się ten czwarty - przystojny Zygmunt. Mania traci dla Zygmunta głowę. Nie wie, że jest on w istocie wychowankiem jej prawdziwego ojca...   ... jej majątku. Niczego nieświadoma Mania mieszka na przedmieściu z Maciejową (która ją w dzieciństwie przygarnęła) sądząc, że jest jej córką. Kiedy Majcherek zaczyna adorować Manię okazuje się, że ma już dwóch rywali - chłopców z sąsiedztwa. Wtedy też pojawia się ten czwarty - przystojny Zygmunt. Mania traci dla Zygmunta głowę. Nie wie, że jest on w istocie wychowankiem jej prawdziwego ojca...
-    

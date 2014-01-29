@@ -1,9 +1,5 @@
+Dom snów / Dream House 2011 
+=============
+[![Dom snów / Dream House 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dom-snow-dream-house-2011)
 
-        Dom snów / Dream House 2011 
-        =============
-        
-        [![Dom snów / Dream House 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dom-snow-dream-house-2011)
-        
-        
  Mający na koncie szereg sukcesów wydawniczych Will Attenton (Daniel Craig) wyprowadza się ze swoją rodziną z Nowego Jorku i zamieszkuje w malowniczym domu w Nowej Anglii. Gdy wraz z żoną Libby (nagrodzona Oscarem za rolę w 'Wiernym ogrodniku' Rachel Weisz) oraz dwiema córkami zaczyna się już przyzwyczajać do nowego lokum, dowiadują się, że zamordowano w nim poprzednią mieszkankę oraz jej dzieci. Podejrzewany o zbrodnię mąż i ojciec zabitych nadal żyje, a Willa oraz zaprzyjaźnioną z ofiarami sąsiadkę (Naomi Watts – 'Mulholland Drive', 'The Ring 1-2', nominacja do Oscara za '21 gramów') prześladuje przeczucie, że nie wszystkie poszlaki zostały odpowiednio zbadane. Próbując dopasować do siebie poszczególne elementy krwawej układanki, Will odkryje, że historia poprzedniego lokatora jego domu jest równie przerażająca, jak to, co może spotkać kolejną rodzinę, która znalazła w nim schronienie... Znakomity, porównywany już z 'Szóstym zmysłem', thriller Jima Sheridana, wielokrotnie nominowanego do Oscara twórcy 'Mojej lewej stopy' i 'W imię ojca'.  ... zaprzyjaźnioną z ofiarami sąsiadkę (Naomi Watts – 'Mulholland Drive', 'The Ring 1-2', nominacja do Oscara za '21 gramów') prześladuje przeczucie, że nie wszystkie poszlaki zostały odpowiednio zbadane. Próbując dopasować do siebie poszczególne elementy krwawej układanki, Will odkryje, że historia poprzedniego lokatora jego domu jest równie przerażająca, jak to, co może spotkać kolejną rodzinę, która znalazła w nim schronienie... Znakomity, porównywany już z 'Szóstym zmysłem', thriller Jima Sheridana, wielokrotnie nominowanego do Oscara twórcy 'Mojej lewej stopy' i 'W imię ojca'.
-    

@@ -1,9 +1,5 @@
+Oszukać przeznaczenie / Final Destination 2000 
+=============
+[![Oszukać przeznaczenie / Final Destination 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/oszukac-przeznaczenie-final-destination-2000)
 
-        Oszukać przeznaczenie / Final Destination 2000 
-        =============
-        
-        [![Oszukać przeznaczenie / Final Destination 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/oszukac-przeznaczenie-final-destination-2000)
-        
-        
  Mieliście kiedyś przeczucie, które się sprawdziło? Wybierający się na wycieczkę szkolną Alex miał. Tuż przed odlotem jego samolotu do Paryża Alex (Devon Sawa) widzi oczami duszy, jak maszyna wybucha niedługo po starcie. Przerażony chłopak z marnym skutkiem próbuje ostrzec pasażerów przed grożącym im niebezpieczeństwem. Za wywołane zamieszanie zostaje wraz z kilkorgiem kolegów usunięty z samolotu - na szczęście, gdyż dzięki temu unikają oni śmierci. Szczęście z ocalenia życia nie trwa jednak długo. Bo czy rzeczywiście można uciec od swojego losu? Kiedy niedoszłe ofiary powietrznej katastrofy zaczynają ginąć w nieszczęśliwych wypadkach, wszystko wskazuje na to, że śmierć była im pisana i nie da się oszukać przeznaczenia...   ... nie trwa jednak długo. Bo czy rzeczywiście można uciec od swojego losu? Kiedy niedoszłe ofiary powietrznej katastrofy zaczynają ginąć w nieszczęśliwych wypadkach, wszystko wskazuje na to, że śmierć była im pisana i nie da się oszukać przeznaczenia...
-    

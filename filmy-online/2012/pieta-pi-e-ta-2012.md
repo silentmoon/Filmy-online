@@ -1,9 +1,5 @@
+Pieta / Pi-e-ta 2012 
+=============
+[![Pieta / Pi-e-ta 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pieta-pi-e-ta-2012)
 
-        Pieta / Pi-e-ta 2012 
-        =============
-        
-        [![Pieta / Pi-e-ta 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pieta-pi-e-ta-2012)
-        
-        
  Gang-do (Jeong-jin Lee) trudni się ściąganiem długów od tych, którzy mieli nieszczęście pożyczyć pieniądze od gangsterów. Idealnie nadaje się do tego zadania. Kompletnie pozbawiony skrupułów, głuchy na jakiekolwiek prośby, z zimną krwią okalecza dłużników, aby mogli uzyskać odszkodowanie i spłacić swoje zaległości wraz z wysokimi odsetkami. Z wyjątkową perfidią obmyśla coraz to nowe tortury. Pewnego dnia w jego domu pojawia się tajemnicza kobieta, Mi-son (Min-soo Joo). Twierdzi, że jest matką, która porzuciła go po urodzeniu. Gang-do reaguje agresją, odrzuca Mi-son, ale pokora kobiety i jej cicha obecność stopniowo przełamują jego niechęć. W Gang-do budzą się ludzkie odruchy. Zaczyna doświadczać uczuć, których dotąd nie znał. Postanawia porzucić dotychczasowe życie i stać się lepszym człowiekiem. Wtedy jednak Mi-son zostaje porwana. Gang-do musi wytropić sprawcę, robiąc przegląd wszystkich swoich ofiar. Przy okazji odkrywa mroczną tajemnicę Mi-son…  ... Twierdzi, że jest matką, która porzuciła go po urodzeniu. Gang-do reaguje agresją, odrzuca Mi-son, ale pokora kobiety i jej cicha obecność stopniowo przełamują jego niechęć. W Gang-do budzą się ludzkie odruchy. Zaczyna doświadczać uczuć, których dotąd nie znał. Postanawia porzucić dotychczasowe życie i stać się lepszym człowiekiem. Wtedy jednak Mi-son zostaje porwana. Gang-do musi wytropić sprawcę, robiąc przegląd wszystkich swoich ofiar. Przy okazji odkrywa mroczną tajemnicę Mi-son…
-    

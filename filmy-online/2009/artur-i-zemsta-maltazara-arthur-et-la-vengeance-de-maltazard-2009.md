@@ -1,9 +1,5 @@
+Artur i zemsta Maltazara / Arthur et la vengeance de Maltazard 2009 
+=============
+[![Artur i zemsta Maltazara / Arthur et la vengeance de Maltazard 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/artur-i-zemsta-maltazara-arthur-et-la-vengeance-de-maltazard-2009)
 
-        Artur i zemsta Maltazara / Arthur et la vengeance de Maltazard 2009 
-        =============
-        
-        [![Artur i zemsta Maltazara / Arthur et la vengeance de Maltazard 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/artur-i-zemsta-maltazara-arthur-et-la-vengeance-de-maltazard-2009)
-        
-        
  Kontynuacja wspaniałego filmu „Artur i Minimki”. Fantastyczna animacja w reżyserii kultowego reżysera Luca Bessona („Angel-A”, „Piąty element”, „Leon zawodowiec”). Budżet filmu wyniósł 65 milionów Euro! Zbliża się koniec dziesiątej fazy księżyca i Artur przygotowuje się do ponownych odwiedzin krainy Minimków, w tym swojej ukochanej Selenii. Nagle mały pająk podrzuca do ręki chłopca ziarenko ryżu z napisem S.O.S. Nie ma wątpliwości – najwyższy czas udać się Minimkom na pomoc! Artur wyrusza w podróż do mikroskopijnego świata, ucieka przed wartownikami, stacza pojedynek za pojedynkiem z groźnymi szczurami, żabami i kosmatymi pająkami. Kiedy przybywa do wioski Minimków, okazuje się, że nikt z nich nie wzywał pomocy. Czyżby ktoś zastawił pułapkę na małego bohatera? Niezwykle fantazyjny i bogaty świat Minimków zyskał jeszcze bardziej na wizualnej atrakcyjności, dzięki nowym technologiom i poświęceniu ekipy pracującej przy filmie. Mnóstwo nowych postaci i zakręconych bohaterów oraz bardzo dynamiczny ciąg wydarzeń zapewnią świetną zabawę całej rodzinie!  ... Artur wyrusza w podróż do mikroskopijnego świata, ucieka przed wartownikami, stacza pojedynek za pojedynkiem z groźnymi szczurami, żabami i kosmatymi pająkami. Kiedy przybywa do wioski Minimków, okazuje się, że nikt z nich nie wzywał pomocy. Czyżby ktoś zastawił pułapkę na małego bohatera? Niezwykle fantazyjny i bogaty świat Minimków zyskał jeszcze bardziej na wizualnej atrakcyjności, dzięki nowym technologiom i poświęceniu ekipy pracującej przy filmie. Mnóstwo nowych postaci i zakręconych bohaterów oraz bardzo dynamiczny ciąg wydarzeń zapewnią świetną zabawę całej rodzinie!
-    

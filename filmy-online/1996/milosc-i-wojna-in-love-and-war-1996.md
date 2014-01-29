@@ -1,9 +1,5 @@
+Miłość i wojna / In Love and War 1996 
+=============
+[![Miłość i wojna / In Love and War 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/milosc-i-wojna-in-love-and-war-1996)
 
-        Miłość i wojna / In Love and War 1996 
-        =============
-        
-        [![Miłość i wojna / In Love and War 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/milosc-i-wojna-in-love-and-war-1996)
-        
-        
  Północne Włochy, lato 1918 roku. Ostatnia faza pierwszej wojny światowej. Młody korespondent wojenny Ernest Hemingway pracuje jako kierowca ambulansu. W końcu, zgodnie ze swymi pragnieniami, wysłany zostaje na front. Doprowadzając rannego żołnierza do punktu pomocy medycznej sam zostaje postrzelony. Traci przytomność. Kiedy ją odzyskuje, jest już w szpitalu polowym. Czuwa nad nim piękna pielęgniarka, Agnes von Kurovsky, która przekonuje lekarza, że amputacja nogi chorego pacjenta nie jest konieczna. Hemingway powoli powraca do zdrowia i zakochuje się w Agnes. Ona nie od razu odwzajemnia jego uczucie. Starsza o osiem lat uznaje Hemingwaya za porywczego i natarczywego chłopca. W głębi duszy czuje jednak, że jest w nim zakochana. O względy Agnes ubiega się także pracujący w tym samym szpitalu włoski chirurg Caracciolo. Będący jeszcze nie w pełni sił Ernest pozostać musi w łóżku, podczas gdy jego ukochana wysłana zostaje do innego, znajdującego się bliżej linii frontu szpitala. Wojna dobiega końca, Hemingway zdaje sobie sprawę z tego, iż niedługo będzie musiał powrócić do ojczyzny. Postanawia najpierw odnaleźć Agnes i pożegnać się z nią. Dziewczyna przyznaje się wreszcie do uczuć, jakie żywi dla młodego pisarza.  ... pacjenta nie jest konieczna. Hemingway powoli powraca do zdrowia i zakochuje się w Agnes. Ona nie od razu odwzajemnia jego uczucie. Starsza o osiem lat uznaje Hemingwaya za porywczego i natarczywego chłopca. W głębi duszy czuje jednak, że jest w nim zakochana. O względy Agnes ubiega się także pracujący w tym samym szpitalu włoski chirurg Caracciolo. Będący jeszcze nie w pełni sił Ernest pozostać musi w łóżku, podczas gdy jego ukochana wysłana zostaje do innego, znajdującego się bliżej linii frontu szpitala. Wojna dobiega końca, Hemingway zdaje sobie sprawę z tego, iż niedługo będzie musiał powrócić do ojczyzny. Postanawia najpierw odnaleźć Agnes i pożegnać się z nią. Dziewczyna przyznaje się wreszcie do uczuć, jakie żywi dla młodego pisarza.
-    

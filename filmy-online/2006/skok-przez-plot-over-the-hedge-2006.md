@@ -1,9 +1,5 @@
+Skok przez płot / Over the Hedge 2006 
+=============
+[![Skok przez płot / Over the Hedge 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/skok-przez-plot-over-the-hedge-2006)
 
-        Skok przez płot / Over the Hedge 2006 
-        =============
-        
-        [![Skok przez płot / Over the Hedge 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/skok-przez-plot-over-the-hedge-2006)
-        
-        
  Przyszła wiosna. Verne i jego leśni przyjaciele obudzili się po długiej, zimowej drzemce i jakież było ich zaskoczenie, kiedy odkryli, że w samym środku ich kiedyś naturalnego środowiska wyrósł wysoki, zielony żywopłot, a w ich życiu pojawił się RJ, wygadany szop pracz, który twierdzi, że świat za żywopłotem zamieszkiwany przez dziwaczne istoty zwane ludźmi, które zamiast jeść, aby żyć, żyją po to, żeby jeść, jest 'przepustką do lepszego życia'. Zgodnie z powiedzeniem, że śmieci jednego człowieka są skarbem drugiego - w tym przypadku zwierzęcia - manipulujący otoczeniem, RJ posiada własne powody, aby przekonać przyjaciół z lasu, że nie mają się czego obawiać i mogą skorzystać na obecności nowych, pobłażliwych sąsiadów. Ostatecznie, RJ i Verne wraz z futrzanymi towarzyszami uczą się wykorzystywać ten dziwny, nowy świat zwanym przedmieściem i żyć w jego sąsiedztwie. [opis dystrybutora]  ... śmieci jednego człowieka są skarbem drugiego - w tym przypadku zwierzęcia - manipulujący otoczeniem, RJ posiada własne powody, aby przekonać przyjaciół z lasu, że nie mają się czego obawiać i mogą skorzystać na obecności nowych, pobłażliwych sąsiadów. Ostatecznie, RJ i Verne wraz z futrzanymi towarzyszami uczą się wykorzystywać ten dziwny, nowy świat zwanym przedmieściem i żyć w jego sąsiedztwie. [opis dystrybutora]
-    

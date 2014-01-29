@@ -1,9 +1,5 @@
+Instynkt / Instinct 1999 
+=============
+[![Instynkt / Instinct 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/instynkt-instinct-1999)
 
-        Instynkt / Instinct 1999 
-        =============
-        
-        [![Instynkt / Instinct 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/instynkt-instinct-1999)
-        
-        
  Grupa strażników przyrody odnajduje cenionego antropologa Ethana Powella, który zaginął cztery lata wcześniej w niedostępnej dżungli w Rwandzie, gdzie badał życie ginących goryli górskich. Stopniowo zwierzęta zaakceptowały jego obecność i przyjęły go do swego stada. Widząc Powella wśród goryli, strażnicy przekonani są, że grozi mu śmiertelne niebezpieczeństwo i niewiele myśląc otwierają ogień do bezbronnych zwierząt. W ataku szału Powell zabija dwóch z nich, zostaje aresztowany i deportowany z Rwandy... Po przylocie do Stanów Zjednoczonych Powell osadzony zostaje w więzieniu o zaostrzonym rygorze na Florydzie. Skuty kajdanami, oszołomiony środkami uspokajającymi zamyka się w całkowitym milczeniu. Zanim stanie przed sądem, musi zostać poddany obserwacji psychiatrycznej. Wysoko ceniony biegły Ben Hillard powierza to zadanie swemu młodemu protegowanemu Theo Caulderowi. Ambitny, marzący o karierze Theo szybko zdaje sobie sprawę, że przypadek Powella może zaowocować książką, która przyniesie mu światowy rozgłos. Bezradny wobec milczenia Powella, zwraca się o pomoc do jego córki, Lyn, z nadzieją, że pomoże mu ona zrozumieć motywy działania ojca. Stopniowo także zdobywa zaufanie samego Powella i udaje mu się przełamać jego milczenie. Nie przypuszcza nawet, że prawdy, które pozna, zmienią całe jego życie...   ... aresztowany i deportowany z Rwandy... Po przylocie do Stanów Zjednoczonych Powell osadzony zostaje w więzieniu o zaostrzonym rygorze na Florydzie. Skuty kajdanami, oszołomiony środkami uspokajającymi zamyka się w całkowitym milczeniu. Zanim stanie przed sądem, musi zostać poddany obserwacji psychiatrycznej. Wysoko ceniony biegły Ben Hillard powierza to zadanie swemu młodemu protegowanemu Theo Caulderowi. Ambitny, marzący o karierze Theo szybko zdaje sobie sprawę, że przypadek Powella może zaowocować książką, która przyniesie mu światowy rozgłos. Bezradny wobec milczenia Powella, zwraca się o pomoc do jego córki, Lyn, z nadzieją, że pomoże mu ona zrozumieć motywy działania ojca. Stopniowo także zdobywa zaufanie samego Powella i udaje mu się przełamać jego milczenie. Nie przypuszcza nawet, że prawdy, które pozna, zmienią całe jego życie...
-    

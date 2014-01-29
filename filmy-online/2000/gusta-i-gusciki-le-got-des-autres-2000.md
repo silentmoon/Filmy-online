@@ -1,9 +1,5 @@
+Gusta i guściki / Le goût des autres 2000 
+=============
+[![Gusta i guściki / Le goût des autres 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gusta-i-gusciki-le-got-des-autres-2000)
 
-        Gusta i guściki / Le goût des autres 2000 
-        =============
-        
-        [![Gusta i guściki / Le goût des autres 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gusta-i-gusciki-le-got-des-autres-2000)
-        
-        
  To historia pewnego przedsiębiorcy, który zakochuje się w aktorce, która przyjaźni się z kelnerką, która zakochuje się z ochroniarzu, który pracuje z kierowcą, który wozi dekoratorkę wnętrz, która jest żoną owego przedsiębiorcy... Lista powiązań między tymi postaciami jest dużo dłuższa i skomplikowana. Przy czym każda z osób pochodzi z zupełnie innego świata i, zdawałoby się, zupełnie do siebie nie pasują. Przedsiębiorca jest, powiedzmy sobie szczerze, burakiem, wraz z rozwojem akcji odkrywającym nieznane sobie dotąd światy. Zagrożona bezrobociem aktorka na równi przeżywa swe artystyczne wzloty i upadki, co 40. rok życia i rozpaczliwą tęsknotę za macierzyństwem. Kelnerka 'romansuje jak facet' i handluje na lewo marihuaną. Ochroniarz jest byłym policjantem, służbistą i legalistą. Kierowca jest łagodnym idiotą. Dekoratorka wnętrz pozbawioną gustu i znacznie mniej łagodną idiotką (oho, kolejny film z blondynką, co wszędzie pokazuje się z pieskiem!). Poza układami zawodowymi (pracodawca-pracownik) i przypadkową jednością miejsca i czasu (knajpa kelnerki jest tuż obok teatru aktorki) nie powinno ich nic łączyć. A jednak...   ... rozwojem akcji odkrywającym nieznane sobie dotąd światy. Zagrożona bezrobociem aktorka na równi przeżywa swe artystyczne wzloty i upadki, co 40. rok życia i rozpaczliwą tęsknotę za macierzyństwem. Kelnerka 'romansuje jak facet' i handluje na lewo marihuaną. Ochroniarz jest byłym policjantem, służbistą i legalistą. Kierowca jest łagodnym idiotą. Dekoratorka wnętrz pozbawioną gustu i znacznie mniej łagodną idiotką (oho, kolejny film z blondynką, co wszędzie pokazuje się z pieskiem!). Poza układami zawodowymi (pracodawca-pracownik) i przypadkową jednością miejsca i czasu (knajpa kelnerki jest tuż obok teatru aktorki) nie powinno ich nic łączyć. A jednak...
-    

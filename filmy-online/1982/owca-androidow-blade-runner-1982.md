@@ -1,9 +1,5 @@
+Łowca androidów / Blade Runner 1982 
+=============
+[![Łowca androidów / Blade Runner 1982 ](http://vidos.pl/images/player.gif)](http://vidos.pl/owca-androidow-blade-runner-1982)
 
-        Łowca androidów / Blade Runner 1982 
-        =============
-        
-        [![Łowca androidów / Blade Runner 1982 ](http://vidos.pl/images/player.gif)](http://vidos.pl/owca-androidow-blade-runner-1982)
-        
-        
  Film 'Łowca androidów' opowiada historię Ricka Deckarda - jednego z Łowców Androidów. Replikanci, bo tak nazwano tych androidów, byli używani do niebezpiecznych badań i kolonizacji innych planet. Po krwawym buncie zespołu androidów na pozaziemskiej kolonii, Replikanci nie mogli przebywać legalnie na Ziemi. Byli oni owładnięci panicznym strachem przed nieuchronną śmiercią i za wszelką cenę starają się dotrzeć do ich konstruktorów - jedynych ludzi mogących przedłużyć ich życie. Replikanci zostali bowiem zabezpieczeni przed długotrwałym życiem ze względu na rozwijające się w nich uczucia. Specjalny oddział policji - tytułowi 'Łowcy Androidów' - są detektywami, którzy mają za zadanie odnaleźć i wyeliminować zbiegłych androidów. Akcja rozgrywa się w Los Angeles w 2019 roku, gdy jeden z najlepszych Łowców zostaje ranny podczas wykonywania testu Voigta-Kampffa na jednym z androidów i właśnie Deckard przejmuje jego zadanie - wyeliminowanie zbiegłych androidów typu Nexus-6.   ... życie. Replikanci zostali bowiem zabezpieczeni przed długotrwałym życiem ze względu na rozwijające się w nich uczucia. Specjalny oddział policji - tytułowi 'Łowcy Androidów' - są detektywami, którzy mają za zadanie odnaleźć i wyeliminować zbiegłych androidów. Akcja rozgrywa się w Los Angeles w 2019 roku, gdy jeden z najlepszych Łowców zostaje ranny podczas wykonywania testu Voigta-Kampffa na jednym z androidów i właśnie Deckard przejmuje jego zadanie - wyeliminowanie zbiegłych androidów typu Nexus-6.
-    

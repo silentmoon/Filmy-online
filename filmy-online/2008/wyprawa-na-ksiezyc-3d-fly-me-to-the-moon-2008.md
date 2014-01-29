@@ -1,9 +1,5 @@
+Wyprawa na Księżyc 3D / Fly Me to the Moon 2008 
+=============
+[![Wyprawa na Księżyc 3D / Fly Me to the Moon 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wyprawa-na-ksiezyc-3d-fly-me-to-the-moon-2008)
 
-        Wyprawa na Księżyc 3D / Fly Me to the Moon 2008 
-        =============
-        
-        [![Wyprawa na Księżyc 3D / Fly Me to the Moon 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wyprawa-na-ksiezyc-3d-fly-me-to-the-moon-2008)
-        
-        
  W roku 1969 misja kosmiczna Apollo 11 wyruszyła na Księżyc, niosąc na pokładzie statku najdzielniejszą z dzielnych załóg. Trzech zuchów, których jedynym marzeniem było postawienie stopy na Srebrnym Globie, zaryzykowało własne życie, aby sięgnąć tam, gdzie nie sięgnęła dotąd żadna... mucha! Nat, Klucha i Iloraz marzą nie tylko o lataniu, ale także o podboju kosmosu. Maluchy z uwagą śledzą więc poczynania kosmonautów Neila Armstronga i Buzza Aldrina przygotowującej się do wyprawy na Księżyc. Pewnego dnia rodzice rozbrykanych urwisów orientują się, że ich pociech nie ma w domu. Mogą być jedynie na przylądku Canaveral, skąd startują amerykańskie rakiety kosmiczne. Rozpocznie się emocjonująca podróż w kosmos, która dla małych członków załogi okaże się nie tylko czystą rozrywką. Muszki będą bowiem bardzo pomocne, kiedy pojawią się problemy. Naprawią skomplikowany sprzęt, kiedy ludzie nie będą w stanie tego zrobić oraz stawią czoła intruzom, kiedy w ślad za nimi ruszą zazdrosne o sukces zagraniczne muchy…   ... wyprawy na Księżyc. Pewnego dnia rodzice rozbrykanych urwisów orientują się, że ich pociech nie ma w domu. Mogą być jedynie na przylądku Canaveral, skąd startują amerykańskie rakiety kosmiczne. Rozpocznie się emocjonująca podróż w kosmos, która dla małych członków załogi okaże się nie tylko czystą rozrywką. Muszki będą bowiem bardzo pomocne, kiedy pojawią się problemy. Naprawią skomplikowany sprzęt, kiedy ludzie nie będą w stanie tego zrobić oraz stawią czoła intruzom, kiedy w ślad za nimi ruszą zazdrosne o sukces zagraniczne muchy…
-    

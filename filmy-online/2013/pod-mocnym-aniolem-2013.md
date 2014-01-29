@@ -1,9 +1,5 @@
+Pod Mocnym Aniołem 2013 
+=============
+[![Pod Mocnym Aniołem 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pod-mocnym-aniolem-2013)
 
-        Pod Mocnym Aniołem 2013 
-        =============
-        
-        [![Pod Mocnym Aniołem 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pod-mocnym-aniolem-2013)
-        
-        
  Jerzy (Robert Więckiewicz) jest pisarzem i alkoholikiem. Poznajemy go w momencie, w którym uwierzył, że może wygrać z nałogiem. Zakochuje się w młodej dziewczynie (Julia Kijowska) i wreszcie czuje, że ma po co i dla kogo żyć. Jednak nie wytrzymuje długo. Pewnego dnia idzie prosto do baru Pod Mocnym Aniołem, gdzie zaczyna pić... Wkrótce trafia na odwyk, gdzie spotyka doktora Granadę (Andrzej Grabowski), personel (m.in. Iza Kuna, Robert Wabich) i innych pacjentów (Jacek Braciak, Kinga Preis, Marian Dziędziel, Marcin Dorociński, Arkadiusz Jakubik, Lech Dyblik, Iwona Wszołkówna, Iwona Bielska, Krzysztof Kiersznowski), którzy tworzą niezwykle barwną galerię postaci. Jedną z metod leczenia jest czytanie spisanych wcześniej opowieści, z czasów kiedy się piło. Swoje historie, zabawne i niekiedy wstrząsające, opowiedzą: reżyser, ksiądz, policjant, kierowca TIR-a, farmaceutka, robotnik, fryzjerka i inni. Wszyscy piją, bo picie to nasz sport narodowy.   ... Braciak, Kinga Preis, Marian Dziędziel, Marcin Dorociński, Arkadiusz Jakubik, Lech Dyblik, Iwona Wszołkówna, Iwona Bielska, Krzysztof Kiersznowski), którzy tworzą niezwykle barwną galerię postaci. Jedną z metod leczenia jest czytanie spisanych wcześniej opowieści, z czasów kiedy się piło. Swoje historie, zabawne i niekiedy wstrząsające, opowiedzą: reżyser, ksiądz, policjant, kierowca TIR-a, farmaceutka, robotnik, fryzjerka i inni. Wszyscy piją, bo picie to nasz sport narodowy.
-    

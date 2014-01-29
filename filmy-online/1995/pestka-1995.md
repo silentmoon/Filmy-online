@@ -1,9 +1,5 @@
+Pestka 1995 
+=============
+[![Pestka 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pestka-1995)
 
-        Pestka 1995 
-        =============
-        
-        [![Pestka 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pestka-1995)
-        
-        
  Agata (Krystyna Janda) dobiega czterdziestki, lecz mimo wielu romansów nie założyła rodziny. Żyje tak, jakby wszystko mogło się jeszcze zdarzyć. Pracuje w Polskim Radiu, wydała kilka tomików wierszy i ciągle gotowa jest wyjść naprzeciw wielkiej miłości. Borys (Daniel Olbrychski), którego poznała na ślubie swej młodej przyjaciółki Sabiny (Agnieszka Krukówna), jest architektem, ma żonę i dwóch synów. Nigdy nie zdradzał żony, stara się być dobrym mężem i ojcem. W taki sposób ułożyło mu się życie, lecz to także sprawa wyboru - Borys jest człowiekiem religijnym. Miłość tych dwojga dojrzałych ludzi, gwałtowna, gorąca, dramatycznie komplikuje im życie. Agata nie próbuje rozbijać małżeństwa Borysa, największą wartością jest dla niej sama miłość. Podświadomie zdaje też sobie chyba sprawę, że rola żony jest nie dla niej. Decyzja Borysa, który decyduje się porzucić rodzinę, stawia ją przed kolejnym dylematem. Równoległym wątkiem filmu są losy młodego małżeństwa, Sabiny i Józefa (Jan Frycz). Mimo, iż o pokolenie młodsi, swój związek traktują (zwłaszcza Józef) rzeczowo i pragmatycznie.   ... ułożyło mu się życie, lecz to także sprawa wyboru - Borys jest człowiekiem religijnym. Miłość tych dwojga dojrzałych ludzi, gwałtowna, gorąca, dramatycznie komplikuje im życie. Agata nie próbuje rozbijać małżeństwa Borysa, największą wartością jest dla niej sama miłość. Podświadomie zdaje też sobie chyba sprawę, że rola żony jest nie dla niej. Decyzja Borysa, który decyduje się porzucić rodzinę, stawia ją przed kolejnym dylematem. Równoległym wątkiem filmu są losy młodego małżeństwa, Sabiny i Józefa (Jan Frycz). Mimo, iż o pokolenie młodsi, swój związek traktują (zwłaszcza Józef) rzeczowo i pragmatycznie.
-    

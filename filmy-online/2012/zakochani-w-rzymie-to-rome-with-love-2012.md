@@ -1,9 +1,5 @@
+Zakochani w Rzymie / To Rome With Love 2012 
+=============
+[![Zakochani w Rzymie / To Rome With Love 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakochani-w-rzymie-to-rome-with-love-2012)
 
-        Zakochani w Rzymie / To Rome With Love 2012 
-        =============
-        
-        [![Zakochani w Rzymie / To Rome With Love 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakochani-w-rzymie-to-rome-with-love-2012)
-        
-        
  Komedia 'Zakochani w Rzymie', poświęcona jest Amerykanom i Włochom zmagającym się w Wiecznym Mieście z rozlicznymi miłosnymi perypetiami, kusi widzów najatrakcyjniejszą komediową obsadą tego roku. Poza najgorętszymi, młodymi gwiazdami Hollywood - nominowanymi do Oscara Ellen Page ('Juno') i Jessem Eisenbergiem ('The Social Network'),  Allen zaprosił do współpracy najsłynniejszych europejskich laureatów nagrody Amerykańskiej Akademii – swoją muzę z 'Vicky Cristina Barcelona' Penelope Cruz oraz nieobliczalnego komika numer jeden, Włocha Roberto Benigniego (statuetka dla najlepszego aktora za 'Życie jest piękne'), a także trzykrotnie nominowanego do Złotego Globu i raz do Oscara Aleca Baldwina ('To skomplikowane'), powracającą po dłuższej przerwie na jego plan Judy Davis (nominowana do Oscara za 'Podróż do Indii' i Allenowskich 'Mężów i żony'), a także… po raz pierwszy od sześciu lat ('Scoop – Gorący temat') samego siebie!   ... Penelope Cruz oraz nieobliczalnego komika numer jeden, Włocha Roberto Benigniego (statuetka dla najlepszego aktora za 'Życie jest piękne'), a także trzykrotnie nominowanego do Złotego Globu i raz do Oscara Aleca Baldwina ('To skomplikowane'), powracającą po dłuższej przerwie na jego plan Judy Davis (nominowana do Oscara za 'Podróż do Indii' i Allenowskich 'Mężów i żony'), a także… po raz pierwszy od sześciu lat ('Scoop – Gorący temat') samego siebie!
-    

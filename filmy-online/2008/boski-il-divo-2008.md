@@ -1,9 +1,5 @@
+Boski / Il Divo 2008 
+=============
+[![Boski / Il Divo 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/boski-il-divo-2008)
 
-        Boski / Il Divo 2008 
-        =============
-        
-        [![Boski / Il Divo 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/boski-il-divo-2008)
-        
-        
  W Rzymie, o świcie, kiedy wszyscy śpią, jeden człowiek jest już rześki. Nazywa się Giulio Andreotti. Nie śpi, ponieważ musi pracować, pisać książki, bywać w towarzystwie i - co jest nie mniej ważne - modlić się. Spokojny i tajemniczy Andreotti we Włoszech jest synonimem władzy przez ponad 40 lat. Na początku lat 90., bez arogancji, ale i bez pokory, ten stabilny, uspokajający, ale i bardzo niejednoznaczny polityk niestrudzenie zmierza ku swej siódmej kadencji na stanowisku premiera. Tuż przed 70-tką Andreotti jest gerontokratą o niemal boskich możliwościach, który nikogo się nie boi, w zasadzie nie wie, co to strach. Przeciwnie - jest przyzwyczajony do obserwowania strachu malującego się na twarzach jego rozmówców. Jego radością jest władza, z którą żyje w symbiozie, którą wielbi, i która zawsze i niezmiennie mu się należy. Bitwy wyborcze, ataki terrorystyczne czy poniżające oskarżenia nie pozostawiają na nim żadnego śladu, wobec wszystkiego pozostaje nieugięty. Aż do czasu, kiedy mafia, najsilniejsza przeciwwładza w kraju, postanowi wypowiedzieć mu wojnę.   ... premiera. Tuż przed 70-tką Andreotti jest gerontokratą o niemal boskich możliwościach, który nikogo się nie boi, w zasadzie nie wie, co to strach. Przeciwnie - jest przyzwyczajony do obserwowania strachu malującego się na twarzach jego rozmówców. Jego radością jest władza, z którą żyje w symbiozie, którą wielbi, i która zawsze i niezmiennie mu się należy. Bitwy wyborcze, ataki terrorystyczne czy poniżające oskarżenia nie pozostawiają na nim żadnego śladu, wobec wszystkiego pozostaje nieugięty. Aż do czasu, kiedy mafia, najsilniejsza przeciwwładza w kraju, postanowi wypowiedzieć mu wojnę.
-    

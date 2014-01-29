@@ -1,9 +1,5 @@
+Wierność / La fidélité 2000 
+=============
+[![Wierność / La fidélité 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiernosc-la-fidlit-2000)
 
-        Wierność / La fidélité 2000 
-        =============
-        
-        [![Wierność / La fidélité 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiernosc-la-fidlit-2000)
-        
-        
  Clélia jest obiecującą fotoreporterką, którą zatrudnia w swoim brukowym dzienniku magnat prasowy Mac Roi. Młoda kobieta przybywa do Paryża wraz z matką, która zdradza, że przed laty, już jako mężatka, miała romans z jej przyszłym pracodawcą, jednak wierność przyrzeczeniu małżeńskiemu nie pozwoliła jej wówczas opuścić męża. Clélia zupełnie przypadkowo poznaje Cleve'a, dobrze sytuowanego redaktora książek dla dzieci, który zakochuje się w niej od pierwszego wejrzenia i prosi ją o rękę, zrywając najpierw zaręczyny z córką Mac Roi. Clélia decyduje się na małżeństwo pomimo tego, że tuż przed ślubem poznaje Némo, młodego, gniewnego paparazzo, który poświęca swój talent i żar prawdziwego reportera na tropienie księży, łamiących celibat, tajemniczych handlarzy organów ludzkich, wreszcie penetrowanie nielegalnych domów gry i burdeli. I on także pracuje dla króla bulwarówek Mac Roi. Clélia zakochuje się w Némo, pozostaje jednak wierna mężowi, którego bardziej szanuje niż kocha. Pozostaje mu wierna nawet po jego śmierci...  ... o rękę, zrywając najpierw zaręczyny z córką Mac Roi. Clélia decyduje się na małżeństwo pomimo tego, że tuż przed ślubem poznaje Némo, młodego, gniewnego paparazzo, który poświęca swój talent i żar prawdziwego reportera na tropienie księży, łamiących celibat, tajemniczych handlarzy organów ludzkich, wreszcie penetrowanie nielegalnych domów gry i burdeli. I on także pracuje dla króla bulwarówek Mac Roi. Clélia zakochuje się w Némo, pozostaje jednak wierna mężowi, którego bardziej szanuje niż kocha. Pozostaje mu wierna nawet po jego śmierci...
-    

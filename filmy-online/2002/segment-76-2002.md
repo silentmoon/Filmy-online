@@ -1,9 +1,5 @@
+Segment '76 2002 
+=============
+[![Segment '76 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/segment-76-2002)
 
-        Segment '76 2002 
-        =============
-        
-        [![Segment '76 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/segment-76-2002)
-        
-        
  Trójmiasto. Gorące lato '76-go roku. Bohater, absolwent Politechniki Gdańskiej, rozpoczyna pracę w biurze projektowym. Wolny czas spędza naprawiając ukochanego Jeepa, oczekując przyjazdu studiującej za granicą dziewczyny - Oli. Marzeniem bohatera jest umeblowanie swojego mieszkania. Największym pragnieniem, niemalże spędzającym sen z powiek, jest zdobycie segmentu, model '76. Panujący ustrój jednak nie ułatwia takich rzeczy, jak zakup mebli. Zmusza to bohatera do kombinowania. Kombinowania typowego dla tamtego okresu. Przemytu ubrań do ZSRR. Tureckich kożuchów do Polski. To wszystko prowadzi do komicznych sytuacji związanych z celnikami, Milicja Obywatelską itp... Lata PRL-u w filmie są przedstawione w sposób wesoły i ciepły, a nie jak to zazwyczaj bywało w sposób szary i smutny. Jest to opowieść o młodych ludziach, którzy nie tracili cennego czasu na zamartwianie się panujęcym ustrojem. Potrafili znaleść sposób na życie i cieszyć się tym co mają.   ... kombinowania. Kombinowania typowego dla tamtego okresu. Przemytu ubrań do ZSRR. Tureckich kożuchów do Polski. To wszystko prowadzi do komicznych sytuacji związanych z celnikami, Milicja Obywatelską itp... Lata PRL-u w filmie są przedstawione w sposób wesoły i ciepły, a nie jak to zazwyczaj bywało w sposób szary i smutny. Jest to opowieść o młodych ludziach, którzy nie tracili cennego czasu na zamartwianie się panujęcym ustrojem. Potrafili znaleść sposób na życie i cieszyć się tym co mają.
-    

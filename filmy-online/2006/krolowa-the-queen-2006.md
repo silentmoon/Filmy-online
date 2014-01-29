@@ -1,9 +1,5 @@
+Królowa / The Queen 2006 
+=============
+[![Królowa / The Queen 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolowa-the-queen-2006)
 
-        Królowa / The Queen 2006 
-        =============
-        
-        [![Królowa / The Queen 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolowa-the-queen-2006)
-        
-        
  Latem 1997 roku wiadomość o śmierci księżnej Diany wstrząsa brytyjską opinią publiczną. Królowa Elżbieta II, którą tragiczna wieść zastaje w rezydencji na szkockiej prowincji, odgradza się od medialnej burzy grubymi murami zamku Balmoral. Tymczasem, w Londynie dla nowo wybranego premiera Tony?ego Blaira, nadchodzi moment próby. Tłumy składają hołd zmarłej księżnej i coraz głośniej domagają się reakcji dworu. Prasa zaczyna atakować rodzinę królewską. Królowa jednak milczy. Najnowszy film Stephena Frearsa (Niebezpieczne związki) o Elżbiecie II jest pierwszym filmem przywołującym wydarzenia związane ze śmiercią księżnej Diany, jak również pierwszym filmem tak bardzo obnażającym prywatność panującej brytyjskiej rodziny królewskiej. ''Królowa'' to pełna napięcia opowieść o walce dwóch światów ? powściągliwości i tradycji ze spontanicznością i otwartością, która tak bardzo charakteryzowała księżne Dianę. Ironiczne i pełne humoru spojrzenie Frearsa sprawia, że postać monarchini - dotychczas ikony sztywności i nadęcia ? nabiera cech ludzkich a my, nieoczekiwanie, nie tylko zaczynamy ją rozumieć, ale wręcz lubić i podziwiać. [Opis dystrybutora]  ... Najnowszy film Stephena Frearsa (Niebezpieczne związki) o Elżbiecie II jest pierwszym filmem przywołującym wydarzenia związane ze śmiercią księżnej Diany, jak również pierwszym filmem tak bardzo obnażającym prywatność panującej brytyjskiej rodziny królewskiej. ''Królowa'' to pełna napięcia opowieść o walce dwóch światów ? powściągliwości i tradycji ze spontanicznością i otwartością, która tak bardzo charakteryzowała księżne Dianę. Ironiczne i pełne humoru spojrzenie Frearsa sprawia, że postać monarchini - dotychczas ikony sztywności i nadęcia ? nabiera cech ludzkich a my, nieoczekiwanie, nie tylko zaczynamy ją rozumieć, ale wręcz lubić i podziwiać. [Opis dystrybutora]
-    

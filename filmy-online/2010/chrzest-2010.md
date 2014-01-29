@@ -1,9 +1,5 @@
+Chrzest 2010 
+=============
+[![Chrzest 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chrzest-2010)
 
-        Chrzest 2010 
-        =============
-        
-        [![Chrzest 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chrzest-2010)
-        
-        
  'Chrzest' to druga pełnometrażowa fabuła reżysera młodego pokolenia Marcina Wrony. Akcja filmu toczy się w środowisku przestępczym i opowiada o próbie ucieczki od zła. Scenariusz został oparty na kanwie prawdziwej historii chłopaka z polskiej prowincji, który po kryminalnym epizodzie w swoim rodzinnym miasteczku, trafia do Warszawy. Michał (w tej roli Wojciech Zieliński) liczy na zmianę swojego losu i ucieczkę z przestępczego środowiska. Niestety ciąży na nim wyrok mafii, w obliczu którego desperacko poszukuje sposobu, by ocalić swą rodzinę. Kilka dni przed chrztem dziecka zaprasza dawnego przyjaciela, który ma zostać ojcem chrzestnym. Cele Janka (Tomasz Schuchardt) są zupełnie inne, chce być taki jak kiedyś Michał. Imponuje mu dawny kryminalny świat Michała, z którego ten już dawno uciekł i chce żyć po 'drugiej stronie'. W trakcie historii odbędzie się 'walka o duszę' Janka, między Michałem, a szefem gangu (Adam Woronowicz). Tekst scenariusza zawiera religijne odniesienia do tematu 'zaprzedania duszy' i rytualnej ofiary. Kameralna historia splata losy trójki bohaterów niczym w tragedii antycznej, prowadząc do nierozwiązywalnego konfliktu z siłami dobra i zła.   ... obliczu którego desperacko poszukuje sposobu, by ocalić swą rodzinę. Kilka dni przed chrztem dziecka zaprasza dawnego przyjaciela, który ma zostać ojcem chrzestnym. Cele Janka (Tomasz Schuchardt) są zupełnie inne, chce być taki jak kiedyś Michał. Imponuje mu dawny kryminalny świat Michała, z którego ten już dawno uciekł i chce żyć po 'drugiej stronie'. W trakcie historii odbędzie się 'walka o duszę' Janka, między Michałem, a szefem gangu (Adam Woronowicz). Tekst scenariusza zawiera religijne odniesienia do tematu 'zaprzedania duszy' i rytualnej ofiary. Kameralna historia splata losy trójki bohaterów niczym w tragedii antycznej, prowadząc do nierozwiązywalnego konfliktu z siłami dobra i zła.
-    

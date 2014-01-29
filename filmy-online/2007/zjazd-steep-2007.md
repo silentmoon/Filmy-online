@@ -1,9 +1,5 @@
+Zjazd / Steep 2007 
+=============
+[![Zjazd / Steep 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zjazd-steep-2007)
 
-        Zjazd / Steep 2007 
-        =============
-        
-        [![Zjazd / Steep 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zjazd-steep-2007)
-        
-        
  Długometrażowy dokument o niebezpiecznej przygodzie, niebywałej sprawności fizycznej i próbie uchwycenia ulotnego piękna narciarstwa. To opowieść o narciarstwie wysokogórskim, dyscyplinie sportowej, która zaistniała zaledwie 35 lat temu. Wszystko zaczęło się w roku 1970 we francuskich górach Chamonix, gdzie narciarze zaczęli próbować ekstremalnych, grożących śmiercią zjazdów. Ludzi takich jak Anselme Baud czy Patricka Vallencant inspirowało niebezpieczeństwo i świadomość, że przekraczają granice tego co wydawało się niemożliwe. Teraz, dwa pokolenia później, niektórzy ze znamienitych narciarzy kontynuują tradycję tego sportu, w którym nie wygrana jest nagrodą, lecz sama radość i przyjemność jakie ze sobą niesie jazda w potężnych, dzikich i odległych górach.  ... przekraczają granice tego co wydawało się niemożliwe. Teraz, dwa pokolenia później, niektórzy ze znamienitych narciarzy kontynuują tradycję tego sportu, w którym nie wygrana jest nagrodą, lecz sama radość i przyjemność jakie ze sobą niesie jazda w potężnych, dzikich i odległych górach.
-    

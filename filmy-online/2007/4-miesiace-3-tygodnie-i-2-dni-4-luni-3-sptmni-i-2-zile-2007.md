@@ -1,9 +1,5 @@
+4 miesiące, 3 tygodnie i 2 dni / 4 luni, 3 săptămâni şi 2 zile 2007 
+=============
+[![4 miesiące, 3 tygodnie i 2 dni / 4 luni, 3 săptămâni şi 2 zile 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/4-miesiace-3-tygodnie-i-2-dni-4-luni-3-sptmni-i-2-zile-2007)
 
-        4 miesiące, 3 tygodnie i 2 dni / 4 luni, 3 săptămâni şi 2 zile 2007 
-        =============
-        
-        [![4 miesiące, 3 tygodnie i 2 dni / 4 luni, 3 săptămâni şi 2 zile 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/4-miesiace-3-tygodnie-i-2-dni-4-luni-3-sptmni-i-2-zile-2007)
-        
-        
  Opowiadający o czasach komunizmu film przede wszystkim skupia się na ludziach. Kontekst historyczny jest tu ważny i znaczący, ale stanowi tło dla pokazania zmagań dwóch młodych kobiet z rzeczywistością, własnymi emocjami i moralnością. W karkołomnym, wydawałoby się, połączeniu filmu dokumentalnego i thrillera reżyser przekazał prawdę o doświadczeniach i uczuciach w rzeczywistości, odmawiającej prawa do szczerości i ludzkich odruchów. Długie ujęcia pozwalają dojrzeć i wybrzmieć narastającym emocjom. '4 miesiące, 3 tygodnie i 2 dni' to część większego projektu, noszącego tytuł Tales from the Golden Age - osobiste, subiektywne spojrzenie na historię komunizmu w Rumunii. U podstaw całego projektu leży idea przybliżenia tych nienormalnych czasów, kiedy ludzie starali się żyć normalnie. Projekt jest próbą opisania czasów komunizmu nie w sposób bezpośredni, ale poprzez ludzi i ich indywidualne historie.   ... wybrzmieć narastającym emocjom. '4 miesiące, 3 tygodnie i 2 dni' to część większego projektu, noszącego tytuł Tales from the Golden Age - osobiste, subiektywne spojrzenie na historię komunizmu w Rumunii. U podstaw całego projektu leży idea przybliżenia tych nienormalnych czasów, kiedy ludzie starali się żyć normalnie. Projekt jest próbą opisania czasów komunizmu nie w sposób bezpośredni, ale poprzez ludzi i ich indywidualne historie.
-    

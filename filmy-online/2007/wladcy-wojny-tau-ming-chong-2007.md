@@ -1,9 +1,5 @@
+Władcy wojny / Tau ming chong 2007 
+=============
+[![Władcy wojny / Tau ming chong 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wladcy-wojny-tau-ming-chong-2007)
 
-        Władcy wojny / Tau ming chong 2007 
-        =============
-        
-        [![Władcy wojny / Tau ming chong 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wladcy-wojny-tau-ming-chong-2007)
-        
-        
  Opowieść o trzech braciach krwi. W 1850 roku 430 milionów Chińczyków miało dość rządów skorumpowanej dynastii Quing. Doszło do Powstania Tajpingów. Podczas wielu lat wojny i chaosu 50 milionów ludzi zginęło w walce lub z głodu. Jesienią 1870 roku Generał Pang stoi na szczycie murów miejskich ubrany w szaty gubernatora. Spogląda na miejsce swojego zaprzysiężenia, a jego serce wypełniają marzenia o przyszłości. Pang wybrał drogę, z której nie ma powrotu. Być może jest jednym z bohaterów, którzy obalili dynastię Quing. Mógłby zmienić bieg historii... Ale to jedna kobieta i dwóch mężczyzn zmieniło bieg jego życia, pomagając mu osiągnąć cel, a potem powodując jego upadek. Tymi ludźmi są zaprzysiężeni bracia krwi Panga. A kobietą, która staje między nimi – żona jednego z nich.  ... bohaterów, którzy obalili dynastię Quing. Mógłby zmienić bieg historii... Ale to jedna kobieta i dwóch mężczyzn zmieniło bieg jego życia, pomagając mu osiągnąć cel, a potem powodując jego upadek. Tymi ludźmi są zaprzysiężeni bracia krwi Panga. A kobietą, która staje między nimi – żona jednego z nich.
-    

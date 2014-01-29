@@ -1,9 +1,5 @@
+Anna Karenina 1997 
+=============
+[![Anna Karenina 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/anna-karenina-1997)
 
-        Anna Karenina 1997 
-        =============
-        
-        [![Anna Karenina 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/anna-karenina-1997)
-        
-        
  Ekranizacja najsławniejszej powieści rosyjskiego pisarza Lwa Tołstoja pod takim samym tytułem. Poznajemy w niej główną bohaterkę Annę Kareninę, żonę starszego, prowadzącego spokojny i stabilny tryb życia urzędnika, który jednak emocjonalnie nie dorasta swej żonie do pięt. Dla niego najważniejsze są pozory składnego życia małżeńskiego i jak najlepsza pozycja społeczna , a zachcianki żony typu- miłość, namiętność, bezpieczeństwo i porozumienie dusz są mu obce. Jedyną pociechą w tym nudnym życiu jest dla Anny jej mały synek, z którym spędza najpiękniejsze chwile. Pewnego dnia spotyka ona na stacji kolejowej młodego oficera, któremu i ona wpada w oko. Szybko nawiązują gorący i szalenie namiętny romans. Niestety, Anna jest mężatką, a Wroński wolnym strzelcem, dlatego to ona musi wyrzec się wszystkiego- męża, dobrej opinii, wstępu na salony, a przede wszystkim- własnego syna, wychowywanego odtąd w duchu nienawiści do matki. Wydaje się że Wroński jest w stanie wynagrodzić jej tą bolesną stratę, ale i on nie pozostaje wobec Anny zupełnie szczery. Dramat Anny, kobiety zbyt wrażliwej, by móc znosić takie cierpienia znajduje swój finał na peronie kolejowym, tam, gdzie poznała swojego kochanka i obietnicę innego życia.  ... tym nudnym życiu jest dla Anny jej mały synek, z którym spędza najpiękniejsze chwile. Pewnego dnia spotyka ona na stacji kolejowej młodego oficera, któremu i ona wpada w oko. Szybko nawiązują gorący i szalenie namiętny romans. Niestety, Anna jest mężatką, a Wroński wolnym strzelcem, dlatego to ona musi wyrzec się wszystkiego- męża, dobrej opinii, wstępu na salony, a przede wszystkim- własnego syna, wychowywanego odtąd w duchu nienawiści do matki. Wydaje się że Wroński jest w stanie wynagrodzić jej tą bolesną stratę, ale i on nie pozostaje wobec Anny zupełnie szczery. Dramat Anny, kobiety zbyt wrażliwej, by móc znosić takie cierpienia znajduje swój finał na peronie kolejowym, tam, gdzie poznała swojego kochanka i obietnicę innego życia.
-    

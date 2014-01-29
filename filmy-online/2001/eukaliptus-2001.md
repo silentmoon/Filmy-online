@@ -1,9 +1,5 @@
+Eukaliptus 2001 
+=============
+[![Eukaliptus 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/eukaliptus-2001)
 
-        Eukaliptus 2001 
-        =============
-        
-        [![Eukaliptus 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/eukaliptus-2001)
-        
-        
  Pierwszy w Polsce western erotyczny. Zabawna i bezpruderyjna opowieść o tajemniczym rewolwerowcu Sonym, posiadaczu jeszcze bardziej tajemniczego męskiego przyrodzenia (owianego legendą Eukaliptusa - obiektu marzeń kobiet i zazdrości wszystkich mężczyzn w Rio Bravo). Doskonała zabawa choć nie dla każdego. Film opowiada historię Sonego - wyjątkowo wrażliwego rewolwerowca, który cieszy się ogromnym powodzeniem u wszystkich kobiet, co siłą rzeczy wzbudza zazdrość i nienawiść innych rewolwerowców. Sony jest postacią legendą i w Rio Bravo, które jest miejscem akcji filmu, krążą na jego temat przeróżne opowieści, jedne prawdziwe, inne prawie-prawdziwe, ale wszystkie one stanowią nici tej samej tajemnicy: kim tak naprawdę jest Sony, co zawiera jego czarna walizka i czym jest ów magiczny 'Eukaliptus', który budzi tyle emocji w mieszkańcach Rio Bravo. Wywiad z Marcinem Krzyształowiczem, scenarzystą i reżyserem filmu. Zapraszamy do obejrzenia oficjalnej strony filmu   ... innych rewolwerowców. Sony jest postacią legendą i w Rio Bravo, które jest miejscem akcji filmu, krążą na jego temat przeróżne opowieści, jedne prawdziwe, inne prawie-prawdziwe, ale wszystkie one stanowią nici tej samej tajemnicy: kim tak naprawdę jest Sony, co zawiera jego czarna walizka i czym jest ów magiczny 'Eukaliptus', który budzi tyle emocji w mieszkańcach Rio Bravo. Wywiad z Marcinem Krzyształowiczem, scenarzystą i reżyserem filmu. Zapraszamy do obejrzenia oficjalnej strony filmu
-    

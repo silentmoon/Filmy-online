@@ -1,9 +1,5 @@
+Adwokat / The Counselor 2013 
+=============
+[![Adwokat / The Counselor 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/adwokat-the-counselor-2013)
 
-        Adwokat / The Counselor 2013 
-        =============
-        
-        [![Adwokat / The Counselor 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/adwokat-the-counselor-2013)
-        
-        
  Pewien uznany prawnik, którego imię nie jest ujawnione (Michael Fassbender), zostaje skuszony możliwością zarobienia łatwych pieniędzy. Mimo ostrzeżeń ze strony Westraya (Brad Pitt) oraz podejrzanego charakteru sprawy arogancja bierze górę nad rozsądkiem. Adwokat jedną nieprzemyślaną decyzją wplątuje się w tajemnicze, ciemne interesy, podejmując współpracę z ekstrawaganckim właścicielem klubu nocnego, Reinerem (Javier Bardem). Na horyzoncie pojawia się również Malkina (Cameron Diaz), bezwzględna socjopatka i dziewczyna Reinera. Wraz ze swoją piękną narzeczoną, Laurą (Penelope Cruz), Adwokat musi zmierzyć się z niebezpieczeństwami narkotykowego podziemia, z którego ucieczka zdaje się przerastać jego możliwości.   ... (Cameron Diaz), bezwzględna socjopatka i dziewczyna Reinera. Wraz ze swoją piękną narzeczoną, Laurą (Penelope Cruz), Adwokat musi zmierzyć się z niebezpieczeństwami narkotykowego podziemia, z którego ucieczka zdaje się przerastać jego możliwości.
-    

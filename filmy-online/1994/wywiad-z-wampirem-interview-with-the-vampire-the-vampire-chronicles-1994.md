@@ -1,9 +1,5 @@
+Wywiad z wampirem / Interview with the Vampire: The Vampire Chronicles 1994 
+=============
+[![Wywiad z wampirem / Interview with the Vampire: The Vampire Chronicles 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wywiad-z-wampirem-interview-with-the-vampire-the-vampire-chronicles-1994)
 
-        Wywiad z wampirem / Interview with the Vampire: The Vampire Chronicles 1994 
-        =============
-        
-        [![Wywiad z wampirem / Interview with the Vampire: The Vampire Chronicles 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wywiad-z-wampirem-interview-with-the-vampire-the-vampire-chronicles-1994)
-        
-        
  Przeszło dwieście lat temu Louis de Pointe du Lac był zwykłym człowiekiem, miał wspaniałą żonę, która jednak zmarła podczas porodu. Jego wewnętrzny ból po stracie żony i córki był nie do zniesienia, a życie przestało mieć dla niego jakikolwiek sens. Wówczas odwiedził go Lestat, wampir. Przekonał go, że zna sposób, by raz na zawsze położyć kres jego bezgranicznemu cierpieniu i uczynił go wampirem. Jako dodatkowe wyróżnienie zapewnił mu nieśmiertelność. Od tamtego czasu, przez dwa stulecia, Louis był świadkiem niezliczonych ludzkich cierpień. Widział, jak za sprawą bezwzględnego Lestata przelewała się ludzka krew. Sam nigdy nie nauczył się zabijać. Wreszcie postanowił, że musi opowiedzieć komuś o sobie. Udziela więc wywiadu dziennikarzowi z San Francisco. Opowiada wstrząsającą historię o miłości, pragnieniu, o ekstazie i o tym wszystkim, co wiąże się z przywilejem bycia wampirem.   ... dwa stulecia, Louis był świadkiem niezliczonych ludzkich cierpień. Widział, jak za sprawą bezwzględnego Lestata przelewała się ludzka krew. Sam nigdy nie nauczył się zabijać. Wreszcie postanowił, że musi opowiedzieć komuś o sobie. Udziela więc wywiadu dziennikarzowi z San Francisco. Opowiada wstrząsającą historię o miłości, pragnieniu, o ekstazie i o tym wszystkim, co wiąże się z przywilejem bycia wampirem.
-    

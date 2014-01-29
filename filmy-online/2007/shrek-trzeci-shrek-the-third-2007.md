@@ -1,9 +1,5 @@
+Shrek Trzeci / Shrek the Third 2007 
+=============
+[![Shrek Trzeci / Shrek the Third 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/shrek-trzeci-shrek-the-third-2007)
 
-        Shrek Trzeci / Shrek the Third 2007 
-        =============
-        
-        [![Shrek Trzeci / Shrek the Third 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/shrek-trzeci-shrek-the-third-2007)
-        
-        
  Historii zielonego ogra ciąg dalszy. Ojciec Fiony zaakceptował ostatecznie swojego zięcia, zdecydował nawet, że Shrek i Fiona mają pełnić obowiązki panującej pary królewskiej. Oboje nie czują jednak się w tej roli najlepiej, a Shrek z miłą chęcią wróciłby na swoje bagno. Król postanawia więc, że jeśli odnajdą następcę tronu, który obejmie rządy i godnie ich zastąpi, będą mogli opuścić królestwo i żyć własnym życiem. Odpowiednim kandydatem na króla jest siostrzeniec królowej Lilian, książę Artie. Shrek wyrusza, razem ze swoimi wiernymi druhami: Osiołkiem i Kotem w butach, w daleką podróż, aby odnaleźć i przekonać zbuntowanego Artiego, że powinien zasiąść na tronie. Tymczasem, podczas nieobecności Shreka w królestwie, Książę z bajki przeprowadza zamach stanu. Fiona organizuje ruch oporu, który ma przeciwstawić się uzurpatorowi do czasu, aż Shrek, Osiołek, Kot w butach i przyszły król Artur powrócą z podróży.  ... Lilian, książę Artie. Shrek wyrusza, razem ze swoimi wiernymi druhami: Osiołkiem i Kotem w butach, w daleką podróż, aby odnaleźć i przekonać zbuntowanego Artiego, że powinien zasiąść na tronie. Tymczasem, podczas nieobecności Shreka w królestwie, Książę z bajki przeprowadza zamach stanu. Fiona organizuje ruch oporu, który ma przeciwstawić się uzurpatorowi do czasu, aż Shrek, Osiołek, Kot w butach i przyszły król Artur powrócą z podróży.
-    

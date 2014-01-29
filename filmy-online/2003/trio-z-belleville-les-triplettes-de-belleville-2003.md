@@ -1,9 +1,5 @@
+Trio z Belleville / Les Triplettes de Belleville 2003 
+=============
+[![Trio z Belleville / Les Triplettes de Belleville 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trio-z-belleville-les-triplettes-de-belleville-2003)
 
-        Trio z Belleville / Les Triplettes de Belleville 2003 
-        =============
-        
-        [![Trio z Belleville / Les Triplettes de Belleville 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trio-z-belleville-les-triplettes-de-belleville-2003)
-        
-        
  Akcja filmu dzieje się we Francji, tuż po II wojnie światowej. Głównym bohaterem filmu jest osierocony chłopiec o imieniu Champion, którego wychowuje jego babka Madame Souza. Champion nie jest wesołym dzieckiem i dlatego Madame Souza robi wszystko, aby zobaczyć uśmiech na jego twarzy - kupuje mu telewizor, fortepian, zabawkowy pociąg i nawet psa, którego wspólnie nazwą Bruno. Nic jednak nie sprawia Championowi przyjemności. Pewnego dnia Madame Souza zauważywszy, że Champion wycina z gazet informacje o słynnych cyklistach, kupuje mu rower. Nie mogąc nadziwić się radości Championa, Madame Souza wspiera go w codziennych mozolnych treningach, nie zdaje sobie jednak sprawy, że zakup roweru na zawsze odmieni ich życie.   ... wycina z gazet informacje o słynnych cyklistach, kupuje mu rower. Nie mogąc nadziwić się radości Championa, Madame Souza wspiera go w codziennych mozolnych treningach, nie zdaje sobie jednak sprawy, że zakup roweru na zawsze odmieni ich życie.
-    

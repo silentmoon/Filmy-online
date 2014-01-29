@@ -1,9 +1,5 @@
+Gunnar szuka Boga / Gunnar Goes God 2010 
+=============
+[![Gunnar szuka Boga / Gunnar Goes God 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gunnar-szuka-boga-gunnar-goes-god-2010)
 
-        Gunnar szuka Boga / Gunnar Goes God 2010 
-        =============
-        
-        [![Gunnar szuka Boga / Gunnar Goes God 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gunnar-szuka-boga-gunnar-goes-god-2010)
-        
-        
  Gunnar to przykładny ojciec średniozamożnej skandynawskiej rodziny. Na pierwszy rzut oka ma wszystko, czego zazwyczaj potrzeba do szczęścia. Wygodny dom z dużym ogródkiem, samochód i dobrej klasy sprzęt to stałe atrybuty jego konsumpcyjnego życia. I choć wydaje się, że Gunnar nie ma powodów do zmartwień, to jednak daleko mu do pełni samozadowolenia. W tym wygodnym i poukładanym świecie za pieniądze można kupić wszystko, ale wszechobecny brak duchowości na dłuższą metę staje się nie do zniesienia. Brak absolutu rodzi niepokój, a poczucie duchowego wypalenia powoduje wewnętrzne wyjałowienie. W konsekwencji nieodzowna okazuje się potrzeba zmiany. Gunnar decyduje się na wyjazd do pierwszego chrześcijańskiego klasztoru w Egipcie, gdzie chce odnaleźć zaginioną w sobie duchowość. To tutaj, w ciszy, skupieniu i spokoju, razem z ekipą filmową chce poczuć i zrozumieć pierwiastek boski.   ... się nie do zniesienia. Brak absolutu rodzi niepokój, a poczucie duchowego wypalenia powoduje wewnętrzne wyjałowienie. W konsekwencji nieodzowna okazuje się potrzeba zmiany. Gunnar decyduje się na wyjazd do pierwszego chrześcijańskiego klasztoru w Egipcie, gdzie chce odnaleźć zaginioną w sobie duchowość. To tutaj, w ciszy, skupieniu i spokoju, razem z ekipą filmową chce poczuć i zrozumieć pierwiastek boski.
-    

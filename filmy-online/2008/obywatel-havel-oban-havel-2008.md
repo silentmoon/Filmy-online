@@ -1,9 +1,5 @@
+Obywatel Havel / Občan Havel 2008 
+=============
+[![Obywatel Havel / Občan Havel 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/obywatel-havel-oban-havel-2008)
 
-        Obywatel Havel / Občan Havel 2008 
-        =============
-        
-        [![Obywatel Havel / Občan Havel 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/obywatel-havel-oban-havel-2008)
-        
-        
  Dokument. W roku 1992, po rozpadzie Czechosłowacji, były dysydent polityczny, przywódca aksamitnej rewolucji, dramaturg i eseista, Václav Havel, został ogłoszony pierwszym prezydentem nowego państwa - Republiki Czeskiej. Tym samym były wróg publiczny otrzymał społeczny mandat, uprawniający go do transformacji państwa i jego instytucji. Mając świadomość, że tego typu wydarzenia są czymś wyjątkowym, Havel pozwolił swojemu przyjacielowi, filmowcowi Pavelowi Koutecký'emu, na towarzyszenie mu z kamerą, zarówno na Hradczanach (siedziba prezydenta), jak i w podróżach po świecie. W rezultacie powstał 'Obywatel Havel', pełnometrażowy film dokumentalny, zbudowany z niepokazywanych nigdzie dotąd obrazów, dzięki któremu możemy zobaczyć portret człowieka znajdującego się w samym centrum międzynarodowej polityki i zainteresowania mediów, próbującego utrzymać równowagę pomiędzy byciem osobą publiczną a swoim życiem osobistym, a jednocześnie starającego się o to, by przeprowadzić swój naród od komunizmu do wolnej, demokratycznej przyszłości. Materiały do filmu powstawały przez 13 lat, począwszy od 1992 roku.   ... towarzyszenie mu z kamerą, zarówno na Hradczanach (siedziba prezydenta), jak i w podróżach po świecie. W rezultacie powstał 'Obywatel Havel', pełnometrażowy film dokumentalny, zbudowany z niepokazywanych nigdzie dotąd obrazów, dzięki któremu możemy zobaczyć portret człowieka znajdującego się w samym centrum międzynarodowej polityki i zainteresowania mediów, próbującego utrzymać równowagę pomiędzy byciem osobą publiczną a swoim życiem osobistym, a jednocześnie starającego się o to, by przeprowadzić swój naród od komunizmu do wolnej, demokratycznej przyszłości. Materiały do filmu powstawały przez 13 lat, począwszy od 1992 roku.
-    

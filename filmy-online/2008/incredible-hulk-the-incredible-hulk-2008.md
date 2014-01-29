@@ -1,9 +1,5 @@
+Incredible Hulk / The Incredible Hulk 2008 
+=============
+[![Incredible Hulk / The Incredible Hulk 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/incredible-hulk-the-incredible-hulk-2008)
 
-        Incredible Hulk / The Incredible Hulk 2008 
-        =============
-        
-        [![Incredible Hulk / The Incredible Hulk 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/incredible-hulk-the-incredible-hulk-2008)
-        
-        
  'Incredible Hulk' to rewelacyjna ekranizacja kultowej opowieści o jednym z najpopularniejszych superbohaterów. Od czasu przypadkowego napromieniowania naukowiec Bruce Banner (Edward Norton) szuka lekarstwa, które pozwoli mu uwolnić się od niezwykłego stanu, w jaki wpada pod wpływem silnego stresu. W takich chwilach Banner zmienia się bowiem w olbrzymiego zielonego mutanta - Hulka. Naukowiec jest na najlepszej drodze do znalezienia remedium, jednak wszystko może zostać utracone, kiedy pojawia się tajemnicze monstrum, które siłą przewyższa Hulka. W dodatku zielonego olbrzyma usiłuje schwytać armia, by wykorzystać jego moc do własnych celów. Banner musi dokonać ostatecznego wyboru - czy pozostać zwykłym naukowcem, czy raczej uwolnić niezmierzoną siłę, która tkwi w jego wnętrzu.  ... utracone, kiedy pojawia się tajemnicze monstrum, które siłą przewyższa Hulka. W dodatku zielonego olbrzyma usiłuje schwytać armia, by wykorzystać jego moc do własnych celów. Banner musi dokonać ostatecznego wyboru - czy pozostać zwykłym naukowcem, czy raczej uwolnić niezmierzoną siłę, która tkwi w jego wnętrzu.
-    

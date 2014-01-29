@@ -1,9 +1,5 @@
+Karmazynowy przypływ / Crimson Tide 1995 
+=============
+[![Karmazynowy przypływ / Crimson Tide 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/karmazynowy-przyplyw-crimson-tide-1995)
 
-        Karmazynowy przypływ / Crimson Tide 1995 
-        =============
-        
-        [![Karmazynowy przypływ / Crimson Tide 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/karmazynowy-przyplyw-crimson-tide-1995)
-        
-        
  W Rosji grupa żołnierzy pod dowództwem nacjonalisty Radczenki przejmuje kontrolę nad wyrzutniami rakiet nuklearnych. Amerykański okręt podwodny 'Alabama' zostaje wysłany, by patrolować wody terytorialne Rosji. 'Alabama' to okręt klasy Ohio (jest tylko siedem takich na świecie) przenoszący pociski Tridant IC-4. Dowództwo 'Alabamy' dostaje rozkaz odpalenia rakiet. Dochodzi do konfliktu między komandorem Frankiem Ramseyem (Gene Hackman) i jego pierwszym oficerem Ronem Hunterem (Denzel Washington), który zastanawia się nad słusznością wydanego rozkazu, ponieważ podczas potwierdzenia rozkazu okręt traci łączność z dowództwem. Nie wiadomo, czy rozkaz został potwierdzony, czy zarządzono odwołanie odpalenia rakiet. Konflikt oficerów dzieli załogę. Część uważa, że lojalność wobec groźby odpalenia pocisków nie jest najistotniejszą sprawą.  ... (Denzel Washington), który zastanawia się nad słusznością wydanego rozkazu, ponieważ podczas potwierdzenia rozkazu okręt traci łączność z dowództwem. Nie wiadomo, czy rozkaz został potwierdzony, czy zarządzono odwołanie odpalenia rakiet. Konflikt oficerów dzieli załogę. Część uważa, że lojalność wobec groźby odpalenia pocisków nie jest najistotniejszą sprawą.
-    

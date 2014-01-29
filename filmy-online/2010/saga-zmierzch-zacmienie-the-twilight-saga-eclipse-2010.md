@@ -1,9 +1,5 @@
+Saga 'Zmierzch': Zaćmienie / The Twilight Saga: Eclipse 2010 
+=============
+[![Saga 'Zmierzch': Zaćmienie / The Twilight Saga: Eclipse 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/saga-zmierzch-zacmienie-the-twilight-saga-eclipse-2010)
 
-        Saga 'Zmierzch': Zaćmienie / The Twilight Saga: Eclipse 2010 
-        =============
-        
-        [![Saga 'Zmierzch': Zaćmienie / The Twilight Saga: Eclipse 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/saga-zmierzch-zacmienie-the-twilight-saga-eclipse-2010)
-        
-        
  Bella jest atrakcyjną i inteligentną dziewczyną zakochaną w wampirze Edwardzie Cullenie. Miłość Belli jest tak głęboka, że jej największym pragnieniem jest zostać wampirem, by móc po wsze czasy dzielić życie z Edwardem. Edward stara się do tego nie dopuścić i próbuje tłumaczyć Belli, że los wampira jest przeklęty. Jednak Bella chce zrobić wszystko, by zostać wampirem tuż po zakończeniu szkoły. Chce by transformacji dokonał ojciec Edwarda, Carlise. Z drugiej strony, wolałaby, żeby dokonał tego Edward. Rozważa więc przyjęcie jego warunku – poślubienia go. Gdy Bella zmaga się z wewnętrznym dylematem, Jacob wyznaje jej miłość i przekonuje, że powinna wybrać właśnie jego i pozostać w ludzkiej postaci. Dziewczyna zdaje sobie sprawę, że jej decyzja może wywołać wojnę wilkołaków z wampirami. Tymczasem Victoria, największy wróg Belli, tworzy armię nowonarodzonych wampirów, których zadaniem jest zgładzić dziewczynę. Edward i Jacob będą musieli znaleźć porozumienie, aby zapewnić Belli bezpieczeństwo i połączyć siły w walce z armią Victorii.   ... wolałaby, żeby dokonał tego Edward. Rozważa więc przyjęcie jego warunku – poślubienia go. Gdy Bella zmaga się z wewnętrznym dylematem, Jacob wyznaje jej miłość i przekonuje, że powinna wybrać właśnie jego i pozostać w ludzkiej postaci. Dziewczyna zdaje sobie sprawę, że jej decyzja może wywołać wojnę wilkołaków z wampirami. Tymczasem Victoria, największy wróg Belli, tworzy armię nowonarodzonych wampirów, których zadaniem jest zgładzić dziewczynę. Edward i Jacob będą musieli znaleźć porozumienie, aby zapewnić Belli bezpieczeństwo i połączyć siły w walce z armią Victorii.
-    

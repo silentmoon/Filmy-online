@@ -1,9 +1,5 @@
+Kiler 1997 
+=============
+[![Kiler 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kiler-1997)
 
-        Kiler 1997 
-        =============
-        
-        [![Kiler 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kiler-1997)
-        
-        
  Budząc się pewnego dnia we własnym łóżku, Jurek Kiler zostaje aresztowany przez brygadę antyterrorystyczną. Policja bierze go za groźnego przestępcę, bo w bagażniku jego taksówki znaleziono karabin, z którego poprzedniego dnia zabito człowieka. Jurek trafia do więzienia, gdzie od razu staje się gwiazdą wśród kryminalistów. Na nic zdają się tłumaczenia, że oskarżony jest tylko taksówkarzem. Komisarz Ryba nie daje się przekonać - jest absolutnie pewien, że złapał poszukiwanego w całej Europie seryjnego zabójcę. Siara, gruba ryba świata przestępczego, na wieść o zatrzymaniu Kilera organizuje błyskawiczną akcję i odbija go z rąk policji. Nie wiedząc z kim ma naprawdę do czynienia, zleca mu kolejne zadanie. Pogłoski o niebywałych wyczynach Kilera zataczają coraz szersze kręgi. Jurek tymczasem dochodzi do wniosku, że wyjaśnienie nieporozumienia zupełnie mu się nie opłaca. Z pomocą dziennikarki realizuje sprytny plan...  ... w całej Europie seryjnego zabójcę. Siara, gruba ryba świata przestępczego, na wieść o zatrzymaniu Kilera organizuje błyskawiczną akcję i odbija go z rąk policji. Nie wiedząc z kim ma naprawdę do czynienia, zleca mu kolejne zadanie. Pogłoski o niebywałych wyczynach Kilera zataczają coraz szersze kręgi. Jurek tymczasem dochodzi do wniosku, że wyjaśnienie nieporozumienia zupełnie mu się nie opłaca. Z pomocą dziennikarki realizuje sprytny plan...
-    

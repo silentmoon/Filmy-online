@@ -1,9 +1,5 @@
+American Pie 2 2001 
+=============
+[![American Pie 2 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/american-pie-2-2001)
 
-        American Pie 2 2001 
-        =============
-        
-        [![American Pie 2 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/american-pie-2-2001)
-        
-        
  Kolejna część zabawnych perypetii bohaterów 'American Pie' z udziałem wszystkich znanych z pierwszej części aktorów. Tym razem stojąca na progu dojrzałości grupa młodych przyjaciół dzielnie stara się stawić czoła swojej dorosłej niezależności. Po pomyślnym zakończeniu pierwszego roku college'u i pierwszym praktycznie roku 'rozłąki' młodzi mężczyźni (Kevin, Jim, Oz, Finch i Stifler) postanawiają wspólnie spędzić wakacje mające umocnić ich licealną przyjaźń i dostarczyć jednocześnie niezapomnianych letnich wrażeń. To czy plan się powiedzie, a marzenia nabiorą realnego wymiaru uzależnione jest jak zwykle od udziału pań - Vicky, Michelle, Heather i Jessiki. Na dodatek Nadia postanawia odwiedzić Jima, który nadal nie jest w stanie stanąć na wysokości zadania... To pełne emocjonujących wydarzeń i głośnych balang lato przypomina młodym bohaterom, że czas płynie nieubłaganie, ludzie się zmieniają, przyjaźń jednak pozostaje na zawsze.   ... jednocześnie niezapomnianych letnich wrażeń. To czy plan się powiedzie, a marzenia nabiorą realnego wymiaru uzależnione jest jak zwykle od udziału pań - Vicky, Michelle, Heather i Jessiki. Na dodatek Nadia postanawia odwiedzić Jima, który nadal nie jest w stanie stanąć na wysokości zadania... To pełne emocjonujących wydarzeń i głośnych balang lato przypomina młodym bohaterom, że czas płynie nieubłaganie, ludzie się zmieniają, przyjaźń jednak pozostaje na zawsze.
-    

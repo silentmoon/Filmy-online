@@ -1,9 +1,5 @@
+Russendisko 2012 
+=============
+[![Russendisko 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/russendisko-2012)
 
-        Russendisko 2012 
-        =============
-        
-        [![Russendisko 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/russendisko-2012)
-        
-        
  'Russendisko' to brawurowa komedia w rytmie rosyjskiego disco o miłości, przyjaźni, marzeniach i poszukiwaniu szczęścia oraz spełnienia. To połączenie 'Good Bye Lenin' i 'Amelii', wypełnione młodzieńczą energią i entuzjazmem.  Pełne radości i humoru orzeźwiające spojrzenie na początek lat. 90. Zmęczony komunizmem świat budzi się do życia. Jest lato 1990 roku i niedawno upadł berliński mur. Trzej przyjaciele z Moskwy - Vladimir, Misza i Andriej przyjeżdżają do niemieckiej stolicy. Jest w nich wiele wiary i pozytywnej energii mimo problemów z uzyskaniem karty stałego pobytu i brakiem pieniędzy. Pragną tego, co każdy chłopak w ich wieku, czyli chcą być gwiazdami rocka, poznawać piękne kobiety i imprezować do bladego rana. Snując marzenia, palą ogromne ilości papierosów i wypijają mnóstwo piwa. To ostatnie zajęcie nieoczekiwanie staje się ich pierwszym krokiem do sukcesu. Sprzedają zebrane puszki a uzyskane pieniądze 'inwestują' w rozprowadzanie papierosów i alkoholu. Prawdziwy przełom w ich życiu następuje, gdy postanawiają otworzyć klub nocny z rosyjską muzyką disco, który z miejsca staje się ulubioną rozrywką berlińczyków.   ... stolicy. Jest w nich wiele wiary i pozytywnej energii mimo problemów z uzyskaniem karty stałego pobytu i brakiem pieniędzy. Pragną tego, co każdy chłopak w ich wieku, czyli chcą być gwiazdami rocka, poznawać piękne kobiety i imprezować do bladego rana. Snując marzenia, palą ogromne ilości papierosów i wypijają mnóstwo piwa. To ostatnie zajęcie nieoczekiwanie staje się ich pierwszym krokiem do sukcesu. Sprzedają zebrane puszki a uzyskane pieniądze 'inwestują' w rozprowadzanie papierosów i alkoholu. Prawdziwy przełom w ich życiu następuje, gdy postanawiają otworzyć klub nocny z rosyjską muzyką disco, który z miejsca staje się ulubioną rozrywką berlińczyków.
-    

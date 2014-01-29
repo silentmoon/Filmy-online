@@ -1,9 +1,5 @@
+Coś / The Thing 2011 
+=============
+[![Coś / The Thing 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cos-the-thing-2011)
 
-        Coś / The Thing 2011 
-        =============
-        
-        [![Coś / The Thing 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cos-the-thing-2011)
-        
-        
  Twórcy 'Świtu żywych trupów' oraz 'Oszukać przeznaczenie 5' wracają na Antarktydę, by przedstawić dramatyczne wydarzenia poprzedzające atak pozaziemskiego monstrum na bazę amerykańskich naukowców. Gdy pod pokrywą lodową odnaleziony zostaje gigantyczny pojazd kosmiczny, światowej sławy naukowiec Sander Halvorson (Ulrich Thomsen) zrobi wszystko, by przypisać sobie wiekopomne znalezisko. Początkowo tylko młoda badaczka Kate Lloyd (wschodząca gwiazda Hollywood Mary Elizabeth Winstead) oraz pilot Sam Carter (Joel Edgerton) alarmują przed zagrożeniem ze strony tajemniczego pasażera pojazdu, który posiadł zdolność przybierania kształtów innych organizmów i może się podszywać pod każdego z mieszkańców bazy. Największe odkrycie ludzkości może okazać się początkiem jej zagłady...  ... Winstead) oraz pilot Sam Carter (Joel Edgerton) alarmują przed zagrożeniem ze strony tajemniczego pasażera pojazdu, który posiadł zdolność przybierania kształtów innych organizmów i może się podszywać pod każdego z mieszkańców bazy. Największe odkrycie ludzkości może okazać się początkiem jej zagłady...
-    

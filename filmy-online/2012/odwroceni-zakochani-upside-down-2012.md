@@ -1,9 +1,5 @@
+Odwróceni zakochani / Upside Down 2012 
+=============
+[![Odwróceni zakochani / Upside Down 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/odwroceni-zakochani-upside-down-2012)
 
-        Odwróceni zakochani / Upside Down 2012 
-        =============
-        
-        [![Odwróceni zakochani / Upside Down 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/odwroceni-zakochani-upside-down-2012)
-        
-        
  Porywające love story osadzone w oszałamiających wizualnie realiach alternatywnego wszechświata. Zjawiskowa Kirsten Dunst ('Spiderman', 'Melancholia') i znakomity Jim Sturgess ('Niepokonani') zakochani miłością niemożliwą. Dwie planety, dwoje ukochanych i granica, której nie wolno przekraczać. Ale miłość nie respektuje zakazów. Adam jest zwykłym chłopakiem w niezwykłym wszechświecie. Wiedzie skromne życie wypełnione pracą i marzeniami o Ewie - dziewczynie, którą poznał przed laty i o której nie potrafi zapomnieć. Ewa pochodzi z równoległego świata, który znajduje się tuż nad światem Adama. Ta planeta rządząca się swoimi prawami, własną grawitacją, jest niedostępna dla Adama i jemu podobnych. Pewnego dnia chłopak dowiaduje się, że istnieje bardzo ryzykowny, nielegalny sposób przedostania się do świata Ewy. Będzie musiał złamać wszelkie normy i zasady, przeciwstawić się prawom fizyki i zaryzykować życie wkradając się do zakazanego świata, by odnaleźć miłość swojego życia…  ... przed laty i o której nie potrafi zapomnieć. Ewa pochodzi z równoległego świata, który znajduje się tuż nad światem Adama. Ta planeta rządząca się swoimi prawami, własną grawitacją, jest niedostępna dla Adama i jemu podobnych. Pewnego dnia chłopak dowiaduje się, że istnieje bardzo ryzykowny, nielegalny sposób przedostania się do świata Ewy. Będzie musiał złamać wszelkie normy i zasady, przeciwstawić się prawom fizyki i zaryzykować życie wkradając się do zakazanego świata, by odnaleźć miłość swojego życia…
-    

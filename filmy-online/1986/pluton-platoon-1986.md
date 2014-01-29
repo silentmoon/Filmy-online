@@ -1,9 +1,5 @@
+Pluton / Platoon 1986 
+=============
+[![Pluton / Platoon 1986 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pluton-platoon-1986)
 
-        Pluton / Platoon 1986 
-        =============
-        
-        [![Pluton / Platoon 1986 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pluton-platoon-1986)
-        
-        
  Nagrodzony 4-ema Oscarami film, reżyser, montaż, dźwięk w tym dla Najlepszego filmu 1986 roku, opierający się na wątkach autobiograficznych reżysera Olivera Stone'a - zdobywcy Nagrody Akademii, 'Pluton' jest 'mrocznym i niezapomnianym hołdem' (The Washington Post) złożonym wszystkim żołnierzom, którzy utracili swe dusze podczas wojny w Wietnamie. Przybyły do Wietnamu Chris Taylor (Charlie Sheen) szybko odkrywa, że najtrudniejszą walką, którą musi stoczyć jest walka z samym sobą - z własnymi słabościami, strachem, gniewem i wycieńczeniem. 'Pluton' to opowieść o ludziach za młodych aby umierać, zbyt niedojrzałych, by ustrzec się przed spustoszeniem, jakie w ich duszach dokonuje brutalna wojna. W wilgotnej, parnej dżungli szybko wyrasta się ze złudzeń. Nominowane do Oscara (aktor drugoplanowy) kreacje aktorskie doborowej obsady z Tomem Berengerem i Willemem Dafoe na czele, bolesna szczerość i realizm filmu sprawiają, że 'Pluton' jest arcydziełem gatunku, na zawsze pozostającym w pamięci widza.   ... sobą - z własnymi słabościami, strachem, gniewem i wycieńczeniem. 'Pluton' to opowieść o ludziach za młodych aby umierać, zbyt niedojrzałych, by ustrzec się przed spustoszeniem, jakie w ich duszach dokonuje brutalna wojna. W wilgotnej, parnej dżungli szybko wyrasta się ze złudzeń. Nominowane do Oscara (aktor drugoplanowy) kreacje aktorskie doborowej obsady z Tomem Berengerem i Willemem Dafoe na czele, bolesna szczerość i realizm filmu sprawiają, że 'Pluton' jest arcydziełem gatunku, na zawsze pozostającym w pamięci widza.
-    

@@ -1,9 +1,5 @@
+Hancock 2008 
+=============
+[![Hancock 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hancock-2008)
 
-        Hancock 2008 
-        =============
-        
-        [![Hancock 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hancock-2008)
-        
-        
  Są na świecie bohaterowie... superbohaterowie... i jest Hancock (Will Smith). Duża władza wiąże się z dużą odpowiedzialnością i wszyscy o tym wiedzą... Wszyscy, z wyjątkiem Hancocka. Wiecznie podirytowany, skonfliktowany z otoczeniem, sarkastyczny i nierozumiany Hancock, może i ratuje życie wielu osób, dzięki swoim popisom, zawsze jednak pozostawia po sobie spore zniszczenia. Mieszkańcy Los Angeles mają tego dosyć – chociaż cieszą się, że mają swojego miejscowego bohatera, zastanawiają się jednak, co takiego zrobili, że zasłużyli właśnie na Hancocka. Mężczyzna zupełnie nie troszczy się o to, co myślą o nim inni – aż do dnia, w którym ratuje życie szefa ds. PR Raya Embreya (Jason Bateman). Wtedy właśnie zgryźliwy superbohater zaczyna zdawać sobie sprawę, że może posiada jednak tę drugą, wrażliwą stronę osobowości. Stawienie temu czoła może być największym wyzwaniem Hancocka. Żona Raya, Mary (Charlize Theron), twierdzi bowiem, że jest on nieuleczalnym przypadkiem.  ... zastanawiają się jednak, co takiego zrobili, że zasłużyli właśnie na Hancocka. Mężczyzna zupełnie nie troszczy się o to, co myślą o nim inni – aż do dnia, w którym ratuje życie szefa ds. PR Raya Embreya (Jason Bateman). Wtedy właśnie zgryźliwy superbohater zaczyna zdawać sobie sprawę, że może posiada jednak tę drugą, wrażliwą stronę osobowości. Stawienie temu czoła może być największym wyzwaniem Hancocka. Żona Raya, Mary (Charlize Theron), twierdzi bowiem, że jest on nieuleczalnym przypadkiem.
-    

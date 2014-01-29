@@ -1,9 +1,5 @@
+Weneckie Qui Pro / Blame It on the Bellboy 1992 
+=============
+[![Weneckie Qui Pro / Blame It on the Bellboy 1992 ](http://vidos.pl/images/player.gif)](http://vidos.pl/weneckie-qui-pro-blame-it-on-the-bellboy-1992)
 
-        Weneckie Qui Pro / Blame It on the Bellboy 1992 
-        =============
-        
-        [![Weneckie Qui Pro / Blame It on the Bellboy 1992 ](http://vidos.pl/images/player.gif)](http://vidos.pl/weneckie-qui-pro-blame-it-on-the-bellboy-1992)
-        
-        
  Lawton, Horton i Orton trzej gentelmeni, z których każdy udaje się właśnie do Wenecji. Nie przypuszczali, że spotka ich coś niezwykłego. Maurice Hormon (Richard Griffiths), 100 kilo żywej wagi, zamierza odbyż randkę aranżowaną. Melvyn Orton (Dudlmy Moore) przybywa do Wenecji w znacznie bardziej przyziemnym celu, mając za zadanie zakupienie nieruchomości dla swojego szefa. A pan Lawton (Bryan Bron) - wynajęty zabójca, jedzie, aby wykonac wyrok. Wszyscy trzej otrzymują instrukcje po zameldowaniu się do hotelu Gabrielle, gdzie zamieszkają. Obsługa hotelu nie przywiązując większej wagi do brzmienia nazwisk swych gości i Orton czy Hormon czy Lawton brzmi dla nich jednakowo. I od tego momentu zaczynają się problemy. Pomyłkowo każdy z głównych bohaterów dostaje inną instrukcje, co prowadzi do śmiesznych scen i komicznych pomyłek. Ale jakich to już należy samemu sprawdzić.  ... instrukcje po zameldowaniu się do hotelu Gabrielle, gdzie zamieszkają. Obsługa hotelu nie przywiązując większej wagi do brzmienia nazwisk swych gości i Orton czy Hormon czy Lawton brzmi dla nich jednakowo. I od tego momentu zaczynają się problemy. Pomyłkowo każdy z głównych bohaterów dostaje inną instrukcje, co prowadzi do śmiesznych scen i komicznych pomyłek. Ale jakich to już należy samemu sprawdzić.
-    

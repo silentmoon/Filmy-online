@@ -1,9 +1,5 @@
+Chińczyk na wynos / Un Cuento chino 2011 
+=============
+[![Chińczyk na wynos / Un Cuento chino 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chinczyk-na-wynos-un-cuento-chino-2011)
 
-        Chińczyk na wynos / Un Cuento chino 2011 
-        =============
-        
-        [![Chińczyk na wynos / Un Cuento chino 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chinczyk-na-wynos-un-cuento-chino-2011)
-        
-        
  W romantycznej scenerii, w ślicznie udekorowanej łodzi, nad pięknym jeziorem przystojny młody człowiek chce się oświadczyć ukochanej. Nagle dzieje się coś dziwnego - z nieba spada… krowa, wprost na zakochaną parę. Mrukliwy Roberto prowadzi w Buenos Aires sklep żelazny. Z pogardą patrzy na klientów i wykłóca się z producentami gwoździ o swoje zamówienia. Jego życie jest spokojne i uporządkowane. Tylko pozornie. Roberto pasjami przeczesuje prasę codzienną w poszukiwaniu pikantnych, pełnych absurdu, ociekających krwią wiadomości o wydarzeniach, które przytrafiły się ludziom na całym świecie. Najciekawsze wkleja do albumów z wycinkami, które zapełniają jego mieszkanie. Z kolei Chińczyk Jun przyjechał do Buenos Aires, aby odszukać stryja. Nie zna słowa po hiszpańsku, nikt nie jest w stanie go zrozumieć, jedyne, co ma, to adres wytatuowany na przedramieniu. W jaki sposób los połączy obu mężczyzn i co wspólnego z nimi ma krowa z początku opowieści, można się przekonać, oglądając tę ciepłą, zabawną, a przede wszystkim pełną smaku komedię, która podbiła serca publiczności i krytyków.   ... pikantnych, pełnych absurdu, ociekających krwią wiadomości o wydarzeniach, które przytrafiły się ludziom na całym świecie. Najciekawsze wkleja do albumów z wycinkami, które zapełniają jego mieszkanie. Z kolei Chińczyk Jun przyjechał do Buenos Aires, aby odszukać stryja. Nie zna słowa po hiszpańsku, nikt nie jest w stanie go zrozumieć, jedyne, co ma, to adres wytatuowany na przedramieniu. W jaki sposób los połączy obu mężczyzn i co wspólnego z nimi ma krowa z początku opowieści, można się przekonać, oglądając tę ciepłą, zabawną, a przede wszystkim pełną smaku komedię, która podbiła serca publiczności i krytyków.
-    

@@ -1,9 +1,5 @@
+Atlas chmur / Cloud Atlas 2012 
+=============
+[![Atlas chmur / Cloud Atlas 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/atlas-chmur-cloud-atlas-2012)
 
-        Atlas chmur / Cloud Atlas 2012 
-        =============
-        
-        [![Atlas chmur / Cloud Atlas 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/atlas-chmur-cloud-atlas-2012)
-        
-        
  Największe filmowe widowisko 2012 roku, oparte na bestsellerowej epopei Davida Mitchella, którego styl krytycy porównują do estetyki dzieł Vladimira Nabokova, a oryginalną wizję świata do spostrzeżeń takich mistrzów jak Umberto Eco, Haruki Murakami i Philip K. Dick. W filmie śledzimy losy postaci z różnych epok i zakątków świata, których najbardziej błahe decyzje i czyny mają daleko idący wpływ na teraźniejszość, przyszłość, a nawet przeszłość naszej planety. 'Atlas chmur' jest ucztą nie tylko dla wielbicieli zapierających dech w piersiach opowieści przygodowych, ale także spostrzegawczych miłośników X Muzy. Każda z gwiazd występuje w filmie w kilku nierozpoznawalnych na pierwszy rzut oka wcieleniach, dając popis wirtuozerskiej gry i ironicznego dystansu do swojego dotychczasowego wizerunku.  ... jest ucztą nie tylko dla wielbicieli zapierających dech w piersiach opowieści przygodowych, ale także spostrzegawczych miłośników X Muzy. Każda z gwiazd występuje w filmie w kilku nierozpoznawalnych na pierwszy rzut oka wcieleniach, dając popis wirtuozerskiej gry i ironicznego dystansu do swojego dotychczasowego wizerunku.
-    

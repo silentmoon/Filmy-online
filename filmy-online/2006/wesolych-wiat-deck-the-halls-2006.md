@@ -1,9 +1,5 @@
+Wesołych Świąt / Deck the Halls 2006 
+=============
+[![Wesołych Świąt / Deck the Halls 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wesolych-wiat-deck-the-halls-2006)
 
-        Wesołych Świąt / Deck the Halls 2006 
-        =============
-        
-        [![Wesołych Świąt / Deck the Halls 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wesolych-wiat-deck-the-halls-2006)
-        
-        
  'Wesołych Świąt' to rodzinna komedia o zaciętej rywalizacji skłóconych sąsiadach i radosnym świątecznym nastroju. Dla mieszkającego w małym amerykańskim miasteczku okulisty Steve'a Fincha (Matthew Broderick) Święta Bożego Narodzenia to najważniejszy okres w roku. Mimo rodzinnych protestów, grudniowy kalendarz świetnie zorganizowanego Steve'a wypełniony jest wszystkim, co tylko możliwe, od dorocznej rodzinnej fotografii po uroczyste przystrojenie choinki i wspólne kolędowanie z sąsiadami. Plany Steve'a stają pod znakiem zapytania, kiedy do domu obok wprowadza się arogancki sprzedawca samochodów Buddy Hall (Danny DeVito). Mężczyzna próbuję odebrać Steve'owi tytuł miejscowego 'Króla Świąt' i zamierza udekorować swój nowy dom lampkami tak, by był widoczny z kosmosu! Ale czemu poprzestać na światełkach? Zachęcony sukcesem, jaki odniósł swoją dekoracją, Buddy aranżuje żywą szopkę z osłami, krowami, owcami a nawet importowanym wielbłądem, na najrozmaitsze sposoby eliminując Steve'a z jego dotychczasowej pozycji mistrza świątecznej ceremonii. Czy panowie doprowadzą do zawieszenia broni, zanim doprowadzą się do ruiny, czy też będą walczyć aż do ostatecznego zwycięstwa?  ... z sąsiadami. Plany Steve'a stają pod znakiem zapytania, kiedy do domu obok wprowadza się arogancki sprzedawca samochodów Buddy Hall (Danny DeVito). Mężczyzna próbuję odebrać Steve'owi tytuł miejscowego 'Króla Świąt' i zamierza udekorować swój nowy dom lampkami tak, by był widoczny z kosmosu! Ale czemu poprzestać na światełkach? Zachęcony sukcesem, jaki odniósł swoją dekoracją, Buddy aranżuje żywą szopkę z osłami, krowami, owcami a nawet importowanym wielbłądem, na najrozmaitsze sposoby eliminując Steve'a z jego dotychczasowej pozycji mistrza świątecznej ceremonii. Czy panowie doprowadzą do zawieszenia broni, zanim doprowadzą się do ruiny, czy też będą walczyć aż do ostatecznego zwycięstwa?
-    

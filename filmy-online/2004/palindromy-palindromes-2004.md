@@ -1,9 +1,5 @@
+Palindromy / Palindromes 2004 
+=============
+[![Palindromy / Palindromes 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/palindromy-palindromes-2004)
 
-        Palindromy / Palindromes 2004 
-        =============
-        
-        [![Palindromy / Palindromes 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/palindromy-palindromes-2004)
-        
-        
  Najnowszy film jednego z najbardziej niezwykłych niezależnych amerykańskich reżyserów, twórcy Witajcie w domu lalek, Happiness, czy Opowiadania. Główną bohaterką Palindromów jest 12-letnia Aviva. Dziewczyna mimo młodego wieku marzy o macierzyństwie i wkrótce zachodzi w ciążę. Dla rodziny dziewczynki to prawdziwa tragedia i jej rodzice uznają, że jedynym rozsądnym wyjściem z tej sytuacji jest aborcja. Po zabiegu, gdy pozornie wszystko wraca do ładu, Aviva ucieka z domu. Podczas podróży spotyka rodzinę, opętaną miłością do Jezusa. Troskliwa i pełna miłości Mama Sunshine razem z mężem walczą o życie nienarodzonych dzieci, wykorzystując radykalne środki. W Palindromach Todd Solondz w bezkompromisowy sposób rozprawia się z fałszem amerykańskiego stylu życia i zakłamaniem rodzinnych relacji.   ... Podczas podróży spotyka rodzinę, opętaną miłością do Jezusa. Troskliwa i pełna miłości Mama Sunshine razem z mężem walczą o życie nienarodzonych dzieci, wykorzystując radykalne środki. W Palindromach Todd Solondz w bezkompromisowy sposób rozprawia się z fałszem amerykańskiego stylu życia i zakłamaniem rodzinnych relacji.
-    

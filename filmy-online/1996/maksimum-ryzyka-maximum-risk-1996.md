@@ -1,9 +1,5 @@
+Maksimum ryzyka / Maximum Risk 1996 
+=============
+[![Maksimum ryzyka / Maximum Risk 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/maksimum-ryzyka-maximum-risk-1996)
 
-        Maksimum ryzyka / Maximum Risk 1996 
-        =============
-        
-        [![Maksimum ryzyka / Maximum Risk 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/maksimum-ryzyka-maximum-risk-1996)
-        
-        
  Na jednej z ulic Nicei ginie ścigany przez zabójców młody człowiek. Jeden z przybyłych na miejsce zdarzeń policjantów, Francuz Alain Moreau, przeżywa szok, kiedy okazuje się, że zmarły był do niego bliźniaczo podobny... Ze znalezionego przy nim paszportu Alain dowiaduje się, że nazywał się on Mikhail Suverov i mieszkał w Nowym Jorku. Alain udaje się po wyjaśnienia do swojej matki, Chantal. Jak się okazuje Alain rzeczywiście miał brata bliźniaka, ale matka nie mogła utrzymać dwóch synów i jednego z nich zmuszona była oddać do adopcji. Alain postanawia wyjaśnić kulisy śmierci brata i przyczyny, dla których przybył on do Nicei. Wyjeżdża do Nowego Jorku i zjawia się w jego rosyjskiej dzielnicy zwanej 'Małą Odessą'. W jednym z barów poznaje dziewczynę Mikhaila, piękną Alex, która - przekonana, że ma do czynienia z Mikhailem - zdziwiona jest jego pojawieniem się. Okazuje się, że Mikhail był adoptowanym synem szefa rosyjskiej mafii w Nowym Jorku, a obecnie poszukują go zarówno członkowie mafii jak i agenci FBI. Mikhail wszedł w posiadanie znacznej sumy pieniędzy, która ukrył w banku w Nicei. Alain znajduje się więc w śmiertelnym niebezpieczeństwie...   ... dwóch synów i jednego z nich zmuszona była oddać do adopcji. Alain postanawia wyjaśnić kulisy śmierci brata i przyczyny, dla których przybył on do Nicei. Wyjeżdża do Nowego Jorku i zjawia się w jego rosyjskiej dzielnicy zwanej 'Małą Odessą'. W jednym z barów poznaje dziewczynę Mikhaila, piękną Alex, która - przekonana, że ma do czynienia z Mikhailem - zdziwiona jest jego pojawieniem się. Okazuje się, że Mikhail był adoptowanym synem szefa rosyjskiej mafii w Nowym Jorku, a obecnie poszukują go zarówno członkowie mafii jak i agenci FBI. Mikhail wszedł w posiadanie znacznej sumy pieniędzy, która ukrył w banku w Nicei. Alain znajduje się więc w śmiertelnym niebezpieczeństwie...
-    

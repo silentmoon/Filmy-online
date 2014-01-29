@@ -1,9 +1,5 @@
+Grubasy / Gordos 2009 
+=============
+[![Grubasy / Gordos 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/grubasy-gordos-2009)
 
-        Grubasy / Gordos 2009 
-        =============
-        
-        [![Grubasy / Gordos 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/grubasy-gordos-2009)
-        
-        
  „Gordos” to pizza, lody, czekolada, słodycze, kalorie, dużo kalorii. To także poczucie winy, pożądanie, strach, nadzieja, marzenia, seks, rodzina, miłość... Film jest optymistyczny, cudowny, cierpki, czuły, ostry, lekki i głęboki. To komedia. To dramat. To zbiór sprzeczności. To życie! „Gordos” to komediodramat. Pięć opowiadań o nadwadze członków grupy terapeutycznej. Ludzie nie spodziewają się schudnąć, ale raczej znaleźć przyczynę tycia. Szukają powodów niechęci do własnego ciała. Nie chodzi tu jednak o kilogramy, ani o ciało. Nadwaga jest tylko metaforą rzeczy, które łykamy dzień po dniu i które rozwijają się wewnątrz nas. Rzeczy, które są tak trudne do wyrażenia, do stawienia im czoła, a nawet do zaakceptowania.   ... ciała. Nie chodzi tu jednak o kilogramy, ani o ciało. Nadwaga jest tylko metaforą rzeczy, które łykamy dzień po dniu i które rozwijają się wewnątrz nas. Rzeczy, które są tak trudne do wyrażenia, do stawienia im czoła, a nawet do zaakceptowania.
-    

@@ -1,9 +1,5 @@
+Czekając na wyrok / Monster's Ball 2001 
+=============
+[![Czekając na wyrok / Monster's Ball 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czekajac-na-wyrok-monster-s-ball-2001)
 
-        Czekając na wyrok / Monster's Ball 2001 
-        =============
-        
-        [![Czekając na wyrok / Monster's Ball 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czekajac-na-wyrok-monster-s-ball-2001)
-        
-        
  'Czekając na wyrok' to opowieść o dwojgu ludzi, których dotknęła wielka życiowa tragedia. W jednej z pierwszych scen filmu dwójka strażników więziennych, którymi są ojciec i syn, prowadzą skazańca do celi śmierci. Jeden ze strażników, Hank Grotowski, jest twardzielem, który nie może się pogodzić z tym, że jego syn Sonny - drugi strażnik, nie jest taki jak on. Chce nauczyć Sonny'ego twardej szkoły życia i sądzi, że praca w więzieniu jest najlepszą do tego drogą. Skazaniec - to czarnoskóry mężczyzna, którego przez pomyłkę skazano na odejście z tego świata, na odejście od ukochanej żony i od dziecka; do końca jednak żyjący w nadziei na ułaskawienie. Jego śmierć niszczy nie tylko życie jego rodziny - po egzekucji Sonny na oczach ojca popełnia samobójstwo. Śmierć syna jest dla Hanka początkiem jego wewnętrznej przemiany. Wkrótce los styka Hanka z żoną po skazanym więźniu. Wybucha między nimi gwałtowne uczucie, mimo że dzieli ich wszystko: kolor skóry, wiek, status społeczny, życiowe doświadczenie.   ... czarnoskóry mężczyzna, którego przez pomyłkę skazano na odejście z tego świata, na odejście od ukochanej żony i od dziecka; do końca jednak żyjący w nadziei na ułaskawienie. Jego śmierć niszczy nie tylko życie jego rodziny - po egzekucji Sonny na oczach ojca popełnia samobójstwo. Śmierć syna jest dla Hanka początkiem jego wewnętrznej przemiany. Wkrótce los styka Hanka z żoną po skazanym więźniu. Wybucha między nimi gwałtowne uczucie, mimo że dzieli ich wszystko: kolor skóry, wiek, status społeczny, życiowe doświadczenie.
-    

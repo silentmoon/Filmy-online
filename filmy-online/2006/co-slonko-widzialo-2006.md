@@ -1,9 +1,5 @@
+Co słonko widziało 2006 
+=============
+[![Co słonko widziało 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/co-slonko-widzialo-2006)
 
-        Co słonko widziało 2006 
-        =============
-        
-        [![Co słonko widziało 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/co-slonko-widzialo-2006)
-        
-        
  Upalny lipiec 2005 roku, duże, śląskie miasto, a w nim trójka nie znających się bliżej ludzi: mały Sebastian, nastoletnia Marta i Józef. Los sprawia, że każde z nich, zmuszone jest do szybkiego zdobycia niewielkiej, acz będącej poza zasięgiem sumy pieniędzy: by nie utracić godności, by zmienić swe życie, by zachować sny. Scenariusz prowadzony w równoległych, przeplatających się wątkach, opowiada o ich zmaganiach z codziennością. O dzielności, pasji i hardości, z jaką próbują dojść do celu. O tym, jak ta wspólna droga ich wiąże. Wreszcie o determinacji, z jaką realizują swe marzenia. Czwartym, równie ważnym bohaterem opowieści jest miasto. Bezładne, naznaczone wojną, zmianami granic, brudne i piękne, biedne i pełne nowobogackich enklaw, okrutne, ale i będące osłoną dla potrzebujących. Miasto aż gęste od własnego, podskórnego życia.  ... dojść do celu. O tym, jak ta wspólna droga ich wiąże. Wreszcie o determinacji, z jaką realizują swe marzenia. Czwartym, równie ważnym bohaterem opowieści jest miasto. Bezładne, naznaczone wojną, zmianami granic, brudne i piękne, biedne i pełne nowobogackich enklaw, okrutne, ale i będące osłoną dla potrzebujących. Miasto aż gęste od własnego, podskórnego życia.
-    

@@ -1,9 +1,5 @@
+Igrzyska śmierci: W pierścieniu ognia / The Hunger Games: Catching Fire 2013 
+=============
+[![Igrzyska śmierci: W pierścieniu ognia / The Hunger Games: Catching Fire 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/igrzyska-smierci-w-pierscieniu-ognia-the-hunger-games-catching-fire-2013)
 
-        Igrzyska śmierci: W pierścieniu ognia / The Hunger Games: Catching Fire 2013 
-        =============
-        
-        [![Igrzyska śmierci: W pierścieniu ognia / The Hunger Games: Catching Fire 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/igrzyska-smierci-w-pierscieniu-ognia-the-hunger-games-catching-fire-2013)
-        
-        
  Kontynuacja wydarzeń z pierwszej części fenomenalnych 'Igrzysk śmierci', które zawładnęły wyobraźnią publiczności na całym świecie. Do zjawiskowej obsady (młode gwiazdy Jennifer Lawrence, Josh Hutcherson i Liam Hemsworth) dołącza zdobywca Oscara Philip Seymour Hoffman. Po zwycięstwie w 74. Głodowych Igrzyskach, Katniss Everdeen (Lawrence) oraz Peeta Mellark (Hutcherson) udają się na obowiązkowe Tournee Zwycięzców. Choć zuchwale złamali reguły rozgrywki, w glorii zwycięstwa odwiedzają kolejne dystrykty. Dowiadują się o fali zamieszek, do których przyczynił się ich niebywały wyczyn. W tym samym czasie prezydent Snow (Donald Sutherland) przystępuje do organizacji jubileuszowych, 75. Igrzysk, w których dawni zwycięzcy będą musieli stanąć przeciw sobie. Te wydarzenia mogą zmienić państwo Panem na zawsze. 'W pierścieniu ognia' to druga część bestsellerowej trylogii autorstwa Suzanne Collins, która stała się jednym z największych wydawniczych fenomenów ostatnich lat.   ... odwiedzają kolejne dystrykty. Dowiadują się o fali zamieszek, do których przyczynił się ich niebywały wyczyn. W tym samym czasie prezydent Snow (Donald Sutherland) przystępuje do organizacji jubileuszowych, 75. Igrzysk, w których dawni zwycięzcy będą musieli stanąć przeciw sobie. Te wydarzenia mogą zmienić państwo Panem na zawsze. 'W pierścieniu ognia' to druga część bestsellerowej trylogii autorstwa Suzanne Collins, która stała się jednym z największych wydawniczych fenomenów ostatnich lat.
-    

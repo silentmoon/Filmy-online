@@ -1,9 +1,5 @@
+Wrzeszczący faceci / Huutajat 2003 
+=============
+[![Wrzeszczący faceci / Huutajat 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wrzeszczacy-faceci-huutajat-2003)
 
-        Wrzeszczący faceci / Huutajat 2003 
-        =============
-        
-        [![Wrzeszczący faceci / Huutajat 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wrzeszczacy-faceci-huutajat-2003)
-        
-        
  Na połnocy Finlandii w mieście Oulu trzydziestu mężczyzn w gumowych krawatach wykrzykuje marsze patriotycze, fragmenty prawa międzynarodowego, hymny i... piosenki dziecięce. Pieczę nad programem i szalonymi pomysłami chóru sprawuje żelazną ręką dyrygent Petri Sirvio. Ich koncerty to spotkanie z zupełnie niecodzienną ekspresją artystyczną. Chór męski z Finlandii wyjeżdża na występ do Tokio stawiając sobie za cel zrobienie dobrych zdjęć widowni w momencie...e... wykrzykiwania hymnu Japonii. 'Wrzeszczący faceci', mimo oporów ambasady Finlandii i dyrekcji Muzeum Sztuki Współczesnej w Paryżu, z powodzeniem wykrzykują również Marsyliankę. Chór ubrany w czarne garnitury, białe koszule i gumowe krawaty przez ostatnie 15 lat przeszedł drogę od pomysłu, który narodził się w barze, do artystycznych performance'ów w szanowanych centrach sztuki współczesnej. Ich występy zawsze spotykają się ze zdecydowanymi reakcjami. Widownia jest poruszona, zdumiona, a czasem wręcz zszokowana. Ich wersje hymnów narodowych nie wszystkich bawią. Performance oparty jest na kontrastach. Zdyscyplinowany i klasycznie ubrany chór w gumowych krawatach wykrzykuje swój repertuar zawsze w języku kraju, w którym występuje. Precyzyjna wymowa miesza się tutaj ze zwykłym wyciem, elementy komiczne z momentami śmiertelnej powagi.  ... e... wykrzykiwania hymnu Japonii. 'Wrzeszczący faceci', mimo oporów ambasady Finlandii i dyrekcji Muzeum Sztuki Współczesnej w Paryżu, z powodzeniem wykrzykują również Marsyliankę. Chór ubrany w czarne garnitury, białe koszule i gumowe krawaty przez ostatnie 15 lat przeszedł drogę od pomysłu, który narodził się w barze, do artystycznych performance'ów w szanowanych centrach sztuki współczesnej. Ich występy zawsze spotykają się ze zdecydowanymi reakcjami. Widownia jest poruszona, zdumiona, a czasem wręcz zszokowana. Ich wersje hymnów narodowych nie wszystkich bawią. Performance oparty jest na kontrastach. Zdyscyplinowany i klasycznie ubrany chór w gumowych krawatach wykrzykuje swój repertuar zawsze w języku kraju, w którym występuje. Precyzyjna wymowa miesza się tutaj ze zwykłym wyciem, elementy komiczne z momentami śmiertelnej powagi.
-    

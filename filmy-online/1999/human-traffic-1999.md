@@ -1,9 +1,5 @@
+Human Traffic 1999 
+=============
+[![Human Traffic 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/human-traffic-1999)
 
-        Human Traffic 1999 
-        =============
-        
-        [![Human Traffic 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/human-traffic-1999)
-        
-        
  Pełnometrażowy debiut reżysera Justina Kerrigana opowiada o czterdziestu ośmiu weekendowych godzinach z życia piątki przyjaciół z walijskiego Cardiff. Narrator filmu i jego główny bohater, Jip (John Simm) pracuje w sklepie z odzieżą i notorycznie zadręcza się perspektywą impotencji. Lulu (Lorraine Pilkington) na każdym kroku podkreśla swoją niezależność; choć zmienia facetów jak rękawiczki, najlepiej czuje się bez stałego partnera. Koop (Shaun Parkes) pracuje w sklepie płytowym, marzy o karierze dj-a i gdyby nie to, że wciąż oskarża swoją dziewczynę Ninę (Nicola Reynolds) o niewierność, tworzy z nią całkiem udany związek. Jest jeszcze Moff (Danny Dyer) - ich imprezowy kompan, wyraźnie nieprzystosowany do życia. Młodzi przyjaciele żyją tylko dla weekendu. Ciężko pracują przez cały tydzień, lecz gdy przychodzi wymarzony piątek, odsuwają na bok wszystkie swoje problemy i oddają się szalonej zabawie. Justin Kerrigan portretuje brytyjską młodzież, choć tak naprawdę ich weekendowe perypetie niewiele odbiegają od przygód innych dwudziesto- i  letnich Europejczyków. Rozmowy przy piwie w pubie, muzyka, beztroska na klubowym parkiecie, dalekie od moralizatorstwa ukazanie przywiązania młodych do używek. A wszystko to przeplatane mniejszymi lub większymi rozterkami, z jakimi borykają się młodzi ludzie na całym świecie.  ... płytowym, marzy o karierze dj-a i gdyby nie to, że wciąż oskarża swoją dziewczynę Ninę (Nicola Reynolds) o niewierność, tworzy z nią całkiem udany związek. Jest jeszcze Moff (Danny Dyer) - ich imprezowy kompan, wyraźnie nieprzystosowany do życia. Młodzi przyjaciele żyją tylko dla weekendu. Ciężko pracują przez cały tydzień, lecz gdy przychodzi wymarzony piątek, odsuwają na bok wszystkie swoje problemy i oddają się szalonej zabawie. Justin Kerrigan portretuje brytyjską młodzież, choć tak naprawdę ich weekendowe perypetie niewiele odbiegają od przygód innych dwudziesto- i więcej letnich Europejczyków. Rozmowy przy piwie w pubie, muzyka, beztroska na klubowym parkiecie, dalekie od moralizatorstwa ukazanie przywiązania młodych do używek. A wszystko to przeplatane mniejszymi lub większymi rozterkami, z jakimi borykają się młodzi ludzie na całym świecie.
-    

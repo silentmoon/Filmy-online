@@ -1,9 +1,5 @@
+Femme fatale 2002 
+=============
+[![Femme fatale 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/femme-fatale-2002)
 
-        Femme fatale 2002 
-        =============
-        
-        [![Femme fatale 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/femme-fatale-2002)
-        
-        
  Podczas festiwalu w Cannes zuchwała szajka złodziei dokonuje perfekcyjnie przygotowanego skoku. Kradną, warty miliony, stanik z brylantów, w którym przyszła jedna z gwiazd. Należąca do bandy piękna Lily (Rebecca Romijn-Stamos) wyprowadza jednak kamratów w pole, zostawia rannego szefa gangu na pastwę policji i ucieka z łupem. Bandyci ruszają jej tropem. Zrządzeniem losu Lily trafia na swoją sobowtórkę, przejmuje jej tożsamość i wyjeżdża do USA. Po kilku latach wraca do Paryża jako żona amerykańskiego ambasadora. Pilnie strzeże tajemnicy swojej przeszłości. Tak się składa, że sekretem tym zainteresowane są paryskie brukowce. Paparazzi Bardo (Antonio Banderas) robi pani ambasadorowej zdjęcie dla plotkarskiego pisma. Fotografia Lily w prasie nie uchodzi uwagi jej dawnych wspólników, którzy od lat czekają na okazję do zemsty. Ani bandyci, ani Bardo nie zdają sobie jednak sprawy, z kim mają do czynienia. Lily to kobieta fatalna - kto wejdzie jej w drogę, szybko wpada w poważne kłopoty.  ... jako żona amerykańskiego ambasadora. Pilnie strzeże tajemnicy swojej przeszłości. Tak się składa, że sekretem tym zainteresowane są paryskie brukowce. Paparazzi Bardo (Antonio Banderas) robi pani ambasadorowej zdjęcie dla plotkarskiego pisma. Fotografia Lily w prasie nie uchodzi uwagi jej dawnych wspólników, którzy od lat czekają na okazję do zemsty. Ani bandyci, ani Bardo nie zdają sobie jednak sprawy, z kim mają do czynienia. Lily to kobieta fatalna - kto wejdzie jej w drogę, szybko wpada w poważne kłopoty.
-    

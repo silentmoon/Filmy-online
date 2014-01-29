@@ -1,9 +1,5 @@
+Inny świat 2012 
+=============
+[![Inny świat 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/inny-swiat-2012)
 
-        Inny świat 2012 
-        =============
-        
-        [![Inny świat 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/inny-swiat-2012)
-        
-        
  'Inny Świat' to filmowa opowieść o świecie, którego już nie ma. Danuta Szaflarska jest narratorką i przewodnikiem po historii i kulturze, które ukształtowały ją jako człowieka. Oszczędna forma i zdjęcia Artura Reinharta utrzymane głównie w czarno-białej poetyce, przeplatane archiwaliami ze zbiorów aktorki, a także kadrami z filmowych produkcji z których słynie Danuta Szaflarska – 'Zakazanych piosenek', 'Skarbu', 'Pożegnania z Marią' czy 'Pora umierać', tworzą ramę dla pełnej dygresji, wspomnień i poczucia humoru opowieści, którą dzieli się bohaterka. Przez symboliczne 97 minut filmu, które jest bezpośrednim nawiązaniem do wieku aktorki – Danuta Szaflarska w czasie powstawania filmu miała 97 lat – widzowie mają okazję zobaczyć świat widziany oczami tej wyjątkowej osobowości polskiej kultury.  ... dygresji, wspomnień i poczucia humoru opowieści, którą dzieli się bohaterka. Przez symboliczne 97 minut filmu, które jest bezpośrednim nawiązaniem do wieku aktorki – Danuta Szaflarska w czasie powstawania filmu miała 97 lat – widzowie mają okazję zobaczyć świat widziany oczami tej wyjątkowej osobowości polskiej kultury.
-    

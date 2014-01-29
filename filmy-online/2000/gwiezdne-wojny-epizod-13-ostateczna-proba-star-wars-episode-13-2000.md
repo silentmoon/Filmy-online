@@ -1,9 +1,5 @@
+Gwiezdne wojny - Epizod 13: Ostateczna próba / Star Wars - Episode 13 2000 
+=============
+[![Gwiezdne wojny - Epizod 13: Ostateczna próba / Star Wars - Episode 13 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gwiezdne-wojny-epizod-13-ostateczna-proba-star-wars-episode-13-2000)
 
-        Gwiezdne wojny - Epizod 13: Ostateczna próba / Star Wars - Episode 13 2000 
-        =============
-        
-        [![Gwiezdne wojny - Epizod 13: Ostateczna próba / Star Wars - Episode 13 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gwiezdne-wojny-epizod-13-ostateczna-proba-star-wars-episode-13-2000)
-        
-        
  Akcja rozgrywa się wiele lat po wydarzeniach znanych z filmów Lucasa. Imperium zostało pokonane i odradza się Republika. Zaczynają z powrotem powstawać szkoły Jedi, które szkolą kandydatów z całej galaktyki. Nasz film opowiadał będzie historię 4 adeptów szkoły Jedi, którzy właśnie kończą naukę w Akademii. Żeby zostać rycerzami muszą jednak przejść specjalny test, czyli tytułową 'Ostateczną Próbę'. Nasi bohaterowie odlatują na małą, nieznaną planetę, na której ma odbyć się próba, ale nie wiedzą, że nic nie potoczy się jak powinno i że w Ostateczną Próbę zamieszana jest Ciemna Strona. Adepci będą musieli stawić czoła klonom, Huttom, mściwym przedstawicielom nieznanych ras oraz żądnym władzy mistrzom Jedi. 'Ostateczna próba'; Real, 51 MB, 320x240   ... próba, ale nie wiedzą, że nic nie potoczy się jak powinno i że w Ostateczną Próbę zamieszana jest Ciemna Strona. Adepci będą musieli stawić czoła klonom, Huttom, mściwym przedstawicielom nieznanych ras oraz żądnym władzy mistrzom Jedi. 'Ostateczna próba'; Real, 51 MB, 320x240
-    

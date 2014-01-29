@@ -1,9 +1,5 @@
+Nic do oclenia / Rien à Déclarer 2010 
+=============
+[![Nic do oclenia / Rien à Déclarer 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nic-do-oclenia-rien--dclarer-2010)
 
-        Nic do oclenia / Rien à Déclarer 2010 
-        =============
-        
-        [![Nic do oclenia / Rien à Déclarer 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nic-do-oclenia-rien--dclarer-2010)
-        
-        
  1 stycznia 1993 roku – Zniesienie granic celnych w UE. Dwóch agentów służby celnej – jeden Belg i jeden Francuz – dowiaduje się, że ich posterunki graniczne, ta w francuskim Courquain i ta w belgijskim Koorkin, niedługo znikną. Frankofobiczny ze strony ojca, zagorzały agent belgijskiej służby celnej Ruben Vandevoorde zostaje zmuszony do stworzenia pierwszego mobilnego francusko-belgijskiego posterunku granicznego. Jego francuski partner, Mathias Ducatel, odbierany przez Rubena jako odwieczny wróg, jest potajemnie zakochany w siostrze Rubena. Wywołując szok otoczenia, zgadza się zostać partnerem Vandevoorde’a, aby patrolować razem bezdroża po obu stronach zniesionej granicy, w specjalnym pojeździe międzynarodowej jednostki celnej – rozpadającym się Renault 4.   ... Rubena jako odwieczny wróg, jest potajemnie zakochany w siostrze Rubena. Wywołując szok otoczenia, zgadza się zostać partnerem Vandevoorde’a, aby patrolować razem bezdroża po obu stronach zniesionej granicy, w specjalnym pojeździe międzynarodowej jednostki celnej – rozpadającym się Renault 4.
-    

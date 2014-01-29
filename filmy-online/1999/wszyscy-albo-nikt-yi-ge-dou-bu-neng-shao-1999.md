@@ -1,9 +1,5 @@
+Wszyscy albo nikt / Yi ge dou bu neng shao 1999 
+=============
+[![Wszyscy albo nikt / Yi ge dou bu neng shao 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wszyscy-albo-nikt-yi-ge-dou-bu-neng-shao-1999)
 
-        Wszyscy albo nikt / Yi ge dou bu neng shao 1999 
-        =============
-        
-        [![Wszyscy albo nikt / Yi ge dou bu neng shao 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wszyscy-albo-nikt-yi-ge-dou-bu-neng-shao-1999)
-        
-        
  Nauczyciel ze szkoły podstawowej z małej górskiej wioski w Chinach musi wyjechać na miesiąc, by zaopiekować się chorą matką. Na swoje miejsce zmuszony jest zatrudnić trzynastoletnią dziewczynkę o imieniu Wei. Obiecuje, że jeśli po swoim powrocie zastanie w klasie wszystkich uczniów, wypłaci jej wysoką nagrodę. Wei codziennie sprawdza obecność, zamyka uczniów w klasie i pilnuje, aby żaden z nich nie uciekł. Jej wysiłki na nic się zdają - jeden z najbiedniejszych uczniów musi wyjechać do miasta, by zarabiać na życie. Wei nie daje jednak za wygraną i wyrusza w ślad za nim zdecydowana na wszystko, by namówić go do powrotu. [opis dystrybutora]  ... wyjechać do miasta, by zarabiać na życie. Wei nie daje jednak za wygraną i wyrusza w ślad za nim zdecydowana na wszystko, by namówić go do powrotu. [opis dystrybutora]
-    

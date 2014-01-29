@@ -1,9 +1,5 @@
+Ostatnie tango w Paryżu / Ultimo tango a Parigi 1972 
+=============
+[![Ostatnie tango w Paryżu / Ultimo tango a Parigi 1972 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ostatnie-tango-w-paryzu-ultimo-tango-a-parigi-1972)
 
-        Ostatnie tango w Paryżu / Ultimo tango a Parigi 1972 
-        =============
-        
-        [![Ostatnie tango w Paryżu / Ultimo tango a Parigi 1972 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ostatnie-tango-w-paryzu-ultimo-tango-a-parigi-1972)
-        
-        
  Bohaterowie filmu, starzejący się Amerykanin (Marlon Brando) i młodziutka Francuzka (debiutująca na ekranie Maria Schneider), spotykają się przypadkowo w pustym mieszkaniu w Paryżu. I nic o sobie nie wiedząc, decydują się na sadomasochistyczny związek seksualny, który staje się dla nich przekraczaniem kolejnych barier. Historia ta, pełna tradycji literackiej i filmowej (choćby koło ratunkowe z napisem L’Atalante przywołującym antymieszczańskie dzieło Jeana Vigo z lat trzydziestych) jest przepełniona perwersyjnym erotyzmem podszytym psychoanalizą. Ale także oddaje nastrój dekadenckiej rozpaczy zakorzenionej w myśli egzystencjalnej. Bowiem romans tej dziwnej pary załamuje się wtedy, gdy zdaje się, iż między kochankami nawiązuje się nić porozumienia. Zwłaszcza Marlon Brando stworzył postać przejmująco tragiczną, zyskując dzięki niej – jak również dzięki kreacji w 'Ojcu chrzestnym' Coppoli w tym samym czasie – pozycję wielkiego aktora światowego kina.   ... trzydziestych) jest przepełniona perwersyjnym erotyzmem podszytym psychoanalizą. Ale także oddaje nastrój dekadenckiej rozpaczy zakorzenionej w myśli egzystencjalnej. Bowiem romans tej dziwnej pary załamuje się wtedy, gdy zdaje się, iż między kochankami nawiązuje się nić porozumienia. Zwłaszcza Marlon Brando stworzył postać przejmująco tragiczną, zyskując dzięki niej – jak również dzięki kreacji w 'Ojcu chrzestnym' Coppoli w tym samym czasie – pozycję wielkiego aktora światowego kina.
-    

@@ -1,9 +1,5 @@
+Antena / La Antena 2007 
+=============
+[![Antena / La Antena 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/antena-la-antena-2007)
 
-        Antena / La Antena 2007 
-        =============
-        
-        [![Antena / La Antena 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/antena-la-antena-2007)
-        
-        
  Niepowtarzalny, niezwykły, surrealistyczny obraz, pięknie opowiedziana bajka, wysmakowany wizualnie niemy film, odwołujący się do niemieckiego ekspresjonizmu filmowego, zwłaszcza do dzieł Fritza Langa i Friedricha Murnaua. ?Antena? Estebana Sapira to prawdziwa uczta dla oka i gratka dla wielbicieli kina. Miasto bez Głosu rządzone jest przez Pana TV. Odebrał on mieszkańcom głos i przejął całkowitą kontrolę nad każdym wypowiadanym słowem oraz każdym przedstawianym obrazem.m. Zmusił ich do żywienia się wyłącznie żywnością jego własnej produkcji ? TELE-POKARMEM. Pan TV to nie tyle monopolista, ile personifikacja zła i totalitaryzmu. W tajemnicy pracuje nad hipnotyzującym urządzeniem, które ma mu pomóc w zawładnięciu umysłami obywateli. Jednym z etapów realizacji jego planu jest porwanie jedynej osoby w mieście, która posiada głos, pięknej piosenkarki telewizyjnej. Jednak wśród mieszkańców miasta znajdzie się kilku śmiałków, którzy postanowią pokrzyżować plany Pana TV? [opis dystrybutora]  ... m. Zmusił ich do żywienia się wyłącznie żywnością jego własnej produkcji ? TELE-POKARMEM. Pan TV to nie tyle monopolista, ile personifikacja zła i totalitaryzmu. W tajemnicy pracuje nad hipnotyzującym urządzeniem, które ma mu pomóc w zawładnięciu umysłami obywateli. Jednym z etapów realizacji jego planu jest porwanie jedynej osoby w mieście, która posiada głos, pięknej piosenkarki telewizyjnej. Jednak wśród mieszkańców miasta znajdzie się kilku śmiałków, którzy postanowią pokrzyżować plany Pana TV? [opis dystrybutora]
-    

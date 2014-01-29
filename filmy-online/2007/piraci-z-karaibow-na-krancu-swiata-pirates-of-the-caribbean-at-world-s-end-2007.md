@@ -1,9 +1,5 @@
+Piraci z Karaibów: Na krańcu świata / Pirates of the Caribbean: At World's End 2007 
+=============
+[![Piraci z Karaibów: Na krańcu świata / Pirates of the Caribbean: At World's End 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/piraci-z-karaibow-na-krancu-swiata-pirates-of-the-caribbean-at-world-s-end-2007)
 
-        Piraci z Karaibów: Na krańcu świata / Pirates of the Caribbean: At World's End 2007 
-        =============
-        
-        [![Piraci z Karaibów: Na krańcu świata / Pirates of the Caribbean: At World's End 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/piraci-z-karaibow-na-krancu-swiata-pirates-of-the-caribbean-at-world-s-end-2007)
-        
-        
  Dobre czasy, w których piraci królowali na wszystkich morzach świata, powoli dobiegają końca. Will Turner udaje się razem z dotychczasowym wrogiem Barbossą w podróż na Daleki Wschód, gdzie mają nadzieję na odnalezienie tajemniczych map, które pomogą im odkryć skrytkę Davy'ego Jones'a, a następnie ocalić kapitana Jacka Sparrow'a. Will chce także uratować swojego ojca, dlatego musi odzyskać Czarną Perłę, która jako jedyna jest w stanie doścignąć Latającego Holendra. Tymczasem Jones wraz z lordem Cutlerem Beckettem, demonicznym azjatyckim piratem Sao Fengiem i Jamesem Norringtonem zawierają układ zagrażający wolności i życiu Jacka, Elizabeth, Willa, Barbarossy i wszystkich piratów na całym świecie. Jeśli główni bohaterowie chcą ujść z tej przygody cało, muszą udać się na terytorium dotychczas nie zaznaczone na żadnej mapie - na wyspę Shipwreck na Krańcu Świata...   ... Jones wraz z lordem Cutlerem Beckettem, demonicznym azjatyckim piratem Sao Fengiem i Jamesem Norringtonem zawierają układ zagrażający wolności i życiu Jacka, Elizabeth, Willa, Barbarossy i wszystkich piratów na całym świecie. Jeśli główni bohaterowie chcą ujść z tej przygody cało, muszą udać się na terytorium dotychczas nie zaznaczone na żadnej mapie - na wyspę Shipwreck na Krańcu Świata...
-    

@@ -1,9 +1,5 @@
+Zwrotniczy / De Wisselwachter 1986 
+=============
+[![Zwrotniczy / De Wisselwachter 1986 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zwrotniczy-de-wisselwachter-1986)
 
-        Zwrotniczy / De Wisselwachter 1986 
-        =============
-        
-        [![Zwrotniczy / De Wisselwachter 1986 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zwrotniczy-de-wisselwachter-1986)
-        
-        
  Tytułowy zwrotniczy (Jim van der Woude) to analfabeta mieszkający na odludziu, przy torach kolejowych, które łączą miasto z południem kraju. Żyje sam i jest regularnie odwiedzany jedynie przez listonosza, starego maszynistę i jego asystenta. Niemal niewolniczo poświęca się swojej pracy - przestawianiu zwrotnicy tak, by przejeżdżające pociągi mogły zmienić tor. Prawie nigdy się nie odzywa, co zresztą nie ma wielkiego znaczenia: jego z rzadka zaglądający goście są równie małomówni, co on sam. Wraz z nadejściem zimy spokój zwrotniczego zostaje zburzony: z przejeżdżającego pociągu wysiada przez pomyłkę kobieta z miasta – piękna i szykowna Francuzka. Okoliczności zmuszają kobietę (w tej roli Stéphane Excoffier) do pozostania na miejscu przez cały rok. Rozmowa ze zwrotniczym jest niemożliwa - on nie mówi po francusku, ona po holendersku.   ... małomówni, co on sam. Wraz z nadejściem zimy spokój zwrotniczego zostaje zburzony: z przejeżdżającego pociągu wysiada przez pomyłkę kobieta z miasta – piękna i szykowna Francuzka. Okoliczności zmuszają kobietę (w tej roli Stéphane Excoffier) do pozostania na miejscu przez cały rok. Rozmowa ze zwrotniczym jest niemożliwa - on nie mówi po francusku, ona po holendersku.
-    

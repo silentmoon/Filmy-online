@@ -1,9 +1,5 @@
+Wojna światów / War of the Worlds 2005 
+=============
+[![Wojna światów / War of the Worlds 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wojna-swiatow-war-of-the-worlds-2005)
 
-        Wojna światów / War of the Worlds 2005 
-        =============
-        
-        [![Wojna światów / War of the Worlds 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wojna-swiatow-war-of-the-worlds-2005)
-        
-        
  Gdy Ray Ferrier kończył pewnego razu pracę w porcie, nie przypuszczał, że już następnego dnia nic nie będzie takie samo. Po przyjściu z pracy zastaje koło domu dwójkę swoich dzieci, wraz z byłą żoną i jej nowym mężem. Okazuje się, że Ray będzie się musiał zaopiekować dzieciakami przez kilka dni. W tym samym czasie na całym świecie dzieją się dziwne rzeczy - nadciągają burze, wielkie wyładowania elektryczne i brakuje prądu. Ojczyznę Raya dotyka to samo. Z rana na niebie pojawiają się straszne chmury, które według wszystkich zwiastują silną burzę. Jednak jest to bardzo dziwna burza - zupełnie bez grzmotów, ale z wieloma uderzeniami piorunów, nawet kilkakrotnie w jedno miejsce. Koło kościoła, na skrzyżowaniu, pioruny te zrobiły dużą dziurę w ziemi, wokół której natychmiast gromadzą się gapie. Nagle wszyscy zaczynają odczuwać dziwne drżenia ziemi. Po chwili ze środka wyłania się straszliwa machina, która w krótkim czasie zaczyna burzyć całe miasto i zabijać wszystkich napotkanych po drodze ludzi. W ten sposób zaczyna się straszliwa masakra.   ... pojawiają się straszne chmury, które według wszystkich zwiastują silną burzę. Jednak jest to bardzo dziwna burza - zupełnie bez grzmotów, ale z wieloma uderzeniami piorunów, nawet kilkakrotnie w jedno miejsce. Koło kościoła, na skrzyżowaniu, pioruny te zrobiły dużą dziurę w ziemi, wokół której natychmiast gromadzą się gapie. Nagle wszyscy zaczynają odczuwać dziwne drżenia ziemi. Po chwili ze środka wyłania się straszliwa machina, która w krótkim czasie zaczyna burzyć całe miasto i zabijać wszystkich napotkanych po drodze ludzi. W ten sposób zaczyna się straszliwa masakra.
-    

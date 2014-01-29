@@ -1,9 +1,5 @@
+Biała noc / Nuit blanche 2011 
+=============
+[![Biała noc / Nuit blanche 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/biala-noc-nuit-blanche-2011)
 
-        Biała noc / Nuit blanche 2011 
-        =============
-        
-        [![Biała noc / Nuit blanche 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/biala-noc-nuit-blanche-2011)
-        
-        
  Dramatyczny pościg samochodowy pustymi ulicami Paryża. Torba z pokaźną ilością kokainy zmienia właściciela. Jeden z napastników – czterdziestoletni Vincent (w tej roli Tomer Sisley znany polskim widzom m.in. z filmu 'Largo Winch'), zostaje rozpoznany. Sprawa się komplikuje. Vincent otrzymuje wiadomość, że jego syn został porwany. Chcąc go uratować, musi oddać towar. Jednocześnie okazuje się, że sam padł ofiarą spisku. Wielki nocny klub taneczny Le Tarmac staje się sceną skomplikowanej intrygi, w której głośna muzyka towarzyszy walce o dziecko i reputację Vincenta. W świecie, w którym nikt nikomu nie ufa, Vincent nie ma wyjścia i musi grać na dwa fronty. W ostatniej chwili niespodziewanie otrzymuje jednak pomoc z najmniej oczekiwanej strony. Długa, biała noc nie dla wszystkich zakończy się jednak szczęśliwie… 'Biała noc' to sensacyjny film akcji, przepełniony dynamicznymi i wartkimi ujęciami pościgów samochodowych, strzelanin i bijatyk, który trzyma widza w napięciu aż do ostatniej minuty. To znakomita propozycja dla miłośników kina akcji, zwłaszcza dla fanów Quentina Tarantino i Johna Woo oraz filmu 'Szklana pułapka'.  ... skomplikowanej intrygi, w której głośna muzyka towarzyszy walce o dziecko i reputację Vincenta. W świecie, w którym nikt nikomu nie ufa, Vincent nie ma wyjścia i musi grać na dwa fronty. W ostatniej chwili niespodziewanie otrzymuje jednak pomoc z najmniej oczekiwanej strony. Długa, biała noc nie dla wszystkich zakończy się jednak szczęśliwie… 'Biała noc' to sensacyjny film akcji, przepełniony dynamicznymi i wartkimi ujęciami pościgów samochodowych, strzelanin i bijatyk, który trzyma widza w napięciu aż do ostatniej minuty. To znakomita propozycja dla miłośników kina akcji, zwłaszcza dla fanów Quentina Tarantino i Johna Woo oraz filmu 'Szklana pułapka'.
-    

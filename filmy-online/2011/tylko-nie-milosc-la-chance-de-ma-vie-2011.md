@@ -1,9 +1,5 @@
+Tylko nie miłość / La Chance de ma vie 2011 
+=============
+[![Tylko nie miłość / La Chance de ma vie 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tylko-nie-milosc-la-chance-de-ma-vie-2011)
 
-        Tylko nie miłość / La Chance de ma vie 2011 
-        =============
-        
-        [![Tylko nie miłość / La Chance de ma vie 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tylko-nie-milosc-la-chance-de-ma-vie-2011)
-        
-        
  Julien ma poważny problem. Choć jest świetnym terapeutą małżeńskim, sam nie potrafi zatrzymać przy sobie kobiety na dłużej niż dwa tygodnie. I nie bez powodu - od czasów młodości Julien przynosi pecha wszystkim kobietom, które się w nim zakochują. Bynajmniej nie drobnego pecha. Ten pech może w jednym tygodniu parę razy posłać dziewczynę do szpitala, zrujnować jej karierę albo doprowadzić do śmiertelnej kłótni z rodziną. Jednym słowem Julien jest dla kobiet jak czarny kot. Joanna sprawdzi to na własnej skórze już w dniu, w którym go spotka po raz pierwszy. Sukcesy w pracy, dobra passa w miłości, istnieje ryzyko, że to wszystko się zmieni.   ... Joanna sprawdzi to na własnej skórze już w dniu, w którym go spotka po raz pierwszy. Sukcesy w pracy, dobra passa w miłości, istnieje ryzyko, że to wszystko się zmieni.
-    

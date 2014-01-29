@@ -1,9 +1,5 @@
+Vinci 2004 
+=============
+[![Vinci 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/vinci-2004)
 
-        Vinci 2004 
-        =============
-        
-        [![Vinci 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/vinci-2004)
-        
-        
  Po kilku latach odsiadywania kary za kradzież z włamaniem Cuma wychodzi z więzienia ze względu na zły stan zdrowia. Jego wyjście zaaranżował Gruby, paser, który zleca Cumie kradzież obrazu Leonarda da Vinci 'Dama z łasiczką' z Muzeum Czartoryskich w Krakowie. Cuma - specjalista od kradzieży dzieł sztuki - kompletuje ekipę. Zaczyna od wizyty u byłego wspólnika Juliana - specjalisty od ładunków wybuchowych. Mimo że przyjaciel porzucił złodziejski proceder, Cuma proponuje mu udział w kradzieży. Julian ma dylemat: z jednej strony dług wdzięczności wobec przyjaciela, który nie wydał go w śledztwie, z drugiej - obawa przed powrotem do dawnego życia. Próbuje więc pogodzić wodę z ogniem. Zgadza się wziąć udział w skoku, ale jednocześnie robi wszystko, by kradzież nie doszła do skutku. Zwraca się do starego fałszerza Hagena z prośbą o wykonanie kopii 'Damy z łasiczką'. Ten odmawia wymawiając się wiekiem, ale poleca mu Magdę - 28-letnią studentkę konserwacji zabytków na krakowskiej ASP.   ... udział w kradzieży. Julian ma dylemat: z jednej strony dług wdzięczności wobec przyjaciela, który nie wydał go w śledztwie, z drugiej - obawa przed powrotem do dawnego życia. Próbuje więc pogodzić wodę z ogniem. Zgadza się wziąć udział w skoku, ale jednocześnie robi wszystko, by kradzież nie doszła do skutku. Zwraca się do starego fałszerza Hagena z prośbą o wykonanie kopii 'Damy z łasiczką'. Ten odmawia wymawiając się wiekiem, ale poleca mu Magdę - 28-letnią studentkę konserwacji zabytków na krakowskiej ASP.
-    

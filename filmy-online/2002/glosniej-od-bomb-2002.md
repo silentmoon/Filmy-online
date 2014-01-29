@@ -1,9 +1,5 @@
+Głośniej od bomb 2002 
+=============
+[![Głośniej od bomb 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/glosniej-od-bomb-2002)
 
-        Głośniej od bomb 2002 
-        =============
-        
-        [![Głośniej od bomb 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/glosniej-od-bomb-2002)
-        
-        
  Marcin jest mechanikiem samochodowym w małym miasteczku w południowej Polsce. Jego matka nie żyje od kilkunastu lat. Kilka dni temu zmarł ojciec. Marcin nie ma żadnej bliskiej rodziny - sam musi zająć się sprawami związanymi z pogrzebem. Pomaga mu Kaśka, jego dziewczyna. Pod presją rodziców na dzień przed pogrzebem Kaśka mówi Marcinowi o swoim wyjeździe do szkoły w Chicago. Dla chłopaka to spory cios. Marcin rezygnował ze studiów, żeby schorowanemu ojcu pomóc w prowadzeniu warsztatu. Po jego śmierci i wyjeździe Kaśki zostanie zupełnie sam. Wie, że dziewczyna może nie wrócić. Tymczasem na pogrzeb zjeżdżają się krewni z daleka. Marcin jest gospodarzem - ma coraz mniej czasu, żeby przekonać Kaśkę do rezygnacji z wyjazdu.   ... warsztatu. Po jego śmierci i wyjeździe Kaśki zostanie zupełnie sam. Wie, że dziewczyna może nie wrócić. Tymczasem na pogrzeb zjeżdżają się krewni z daleka. Marcin jest gospodarzem - ma coraz mniej czasu, żeby przekonać Kaśkę do rezygnacji z wyjazdu.
-    

@@ -1,9 +1,5 @@
+Fanny Hill: Zwierzenia kurtyzany / Fanny Hill 2007 
+=============
+[![Fanny Hill: Zwierzenia kurtyzany / Fanny Hill 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fanny-hill-zwierzenia-kurtyzany-fanny-hill-2007)
 
-        Fanny Hill: Zwierzenia kurtyzany / Fanny Hill 2007 
-        =============
-        
-        [![Fanny Hill: Zwierzenia kurtyzany / Fanny Hill 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fanny-hill-zwierzenia-kurtyzany-fanny-hill-2007)
-        
-        
  Pozostawiona sama sobie Fanny Hill (Rebecca Night) przyjmuje propozycję pracy od swojej przyjaciółki, Esther (Emma Stansfield), która pracuje u pani Brown (Alison Steadman) prowadzącej dom schadzek dla bogatych gentlemanów. Pierwszego dnia Fanny przechodzi 'szkolenie' odnośnie przyszłych obowiązków względem klientów. Dziewczyna po kilku dniach wdraża się w swoje obowiązki. Czas upływa jej spokojnie, aż do wystawnego przyjęcia zorganizowanego przez panią Brown, na którym spotyka swojego byłego narzeczonego. Ten donosi policji, że w owym miejscu uprawia się nierząd. Wystraszona dziewczyna ucieka i trafia na ulicę, gdzie pada ofiarą gwałtu. Z opresji ratuje ją starszy mężczyzna...  ... spotyka swojego byłego narzeczonego. Ten donosi policji, że w owym miejscu uprawia się nierząd. Wystraszona dziewczyna ucieka i trafia na ulicę, gdzie pada ofiarą gwałtu. Z opresji ratuje ją starszy mężczyzna...
-    

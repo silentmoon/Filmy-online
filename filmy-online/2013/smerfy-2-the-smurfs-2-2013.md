@@ -1,9 +1,5 @@
+Smerfy 2 / The Smurfs 2 2013 
+=============
+[![Smerfy 2 / The Smurfs 2 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/smerfy-2-the-smurfs-2-2013)
 
-        Smerfy 2 / The Smurfs 2 2013 
-        =============
-        
-        [![Smerfy 2 / The Smurfs 2 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/smerfy-2-the-smurfs-2-2013)
-        
-        
  Uwielbiane Smerfy powracają znowu! W kolejnym filmie familijnym łączącym żywą akcję z animacją, komedii 'Smerfy 2', zły czarownik Gargamel tworzy kilka złośliwych Smerfopodobnych kreatur zwanych Naughties mając nadzieję, że pozwolą mu one posiąść pełną mocy, magiczną istotę Smerfów. Kiedy jednak odkrywa, że tylko prawdziwe Smerfy mogą dać mu to, czego pragnie i tylko sekretne zaklęcie znane Smerfetce może zamienić Naughties w Smerfy, Gargamel decyduje się porwać Smerfetkę /w polskiej wersji Małgorzata Socha/ i zabiera ją do Paryża, gdzie jako największy czarownik na świecie zostaje otoczony uwielbieniem milionów. Teraz Papa Smerf, Gapcio, Maruda i Laluś będą musieli powrócić do naszego świata, połączyć siły z przyjaciółmi Patrickiem i Grace Winslow i uratować Smerfetkę! Czy Smerfetka, która zawsze czuła się inna, nawiąże relacje z Naughties - Vexy /w polskiej wersji Agnieszka Dygant/ i Hackusem? Czy Smerfom uda się przekonać ją, że ich miłość do niej jest prawdziwa?   ... polskiej wersji Małgorzata Socha/ i zabiera ją do Paryża, gdzie jako największy czarownik na świecie zostaje otoczony uwielbieniem milionów. Teraz Papa Smerf, Gapcio, Maruda i Laluś będą musieli powrócić do naszego świata, połączyć siły z przyjaciółmi Patrickiem i Grace Winslow i uratować Smerfetkę! Czy Smerfetka, która zawsze czuła się inna, nawiąże relacje z Naughties - Vexy /w polskiej wersji Agnieszka Dygant/ i Hackusem? Czy Smerfom uda się przekonać ją, że ich miłość do niej jest prawdziwa?
-    

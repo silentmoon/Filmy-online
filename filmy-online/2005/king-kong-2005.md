@@ -1,9 +1,5 @@
+King Kong 2005 
+=============
+[![King Kong 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/king-kong-2005)
 
-        King Kong 2005 
-        =============
-        
-        [![King Kong 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/king-kong-2005)
-        
-        
  Czas Wielkiego Kryzysu w Stanach Zjednoczonych. Aktorka Ann Darrow nie ma pracy i pieniędzy nawet na jedzenie. Z pomocą przychodzi jej filmowiec Carl Denham. Carl jest sfrustrowany, bo producenci chcą obciąć budżet jego nowego, jeszcze nie niedokończonego filmu. Reżyser wykrada więc jedyną istniejącą kopię swojego filmu i kompletuje ekipę tak, by zdążyć na statek 'S.S. Venture', odchodzący wieczorem z portu. Denham chce udać się na owianą legendą Wyspę Czaszek, położoną na Pacyfiku. Tam chce znaleźć atrakcyjne plenery do filmu. Wraz z nim na statek wsiadają m.in. Ann, która dostała główną rolę i scenarzysta Jack Driscoll. Kiedy w końcu udaje się im dotrzeć na wyspę, okazuje się, że nie bez powodu jest ona owiana mgłą tajemnicy. Żyją tam bowiem stwory, które powinny już dawno wyginąć - olbrzymie tyranozaury i wielki, liczący 9 m wysokości, goryl.  ... Pacyfiku. Tam chce znaleźć atrakcyjne plenery do filmu. Wraz z nim na statek wsiadają m.in. Ann, która dostała główną rolę i scenarzysta Jack Driscoll. Kiedy w końcu udaje się im dotrzeć na wyspę, okazuje się, że nie bez powodu jest ona owiana mgłą tajemnicy. Żyją tam bowiem stwory, które powinny już dawno wyginąć - olbrzymie tyranozaury i wielki, liczący 9 m wysokości, goryl.
-    

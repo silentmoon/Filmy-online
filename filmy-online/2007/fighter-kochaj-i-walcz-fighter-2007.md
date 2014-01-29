@@ -1,9 +1,5 @@
+Fighter: kochaj i walcz / Fighter 2007 
+=============
+[![Fighter: kochaj i walcz / Fighter 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fighter-kochaj-i-walcz-fighter-2007)
 
-        Fighter: kochaj i walcz / Fighter 2007 
-        =============
-        
-        [![Fighter: kochaj i walcz / Fighter 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fighter-kochaj-i-walcz-fighter-2007)
-        
-        
  Aicha wraz z rodzicami i rodzeństwem mieszka na obrzeżach Kopenhagi. Ma 17 lat i  właśnie kończy szkołę. Jej tureccy rodzice oczekują, że będzie przynosić do domu dobre stopnie i podobnie jak jej brat Ali, zostanie lekarzem. Ale Aicha nie ma zamiłowania do nauki. Jej pasją są sztuki walki i po lekcjach trenuje w szkolnej drużynie dla dziewcząt. Na zajęciach nie potrafi jednak zapanować nad własną ambicją i porywczym temperamentem i musi odejść z drużyny. Ale dziewczyna bynajmniej nie zamierza rezygnować z marzeń i wstępuje do profesjonalnego klubu kung fu. To oznacza zajęcia razem z chłopcami, coś na co jej konserwatywni rodzice nigdy by nie pozwolili. Kung fu to jednak całe życie Aichy i dziewczyna postanawia trenować potajemnie, wbrew woli rodziców. W czasie treningów pomaga jej Emil. Wkrótce okazuje się, że tę dwójkę łączy coś  niż tylko zamiłowanie do sztuk walki. Niestety obowiązujące w życiu reguły nie są tak proste jak te, którymi rządzi się kung fu i Aicha będzie musiała zdecydować kim jest i czego pragnie od życia.  ... bynajmniej nie zamierza rezygnować z marzeń i wstępuje do profesjonalnego klubu kung fu. To oznacza zajęcia razem z chłopcami, coś na co jej konserwatywni rodzice nigdy by nie pozwolili. Kung fu to jednak całe życie Aichy i dziewczyna postanawia trenować potajemnie, wbrew woli rodziców. W czasie treningów pomaga jej Emil. Wkrótce okazuje się, że tę dwójkę łączy coś więcej niż tylko zamiłowanie do sztuk walki. Niestety obowiązujące w życiu reguły nie są tak proste jak te, którymi rządzi się kung fu i Aicha będzie musiała zdecydować kim jest i czego pragnie od życia.
-    

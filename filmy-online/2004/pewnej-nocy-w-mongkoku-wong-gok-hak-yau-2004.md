@@ -1,9 +1,5 @@
+Pewnej nocy w Mongkoku / Wong gok hak yau 2004 
+=============
+[![Pewnej nocy w Mongkoku / Wong gok hak yau 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pewnej-nocy-w-mongkoku-wong-gok-hak-yau-2004)
 
-        Pewnej nocy w Mongkoku / Wong gok hak yau 2004 
-        =============
-        
-        [![Pewnej nocy w Mongkoku / Wong gok hak yau 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pewnej-nocy-w-mongkoku-wong-gok-hak-yau-2004)
-        
-        
  Obsypana nagrodami produkcja z Hongkongu, która udanie łączy film obyczajowy, akcję i sensację. Ten wielowątkowy dramat kryminalny został uznany za jeden z najlepszych wyprodukowanych w Hongkongu. W ulicznych porachunkach gangów ginie syn przywódcy jednego z nich. Aby dokonać zemsty, ojciec wynajmuje zabójcę - Roya, młodego mężczyznę z biednej wioski. Roy chce znaleźć w Honkongu swoją dziewczynę, która wyjechała z wioski do pracy i nie daje znaku życia. Policja nie chce dopuścić do morderstwa szefa gangu, aby nie wywołało to wojny gangów i wpada na trop Roya. Roy ratuje z opresji przypadkowo spotkaną prostytutkę, czym naraża się na gniew triady... [opis dystrybutora]  ... dopuścić do morderstwa szefa gangu, aby nie wywołało to wojny gangów i wpada na trop Roya. Roy ratuje z opresji przypadkowo spotkaną prostytutkę, czym naraża się na gniew triady... [opis dystrybutora]
-    

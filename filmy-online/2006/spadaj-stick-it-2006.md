@@ -1,9 +1,5 @@
+Spadaj! / Stick It 2006 
+=============
+[![Spadaj! / Stick It 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/spadaj-stick-it-2006)
 
-        Spadaj! / Stick It 2006 
-        =============
-        
-        [![Spadaj! / Stick It 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/spadaj-stick-it-2006)
-        
-        
  Ojciec Haley Graham (Missy Peregrym), po serii jej wyskoków i konfliktów z prawem, nie ma już najmniejszego pomysłu na to, jak utrzymać córkę w ryzach. A dziewczyna naprawdę ma fantazję! Gdy jej ostatni wybryk ponownie kończy się przed sądem, ten orzeka, że ma się stawić w renomowanej Akademii Gimnastyki Vickermana. Instytucja to nie dość, że legendarna i prestiżowa, lecz również słynąca z iście militarnego rygoru. To środowisko Haley zna aż za dobrze – niegdyś, z całkiem niezłymi wynikami, ćwiczyła w drużynie juniorek. Tak więc powraca do rzeczywistości pełnej rywalizacji, kompromisów i zasad… Jednak jej marna reputacja jest szybsza i dociera do szkoły na długo przed nią samą. Ferment, który Haley wprowadza do drużyny, stara się załagodzić trener – Burt Vickerman (Jeff Bridges), który od razu wyczuwa prawdziwy talent. Pragnie pomóc Haley pogodzić się z normalnym światem. Szorstki układ między Vickermanem i młodą zawodniczką wkrótce przeradza się w coś na kształt szacunku, budzi w niej ambicję, a zespołowi pozwala zobaczyć w niej kogoś wyjątkowego. Zaś pozostałe gimnastyczki zrozumieją, że niektóre zasady po prostu trzeba łamać.  ... całkiem niezłymi wynikami, ćwiczyła w drużynie juniorek. Tak więc powraca do rzeczywistości pełnej rywalizacji, kompromisów i zasad… Jednak jej marna reputacja jest szybsza i dociera do szkoły na długo przed nią samą. Ferment, który Haley wprowadza do drużyny, stara się załagodzić trener – Burt Vickerman (Jeff Bridges), który od razu wyczuwa prawdziwy talent. Pragnie pomóc Haley pogodzić się z normalnym światem. Szorstki układ między Vickermanem i młodą zawodniczką wkrótce przeradza się w coś na kształt szacunku, budzi w niej ambicję, a zespołowi pozwala zobaczyć w niej kogoś wyjątkowego. Zaś pozostałe gimnastyczki zrozumieją, że niektóre zasady po prostu trzeba łamać.
-    

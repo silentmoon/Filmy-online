@@ -1,9 +1,5 @@
+Krzyż walecznych 1958 
+=============
+[![Krzyż walecznych 1958 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krzyz-walecznych-1958)
 
-        Krzyż walecznych 1958 
-        =============
-        
-        [![Krzyż walecznych 1958 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krzyz-walecznych-1958)
-        
-        
  Obraz składa się z trzech nowel, do którch scenariusze powstały w oparciu o twórczość Józefa Hena. Akcja wszystkich rozgrywa się w czasie II Wojny Światowej. Krzyż: Franek Socha to wiejski fajtłapa i poczciwina. Podczas wojny wykazuje się jednak bohaterstwem i zostaje odznaczony Krzyżem Walecznych. Ma nadzieję, że po powrocie do rodzinnej wsi odzyska uznanie w oczach rodziny i znajomych. Wojnę postrzega jednak tylko jako działania frontowe. Po powrocie do domu przeżywa szok, gdy okazuje się, że wojna dotarła także tu, a z jego wsi zostały jedynie zgliszcza. Pies: Studium duchowej patologii spowodowanej przez wojnę. Do oddziału polskich żołnierzy przyplątuje się bezpański pies. Okazuje się jednak, że zwierzę zostało wyszkolone przez esesmanów do pilnowania jeńców w Oświęcimiu. Polacy wyładowują na nim swą nienawiść. Wdowa: Film pełen humoru i łagodnej satyry. Po wojnie, w małym miasteczku na Ziemiach Zachodnich ludzie próbują odnaleźć się w nowej rzeczywistości. Do miasteczka przybywa wdowa po bohaterze wojennym. Miejscowi traktują ją niemal jak obiekt kultu. Mało kto dostrzega, że jest ona wciąż młodą i atrakcyjną kobietą, która chętniej niż o żałobie, myśli o przyszłości.   ... przeżywa szok, gdy okazuje się, że wojna dotarła także tu, a z jego wsi zostały jedynie zgliszcza. Pies: Studium duchowej patologii spowodowanej przez wojnę. Do oddziału polskich żołnierzy przyplątuje się bezpański pies. Okazuje się jednak, że zwierzę zostało wyszkolone przez esesmanów do pilnowania jeńców w Oświęcimiu. Polacy wyładowują na nim swą nienawiść. Wdowa: Film pełen humoru i łagodnej satyry. Po wojnie, w małym miasteczku na Ziemiach Zachodnich ludzie próbują odnaleźć się w nowej rzeczywistości. Do miasteczka przybywa wdowa po bohaterze wojennym. Miejscowi traktują ją niemal jak obiekt kultu. Mało kto dostrzega, że jest ona wciąż młodą i atrakcyjną kobietą, która chętniej niż o żałobie, myśli o przyszłości.
-    

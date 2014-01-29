@@ -1,9 +1,5 @@
+Ostatni Taniec / One Last Dance 2003 
+=============
+[![Ostatni Taniec / One Last Dance 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ostatni-taniec-one-last-dance-2003)
 
-        Ostatni Taniec / One Last Dance 2003 
-        =============
-        
-        [![Ostatni Taniec / One Last Dance 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ostatni-taniec-one-last-dance-2003)
-        
-        
  Alex McGrath (Matthew Walker), błyskotliwy dyrektor artystyczny słynnej nowojorskiej szkoły baletowej, umiera nagle na atak serca. Oznacza to nie tylko utratę założyciela i genialnego inspiratora - zagrożone jest istnienie całej szkoły. Alex pozostawił ogromny dorobek twórczy, w tym legendarny taniec, nigdy dotąd nie wykonywany publicznie. Występ z wykorzystaniem tego układu może zaskarbić sobie przychylność sponsorów i uratować szkołę. Niezbędny jest jednak udział trójki absolwentów, którzy odeszli przed laty, zostawiając Alexa w trakcie przygotowań do premierowego wykonania jego choreografii. Mieli tam tańczyć główne partie i to z powodu ich rezygnacji sztuka nigdy się nie została wystawiona. Teraz pozostają jedynymi żyjącymi osobami, znającymi cały układ. Siedem lat wprowadziło wiele zmian w ich życiu. Travis MacPhearson (Patrick Swayze) stworzył sieć fitness klubów i odniósł duży sukces finansowy. Chrissa Lindh (Lisa Niemi) pożegnała się definitywnie ze światem profesjonalnego tańca. Dla Maxa Delano (George De La Pena) z kolei, taniec zawsze był wszystkim i tak pozostało. Czy troje tancerzy zechce obudzić demony przeszłości i spotkać się ponownie, by zrealizować marzenie, które kiedyś stracili?   ... absolwentów, którzy odeszli przed laty, zostawiając Alexa w trakcie przygotowań do premierowego wykonania jego choreografii. Mieli tam tańczyć główne partie i to z powodu ich rezygnacji sztuka nigdy się nie została wystawiona. Teraz pozostają jedynymi żyjącymi osobami, znającymi cały układ. Siedem lat wprowadziło wiele zmian w ich życiu. Travis MacPhearson (Patrick Swayze) stworzył sieć fitness klubów i odniósł duży sukces finansowy. Chrissa Lindh (Lisa Niemi) pożegnała się definitywnie ze światem profesjonalnego tańca. Dla Maxa Delano (George De La Pena) z kolei, taniec zawsze był wszystkim i tak pozostało. Czy troje tancerzy zechce obudzić demony przeszłości i spotkać się ponownie, by zrealizować marzenie, które kiedyś stracili? 
-    

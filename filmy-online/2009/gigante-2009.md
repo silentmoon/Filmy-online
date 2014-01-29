@@ -1,9 +1,5 @@
+Gigante 2009 
+=============
+[![Gigante 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gigante-2009)
 
-        Gigante 2009 
-        =============
-        
-        [![Gigante 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gigante-2009)
-        
-        
  Jara – 35-letni samotny, spokojny i nieśmiały mężczyzna – jest ochroniarzem w jednym z supermarketów na przedmieściach Montevideo. Pracuje na nocnej zmianie i za pomocą kamer monitoruje cały obiekt. Jego dyżury przebiegają dosyć spokojnie, bo w budynku niewiele się dzieje. W konsekwencji większość czasu Jara spędza dokładnie na tym samym co robi w domu: oglądaniu filmów, rozwiązywaniu krzyżówek czy słuchaniu muzyki. Wydaje się, że nic nie zakłóci monotonnej pracy mężczyzny. Jednak wszystko się zmienia, kiedy pewnej nocy na jednym z monitorów spostrzega młodą sprzątaczkę Julię. Dziewczyna wpada mu w oko. Jara coraz bardziej zaczyna się nią interesować i nie może przestać o niej myśleć. Początkowo godzinami obserwuje Julię na monitorach, kiedy dziewczyna sprząta supermarket. Potem postanawia dowiedzieć się o niej czegoś . Zaczyna ją śledzić, co szybko staje się jego obsesją...  ... mężczyzny. Jednak wszystko się zmienia, kiedy pewnej nocy na jednym z monitorów spostrzega młodą sprzątaczkę Julię. Dziewczyna wpada mu w oko. Jara coraz bardziej zaczyna się nią interesować i nie może przestać o niej myśleć. Początkowo godzinami obserwuje Julię na monitorach, kiedy dziewczyna sprząta supermarket. Potem postanawia dowiedzieć się o niej czegoś więcej. Zaczyna ją śledzić, co szybko staje się jego obsesją...
-    

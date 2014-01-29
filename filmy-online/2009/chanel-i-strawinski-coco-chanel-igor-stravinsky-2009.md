@@ -1,9 +1,5 @@
+Chanel i Strawiński / Coco Chanel & Igor Stravinsky 2009 
+=============
+[![Chanel i Strawiński / Coco Chanel & Igor Stravinsky 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chanel-i-strawinski-coco-chanel-igor-stravinsky-2009)
 
-        Chanel i Strawiński / Coco Chanel & Igor Stravinsky 2009 
-        =============
-        
-        [![Chanel i Strawiński / Coco Chanel & Igor Stravinsky 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chanel-i-strawinski-coco-chanel-igor-stravinsky-2009)
-        
-        
  Paryż, rok 1913. Coco Chanel (Anna Mouglalis) znajduje się wśród widzów oglądających premierę skandalicznego 'Święta wiosny' Igora Strawińskiego (Mads Mikkelsen). Dysonans rytmiczny partytury oraz szokująca choreografia wywołują prawdziwą burzę wśród konserwatywnej publiczności, zupełnie nie przygotowanej na muzyczną rewolucję. Coco jest pod dużym wrażeniem, kiedy Igor błyskawicznie opuszcza teatr. W 1920 roku dochodzi do ich ponownego spotkania. Interesy Coco rozkwitają w najlepsze, lecz jest ona pogrążona w żałobie po stracie swojego kochanka, Arthura 'Boy' Capela (Anatole Taubman). Igor uciekł do Francji z powodu rosyjskiej rewolucji. Między projektantką a kompozytorem nawiązuje się natychmiastowa nić współczucia oraz wzajemna fascynacja. Coco zaprasza Igora wraz z żoną Kateriną (Yelena Morozova) i dziećmi do swojej nowej willi Bel Respiro w Garches. W trakcie upalnych miesięcy Coco i Igor zostają sekretnymi kochankami. Wraz z rozwojem płomiennego romansu ich praca staje się bardziej twórcza: Igor zaczyna komponować w zupełnie innym, bardziej liberalnym stylu, a Coco tworzy wraz z perfumiarzem, Ernestem Beaux (Nicolas Vaude), legendarny zapach Chanel No. 5. Tymczasem napięcie w willi staje się niemal nie do zniesienia...   ... najlepsze, lecz jest ona pogrążona w żałobie po stracie swojego kochanka, Arthura 'Boy' Capela (Anatole Taubman). Igor uciekł do Francji z powodu rosyjskiej rewolucji. Między projektantką a kompozytorem nawiązuje się natychmiastowa nić współczucia oraz wzajemna fascynacja. Coco zaprasza Igora wraz z żoną Kateriną (Yelena Morozova) i dziećmi do swojej nowej willi Bel Respiro w Garches. W trakcie upalnych miesięcy Coco i Igor zostają sekretnymi kochankami. Wraz z rozwojem płomiennego romansu ich praca staje się bardziej twórcza: Igor zaczyna komponować w zupełnie innym, bardziej liberalnym stylu, a Coco tworzy wraz z perfumiarzem, Ernestem Beaux (Nicolas Vaude), legendarny zapach Chanel No. 5. Tymczasem napięcie w willi staje się niemal nie do zniesienia...
-    

@@ -1,9 +1,5 @@
+Silent Hill 2006 
+=============
+[![Silent Hill 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/silent-hill-2006)
 
-        Silent Hill 2006 
-        =============
-        
-        [![Silent Hill 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/silent-hill-2006)
-        
-        
  Rose (Radha Mitchell) rozpaczliwie poszukuje sposobu na wyleczenie swojej córki Sharon z dziwnej choroby, która skazuje dziewczynkę na pobyt w szpitalu psychiatrycznym. Postanawia zabrać córkę w podróż do Silent Hill - miasteczka, którego nazwę dziewczynka bezustannie przywołuje w snach. Chociaż mąż Christopher (Sean Bean) jest temu zdecydowanie przeciwny, Rose jest przekonana, że tylko wybierając się do tajemniczego miasteczka znajdzie rozwiązanie problemu. Kiedy zbliżają się do miasteczka, na drodze pojawia się zagadkowa postać, doprowadzając do wypadku. Po odzyskaniu przytomności, Rose stwierdza, że córka znikła. Z pomocą nieustraszonej policjantki (Laurie Holden), Rose rozpoczyna poszukiwania córki w Silent Hill. Spowitą we mgle osadę, którą wiele lat temu spustoszył potężny pożar, zamieszkują udręczone istoty, a nawiedzająca miasteczko ożywiona Ciemność dokonuje koszmarnej transformacji wszystkiego, czego tylko dotknie. Walcząc o odzyskanie córki, Rose poznaje coraz  sekretów Silent Hill: pełną przemocy i zakłamania purytańską przeszłość, przez którą osada stała się miejscem przeklętym. Odkrywa, że jej córka jest częścią wielkiego, przerażającego planu.  ... się do miasteczka, na drodze pojawia się zagadkowa postać, doprowadzając do wypadku. Po odzyskaniu przytomności, Rose stwierdza, że córka znikła. Z pomocą nieustraszonej policjantki (Laurie Holden), Rose rozpoczyna poszukiwania córki w Silent Hill. Spowitą we mgle osadę, którą wiele lat temu spustoszył potężny pożar, zamieszkują udręczone istoty, a nawiedzająca miasteczko ożywiona Ciemność dokonuje koszmarnej transformacji wszystkiego, czego tylko dotknie. Walcząc o odzyskanie córki, Rose poznaje coraz więcej sekretów Silent Hill: pełną przemocy i zakłamania purytańską przeszłość, przez którą osada stała się miejscem przeklętym. Odkrywa, że jej córka jest częścią wielkiego, przerażającego planu.
-    

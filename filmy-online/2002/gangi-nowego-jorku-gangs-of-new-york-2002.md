@@ -1,9 +1,5 @@
+Gangi Nowego Jorku / Gangs of New York 2002 
+=============
+[![Gangi Nowego Jorku / Gangs of New York 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gangi-nowego-jorku-gangs-of-new-york-2002)
 
-        Gangi Nowego Jorku / Gangs of New York 2002 
-        =============
-        
-        [![Gangi Nowego Jorku / Gangs of New York 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gangi-nowego-jorku-gangs-of-new-york-2002)
-        
-        
  XIX wiek, nowojorska dzielnica Five Points, jedno z najbiedniejszych miejsc w całej Ameryce, gdzie gangi walczyły o kontrolę na ulicach. W tych czasach bezprawia i niepohamowanej politycznej korupcji rozgrywa się filmowa historia Amsterdama Vallona (Leonardo DiCaprio), młodego irlandzkiego imigranta. Po 15-letnim pobycie w więzieniu, bohater wraca do Five Points, by zemścić się na Williamie Cuttingu (Daniel Day Lewis), zwanym też Billem Rzeźnikiem, przywódcy anty-imigranckiego gangu, który odpowiada za śmierć ojca Amsterdama. Chłopak wie, że pierwszym krokiem do dokonania wendetty jest wniknięcie w najbliższy krąg Billa. W międzyczasie Amsterdam poznaje Jenny Everdeane (Cameron Diaz), enigmatyczną kobietę-kieszonkowca, której ogromne poczucie niezależności i fascynująca piękność zniewalają go bez reszty. Jenny ma jednak własną mroczną przeszłość, która niespodziewanie komplikuje plany bohatera. Podróż Amsterdama przez ciemne zaułki Five Points przeradza się w walkę nie tylko o własne przetrwanie ale także o dobro ludzi jemu podobnych. Jego zmagania zbiegają się w czasie z największymi rozruchami w dziejach Ameryki zamieszkami, które wybuchły w Nowym Jorku, gdy w 1863 roku do miasta zawitały echa Wojny Secesyjnej.   ... anty-imigranckiego gangu, który odpowiada za śmierć ojca Amsterdama. Chłopak wie, że pierwszym krokiem do dokonania wendetty jest wniknięcie w najbliższy krąg Billa. W międzyczasie Amsterdam poznaje Jenny Everdeane (Cameron Diaz), enigmatyczną kobietę-kieszonkowca, której ogromne poczucie niezależności i fascynująca piękność zniewalają go bez reszty. Jenny ma jednak własną mroczną przeszłość, która niespodziewanie komplikuje plany bohatera. Podróż Amsterdama przez ciemne zaułki Five Points przeradza się w walkę nie tylko o własne przetrwanie ale także o dobro ludzi jemu podobnych. Jego zmagania zbiegają się w czasie z największymi rozruchami w dziejach Ameryki zamieszkami, które wybuchły w Nowym Jorku, gdy w 1863 roku do miasta zawitały echa Wojny Secesyjnej.
-    

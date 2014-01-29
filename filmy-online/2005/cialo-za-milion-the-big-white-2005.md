@@ -1,9 +1,5 @@
+Ciało za milion / The Big White 2005 
+=============
+[![Ciało za milion / The Big White 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cialo-za-milion-the-big-white-2005)
 
-        Ciało za milion / The Big White 2005 
-        =============
-        
-        [![Ciało za milion / The Big White 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cialo-za-milion-the-big-white-2005)
-        
-        
  Czarna komedia w klimacie 'Fargo', której akcja toczy się na zaśnieżonej Alasce. Paul Barnes, pracownik biura podróży nie ma łatwego życia. Problemy finansowe i kłopoty z chorą żoną Margaret zmuszają go do podjęcia radykalnych kroków. Paul postanawia zdobyć pieniądze korzystając z 'pomocy' zaginionego brata Raymonda. Droga do otrzymania wartego milion dolarów ubezpieczenia na jego życie nie jest jednak łatwa. Dociekliwy detektyw ubezpieczeniowy Ted zauważa, że od czasu zniknięcia brata nie minęło jeszcze 5 lat, nie można go więc uznać za zmarłego. Zrezygnowany Paul traci nadzieję na szybką poprawę swojego losu, aż do dnia, kiedy w pojemniku na śmieci obok swojego biura znajduje zwłoki. Do głowy przychodzi mu szatański pomysł: wystarczy przekonać Teda, że to jest właśnie ciało jego zaginionego brata. Wszystko wydaje się już układać po myśli Paula, gdy niespodziewanie pojawiają się u niego zabójcy, chcący odzyskać ciało swojej ofiary i biorą jego żonę jako zakładniczkę. Sprawa komplikuje się jeszcze bardziej, kiedy po przeczytaniu w gazecie swojego nekrologu odnajduje się brat Paula, Raymond...... [opis dystrybutora]  ... zniknięcia brata nie minęło jeszcze 5 lat, nie można go więc uznać za zmarłego. Zrezygnowany Paul traci nadzieję na szybką poprawę swojego losu, aż do dnia, kiedy w pojemniku na śmieci obok swojego biura znajduje zwłoki. Do głowy przychodzi mu szatański pomysł: wystarczy przekonać Teda, że to jest właśnie ciało jego zaginionego brata. Wszystko wydaje się już układać po myśli Paula, gdy niespodziewanie pojawiają się u niego zabójcy, chcący odzyskać ciało swojej ofiary i biorą jego żonę jako zakładniczkę. Sprawa komplikuje się jeszcze bardziej, kiedy po przeczytaniu w gazecie swojego nekrologu odnajduje się brat Paula, Raymond...... [opis dystrybutora]
-    

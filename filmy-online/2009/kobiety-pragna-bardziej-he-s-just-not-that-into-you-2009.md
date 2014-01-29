@@ -1,9 +1,5 @@
+Kobiety pragną bardziej / He's Just Not That Into You 2009 
+=============
+[![Kobiety pragną bardziej / He's Just Not That Into You 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kobiety-pragna-bardziej-he-s-just-not-that-into-you-2009)
 
-        Kobiety pragną bardziej / He's Just Not That Into You 2009 
-        =============
-        
-        [![Kobiety pragną bardziej / He's Just Not That Into You 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kobiety-pragna-bardziej-he-s-just-not-that-into-you-2009)
-        
-        
  Akcja rozgrywa się w Baltimore. Widzowie śledzą przeplatające się losy kilku bohaterów. Ich tematem przewodnim są trudności w porozumieniu i interpretowaniu zachowania innych. Wszyscy bezskutecznie próbują znaleźć miłość. Znudzona żona (Jennifer Connelly) rozważa, czy nie odejść od męża (Bradley Cooper), który ją zaniedbuje. Dlaczego zaniedbuje? Bo ma romans z inną kobietą, na dodatek w której zakochał się inny samotny mężczyzna. Facet ten mógłby z kolei znaleźć szczęście u boku dziewczyny (Ginnifer Goodwin), która ma na jego punkcie obsesję – gdyby tylko zwrócił na nią uwagę. Aranżuje ona niby-przypadkowe spotkania z obiektem swoich uczuć. Podczas jednego z nich poznaje przyjaciela swojego ukochanego, granego przez Justina Longa, który postanawia wychować ją tak, jak profesor Higgins w 'My Fair Lady' wychowuje Elizę Doolittle. Drew Barrymore natomiast gra zagubioną w świecie nieustannych randek kobietę, która staje się ofiarą współczesnej kultury, gdzie technologia i wirtualna rzeczywistość coraz częściej zastępują kontakty międzyludzkie.  ... boku dziewczyny (Ginnifer Goodwin), która ma na jego punkcie obsesję – gdyby tylko zwrócił na nią uwagę. Aranżuje ona niby-przypadkowe spotkania z obiektem swoich uczuć. Podczas jednego z nich poznaje przyjaciela swojego ukochanego, granego przez Justina Longa, który postanawia wychować ją tak, jak profesor Higgins w 'My Fair Lady' wychowuje Elizę Doolittle. Drew Barrymore natomiast gra zagubioną w świecie nieustannych randek kobietę, która staje się ofiarą współczesnej kultury, gdzie technologia i wirtualna rzeczywistość coraz częściej zastępują kontakty międzyludzkie.
-    

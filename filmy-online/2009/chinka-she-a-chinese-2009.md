@@ -1,9 +1,5 @@
+Chinka / She, a Chinese 2009 
+=============
+[![Chinka / She, a Chinese 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chinka-she-a-chinese-2009)
 
-        Chinka / She, a Chinese 2009 
-        =============
-        
-        [![Chinka / She, a Chinese 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chinka-she-a-chinese-2009)
-        
-        
  Lu Mei, młoda Chinka znudzona życiem w rodzinnej wiosce postanawia, wyjechać do najbliższego miasta, Chongqing. Lecz tam życie nie okazuje się wcale łatwiejsze. Wkrótce po podjęciu pracy w fabryce zostaje wyrzucona i musi się zadowolić posadą w „salonie fryzjerskim”. Zakochuje się w poznanym tam Spikey’u, płatnym zabójcy na usługach miejscowej mafii, ale nie zostanie z nim długo. Wkrótce Lu Mei wyjedzie do Londynu, gdzie małżeństwo może zapewnić jej spokojne życie. Czy Mei wystarczy monotonność dnia codziennego? W czasie swej podróży Chinka z zapadłej prowincji porusza się w mieszaninie kultur XXI wieku. Film pokazuje, jak ludzie, style życia, towary i muzyka w dzisiejszym świecie przekraczają granice między krajami i kontynentami.  ... wystarczy monotonność dnia codziennego? W czasie swej podróży Chinka z zapadłej prowincji porusza się w mieszaninie kultur XXI wieku. Film pokazuje, jak ludzie, style życia, towary i muzyka w dzisiejszym świecie przekraczają granice między krajami i kontynentami.
-    

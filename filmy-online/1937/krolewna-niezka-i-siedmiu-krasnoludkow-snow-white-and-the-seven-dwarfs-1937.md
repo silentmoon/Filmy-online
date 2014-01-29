@@ -1,9 +1,5 @@
+Królewna Śnieżka i siedmiu krasnoludków / Snow White and the Seven Dwarfs 1937 
+=============
+[![Królewna Śnieżka i siedmiu krasnoludków / Snow White and the Seven Dwarfs 1937 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolewna-niezka-i-siedmiu-krasnoludkow-snow-white-and-the-seven-dwarfs-1937)
 
-        Królewna Śnieżka i siedmiu krasnoludków / Snow White and the Seven Dwarfs 1937 
-        =============
-        
-        [![Królewna Śnieżka i siedmiu krasnoludków / Snow White and the Seven Dwarfs 1937 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolewna-niezka-i-siedmiu-krasnoludkow-snow-white-and-the-seven-dwarfs-1937)
-        
-        
  Pierwszy pełnometrażowy film animowany Walta Disney'a. Zła królowa wciąż zadaje pytanie magicznemu zwierciadłu: 'Lustereczko, lustereczko powiedz przecie, kto jest najpiękniejszy w świecie'. Zwierciadło zawsze odpowiadało, że ona jest najpiękniejsza, do czasu, gdy dostrzegło piękno Śnieżki - pasierbicy złej królowej. Ta natychmiast rozkazała swojemu myśliwemu zabić ją w lesie i przynieść jej serce jako dowód. Ten jednak nie mógł tego zrobić i kazał jej uciekać, a serce wyciął z dzika. Zła królowa, wierząc myśliwemu, czuła się znowu szczęśliwa. Śnieżka przerażona uciekała przez straszny las, aż w końcu trafiła do małego domku. Jak się okazało, był to domek siedmiu miłych krasnoludków: Mędrka, Gapcia, Śpioszka, Wesołka, Nieśmiałka, Gburka i Apsika. Śnieżka postanowiła u nich zostać i z czasem zaprzyjaźniła się z nimi. Niestety, zła królowa odkryła, że jej pasierbica ciągle żyje i postanowiła sama ją zabić.   ... z dzika. Zła królowa, wierząc myśliwemu, czuła się znowu szczęśliwa. Śnieżka przerażona uciekała przez straszny las, aż w końcu trafiła do małego domku. Jak się okazało, był to domek siedmiu miłych krasnoludków: Mędrka, Gapcia, Śpioszka, Wesołka, Nieśmiałka, Gburka i Apsika. Śnieżka postanowiła u nich zostać i z czasem zaprzyjaźniła się z nimi. Niestety, zła królowa odkryła, że jej pasierbica ciągle żyje i postanowiła sama ją zabić.
-    

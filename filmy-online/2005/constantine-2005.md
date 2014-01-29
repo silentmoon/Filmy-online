@@ -1,9 +1,5 @@
+Constantine 2005 
+=============
+[![Constantine 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/constantine-2005)
 
-        Constantine 2005 
-        =============
-        
-        [![Constantine 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/constantine-2005)
-        
-        
  John Constantine (Keanu Reeves) urodził się z niechcianym darem, który stał się jego przekleństwem. Mężczyzna potrafi rozpoznawać tajemnicze istoty, kroczące po ziemi w ludzkich ciałach. W niebudzących podejrzeń wcieleniach bez przeszkód wtapiają się w tłum, wypełniając swoje misje. Jeżdżą samochodami, pracują, nawiązują kontakty z ludźmi. Taka istota może być mężem lub żoną, można mieć ją za przyjaciela lub sąsiada i nie mieć pojęcia o jej prawdziwej naturze. Nikt nie wie, że nie są normalnymi ludźmi. Tylko John ich widzi. Te niesamowite wizje, których nikt nie potrafi pojąć i od których chciał się wyzwolić, pchnęły Constantina ku samobójstwu. Niestety, próba się nie udała. Odratowany wbrew swojej woli ponownie znalazł się w świecie żywych. Na zawsze naznaczony, ma nadzieję, ze uda mu się uzyskać zbawienie, odsyłając 'istoty' tam, skąd przybywają, z powrotem w otchłań. Jako broni używa świętych relikwii, rozumu, pięści i wszystkiego, co okaże się pomocne. Zdesperowana detektyw Angela Dodson (Rachel Weisz) nakłania go do pomocy w sprawie zagadkowej śmierci jej bliźniaczej siostry. Nie spodziewa się, że zawiedzie ją to wprost do świata demonów i aniołów, istniejącego tuż obok.  ... że nie są normalnymi ludźmi. Tylko John ich widzi. Te niesamowite wizje, których nikt nie potrafi pojąć i od których chciał się wyzwolić, pchnęły Constantina ku samobójstwu. Niestety, próba się nie udała. Odratowany wbrew swojej woli ponownie znalazł się w świecie żywych. Na zawsze naznaczony, ma nadzieję, ze uda mu się uzyskać zbawienie, odsyłając 'istoty' tam, skąd przybywają, z powrotem w otchłań. Jako broni używa świętych relikwii, rozumu, pięści i wszystkiego, co okaże się pomocne. Zdesperowana detektyw Angela Dodson (Rachel Weisz) nakłania go do pomocy w sprawie zagadkowej śmierci jej bliźniaczej siostry. Nie spodziewa się, że zawiedzie ją to wprost do świata demonów i aniołów, istniejącego tuż obok.
-    

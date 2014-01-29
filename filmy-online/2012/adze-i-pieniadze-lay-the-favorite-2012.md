@@ -1,9 +1,5 @@
+Żądze i pieniądze / Lay the Favorite 2012 
+=============
+[![Żądze i pieniądze / Lay the Favorite 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/adze-i-pieniadze-lay-the-favorite-2012)
 
-        Żądze i pieniądze / Lay the Favorite 2012 
-        =============
-        
-        [![Żądze i pieniądze / Lay the Favorite 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/adze-i-pieniadze-lay-the-favorite-2012)
-        
-        
  Eksstriptizerka Beth (Rebecca Hall) rusza na podbój Las Vegas. Dostaje pracę u Dinka (Bruce Willis) – nieoficjalnego króla hazardowego półświatka. Wkrótce za sprawą nowego bossa, jego zazdrosnej żony Tulip (Catherine Zeta-Jones) i przystojniaka Jeremy'ego (Joshua Jackson) znajdzie się w środku intrygi, która może zaprowadzić ją na szczyty bogactwa albo za kratki. Ale... jak nie zgrzeszyć w mieście grzechu? Stephen Frears słynący z dobrej ręki w doborze aktorów (Oscar dla Helen Mirren za rolę w 'Królowej', nominacje do Oscara dla Michelle Pfeiffer i Glenn Close za 'Niebezpieczne związki') zgromadził na planie świetną obsadę. W filmie występują: Rebecca Hall, nominowana do Złotego Globu za 'Vicky, Cristina, Barcelona' Woody'ego Allena, laureatka Oscara Catherine Zeta-Jones ('Chicago'), jeden z ulubionych komików Ameryki - Vince Vaughn ('Polowanie na druhny', 'Sztuka zrywania'), gwiazda serialu 'Fringe' Joshua Jackson oraz niezawodny Bruce Willis ('Włamanie na śniadanie', 'Red'). Scenariusz, na podstawie bestsellera Beth Raymer, napisał D.V. DeVincentis, nominowany do BAFTA i prestiżowej WGA Award za hitową komedię Frearsa 'Przeboje i podboje'.  ... Helen Mirren za rolę w 'Królowej', nominacje do Oscara dla Michelle Pfeiffer i Glenn Close za 'Niebezpieczne związki') zgromadził na planie świetną obsadę. W filmie występują: Rebecca Hall, nominowana do Złotego Globu za 'Vicky, Cristina, Barcelona' Woody'ego Allena, laureatka Oscara Catherine Zeta-Jones ('Chicago'), jeden z ulubionych komików Ameryki - Vince Vaughn ('Polowanie na druhny', 'Sztuka zrywania'), gwiazda serialu 'Fringe' Joshua Jackson oraz niezawodny Bruce Willis ('Włamanie na śniadanie', 'Red'). Scenariusz, na podstawie bestsellera Beth Raymer, napisał D.V. DeVincentis, nominowany do BAFTA i prestiżowej WGA Award za hitową komedię Frearsa 'Przeboje i podboje'.
-    

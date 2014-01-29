@@ -1,9 +1,5 @@
+Robert i Bertrand 1938 
+=============
+[![Robert i Bertrand 1938 ](http://vidos.pl/images/player.gif)](http://vidos.pl/robert-i-bertrand-1938)
 
-        Robert i Bertrand 1938 
-        =============
-        
-        [![Robert i Bertrand 1938 ](http://vidos.pl/images/player.gif)](http://vidos.pl/robert-i-bertrand-1938)
-        
-        
  Tytułowi Robert (Adolf Dymsza) i Bertrand (Eugeniusz Bodo) parają się sprzedażą krawatów, jako że sprzedaż nie przynosi im zysków, a w zasadzie nie idzie im wcale, postanawiają działać wspólnie. Kiedy przypadkowo trafiają na wesele, zostają oskarżeni o kradzież pieniędzy przez weselników, prze co lądują w areszcie. Tam poznają Irenę (Helena Grossówna), która za wszelką cenę stara się zglebić środowisko przestępcze, co ma jej pomóc w napisaniu powieści kryminalnej, dzięki której wygrałaby konkurs pisarski. Jednak więzienie to nie miejsce dla Roberta i Bertranda, dlatego obaj uciekają. Los, jak to bywa, jest przewrotny i na drodze dwójki uciekinierów ponownie stawia Irenę...   ... której wygrałaby konkurs pisarski. Jednak więzienie to nie miejsce dla Roberta i Bertranda, dlatego obaj uciekają. Los, jak to bywa, jest przewrotny i na drodze dwójki uciekinierów ponownie stawia Irenę...
-    

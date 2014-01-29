@@ -1,9 +1,5 @@
+Ale cyrk 3D / Orla Frøsnapper 2011 
+=============
+[![Ale cyrk 3D / Orla Frøsnapper 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ale-cyrk-3d-orla-frsnapper-2011)
 
-        Ale cyrk 3D / Orla Frøsnapper 2011 
-        =============
-        
-        [![Ale cyrk 3D / Orla Frøsnapper 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ale-cyrk-3d-orla-frsnapper-2011)
-        
-        
  Twórcy przeboju 'Disco robaczki' zapraszają na magiczną i kolorową wyprawę do świata cyrku. Akrobaci, atleci, czarodzieje, iluzjoniści. CYRK od zawsze pasjonował psa Ozorka. Sympatyczny czworonóg oddałby ostatnią kość za szansę występu na arenie. Korzystając z pomocy przyjaciela - małego chłopca  Wiktora i jego wesołej koleżanki Kaji - zgłasza się do wielkiego konkursu dla cyrkowców. Jednak, zanim Ozorek udowodni światu, że szczekacze to najlepsi fikacze, musi zmierzyć się z łobuzem, zwanym Żabą, który chce porwać utalentowanego psa i zostać jego treserem. W dodatku dzielna psina zakochuje się po same uszy w uroczej pudliczce. Czy zakochany kundel zdobędzie serce psiej piękności i zostanie gwiazdą cyrku? Twórcy kinowej i muzycznej sensacji 2010 roku – 'Disco robaczków', z którymi pełzało i tańczyło w Polsce ponad 600 tysięcy kinomanów ( niż w przypadku hollywoodzkich, oscarowych obrazów 'Księżniczka i żaba' oraz 'Toy Story 3D') oraz współtwórca jednej z najoryginalniejszych animacji familijnych ostatniej dekady – 'Gnijąca panna młoda', przedstawiają szaloną komedię 'ALE CYRK 3D', opartą na bestsellerze literatury dziecięcej Ole Lunda Kirkegaarda, często porównywanym z przebojową serią książek Sempe i Goscinnego.    ... łobuzem, zwanym Żabą, który chce porwać utalentowanego psa i zostać jego treserem. W dodatku dzielna psina zakochuje się po same uszy w uroczej pudliczce. Czy zakochany kundel zdobędzie serce psiej piękności i zostanie gwiazdą cyrku? Twórcy kinowej i muzycznej sensacji 2010 roku – 'Disco robaczków', z którymi pełzało i tańczyło w Polsce ponad 600 tysięcy kinomanów (więcej niż w przypadku hollywoodzkich, oscarowych obrazów 'Księżniczka i żaba' oraz 'Toy Story 3D') oraz współtwórca jednej z najoryginalniejszych animacji familijnych ostatniej dekady – 'Gnijąca panna młoda', przedstawiają szaloną komedię 'ALE CYRK 3D', opartą na bestsellerze literatury dziecięcej Ole Lunda Kirkegaarda, często porównywanym z przebojową serią książek Sempe i Goscinnego.  
-    

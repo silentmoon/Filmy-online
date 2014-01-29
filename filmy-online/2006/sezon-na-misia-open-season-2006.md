@@ -1,9 +1,5 @@
+Sezon na misia / Open Season 2006 
+=============
+[![Sezon na misia / Open Season 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sezon-na-misia-open-season-2006)
 
-        Sezon na misia / Open Season 2006 
-        =============
-        
-        [![Sezon na misia / Open Season 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sezon-na-misia-open-season-2006)
-        
-        
  Boguś wiedzie idealne życie. W spokojnym miasteczku Timberline, genialny niedźwiedź grizzly korzysta z wszelkich możliwych przywilejów będąc pod opieką przybranej matki Beth strażniczki parku, która kiedyś go uratowała. Boguś delektuje się też urokami sławy, jest bowiem gwiazdą przedstawień organizowanych przez Beth w miejskim amfiteatrze. To właśnie w garażu Beth, Boguś ogląda swoje ulubione programy telewizyjne, jada osiem razy dziennie i śpi w wygodnym łóżku z misiem-maskotką Dinkelmanem. Tak, życie Bogusia wydaje się być idealne - do momentu, kiedy pojawia się w nim Elliot. Pierwsza wielka produkcja animowana Sony Pictures w technice CGI.   ... misiem-maskotką Dinkelmanem. Tak, życie Bogusia wydaje się być idealne - do momentu, kiedy pojawia się w nim Elliot. Pierwsza wielka produkcja animowana Sony Pictures w technice CGI.
-    

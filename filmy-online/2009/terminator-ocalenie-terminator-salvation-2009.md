@@ -1,9 +1,5 @@
+Terminator: Ocalenie / Terminator Salvation 2009 
+=============
+[![Terminator: Ocalenie / Terminator Salvation 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/terminator-ocalenie-terminator-salvation-2009)
 
-        Terminator: Ocalenie / Terminator Salvation 2009 
-        =============
-        
-        [![Terminator: Ocalenie / Terminator Salvation 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/terminator-ocalenie-terminator-salvation-2009)
-        
-        
  W filmie 'Terminator Ocalenie', którego akcja rozgrywa się w post-apokaliptycznym roku 2018 występuje Christian Bale w roli Johna Connora, człowieka, którego przeznaczeniem jest poprowadzenie ruchu oporu skierowanego przeciwko Skynetowi i armii Terminatorów. Ale przyszłość, w którą wierzy Connor zostaje częściowo zmieniona na skutek pojawienia się Marcusa Wrighta (Sam Worthington), obcego, którego ostatnim wspomnieniem jest pobyt w celi śmierci. To Connor musi dowiedzieć się, czy Marcus został przysłany z przyszłości czy jest uciekinierem z przeszłości. Podczas gdy Skynet przygotowuje się do ostatecznego starcia, Connor i Marcus wyruszają w podróż, która prowadzi ich do centrum operacyjnego Skynetu, w którym odkrywają przerażającą tajemnicę, jaka kryje się za możliwym unicestwieniem rodzaju ludzkiego.   ... czy Marcus został przysłany z przyszłości czy jest uciekinierem z przeszłości. Podczas gdy Skynet przygotowuje się do ostatecznego starcia, Connor i Marcus wyruszają w podróż, która prowadzi ich do centrum operacyjnego Skynetu, w którym odkrywają przerażającą tajemnicę, jaka kryje się za możliwym unicestwieniem rodzaju ludzkiego.
-    

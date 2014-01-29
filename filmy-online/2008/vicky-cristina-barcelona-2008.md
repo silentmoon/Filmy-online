@@ -1,9 +1,5 @@
+Vicky Cristina Barcelona 2008 
+=============
+[![Vicky Cristina Barcelona 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/vicky-cristina-barcelona-2008)
 
-        Vicky Cristina Barcelona 2008 
-        =============
-        
-        [![Vicky Cristina Barcelona 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/vicky-cristina-barcelona-2008)
-        
-        
  Dwie młode Amerykanki, Vicky (Rebecca Hall) i Cristina (Scarlett Johansson) przyjeżdżają na wakacje do Barcelony. Vicky, inteligentna i czuła, ma niedługo wyjść za mąż; otwarta na emocjonalne i seksualne przygody Cristina to jej zupełne przeciwieństwo. Podczas pobytu, obie bohaterki dają się wciągnąć w niekonwencjonalną, romantyczną i seksualną przygodę z Juanem Antonio (Javier Bardem), charyzmatycznym malarzem, uwikłanym w burzliwą i skomplikowaną relację ze swoją byłą żoną, Marią Eleną (Penélope Cruz). Zanurzony w soczystej zmysłowości Barcelony, „Vicky Cristina Barcelona”, to zabawny, inteligentny film, ukazujący miłość we wszystkich jej przejawach.  ... Marią Eleną (Penélope Cruz). Zanurzony w soczystej zmysłowości Barcelony, „Vicky Cristina Barcelona”, to zabawny, inteligentny film, ukazujący miłość we wszystkich jej przejawach.
-    

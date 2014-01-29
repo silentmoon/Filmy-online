@@ -1,9 +1,5 @@
+Telenowela / En Soap 2006 
+=============
+[![Telenowela / En Soap 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/telenowela-en-soap-2006)
 
-        Telenowela / En Soap 2006 
-        =============
-        
-        [![Telenowela / En Soap 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/telenowela-en-soap-2006)
-        
-        
  Debiut kinowy Pernille Fischer Christensen jest tragikomedią opierającą się w pewnym stopniu na zasadach Dogmy, głównie jednak przewrotnie nawiązuje do telewizyjnych 'oper mydlanych' - odwołując się zarówno do sposobu ich realizacji jak i tematyki. Charlotte, właścicielka dobrze prosperującego salonu piękności, niezadowolona ze swojego związku z Kristianem, postanawia się od niego wyprowadzić. Wynajmuje samodzielne mieszkanie rozpoczynając nowe życie. W tym samym domu, piętro niżej, mieszka Veronica - transseksualista. Veronica przeżywa bardzo trudne chwile - samotna, bliska całkowitego załamania nerwowego czeka na decyzję kwalifikującą ją na operację zmiany płci. Jedyną rozrywką i odpoczynkiem są dla niej kolejne odcinki jej ulubionych 'oper mydlanych'. Pewnego dnia Charlotte i Veronica spotykają się przypadkiem w dramatycznych okolicznościach - Charlotte ratuje Veronicę przed samobójstwem. To wydarzenie staje się początkiem ich bliższej znajomości, a nawet czegoś .   ... piętro niżej, mieszka Veronica - transseksualista. Veronica przeżywa bardzo trudne chwile - samotna, bliska całkowitego załamania nerwowego czeka na decyzję kwalifikującą ją na operację zmiany płci. Jedyną rozrywką i odpoczynkiem są dla niej kolejne odcinki jej ulubionych 'oper mydlanych'. Pewnego dnia Charlotte i Veronica spotykają się przypadkiem w dramatycznych okolicznościach - Charlotte ratuje Veronicę przed samobójstwem. To wydarzenie staje się początkiem ich bliższej znajomości, a nawet czegoś więcej.
-    

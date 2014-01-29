@@ -1,9 +1,5 @@
+Szalona miłość - Yves Saint Laurent / L'Amour fou 2010 
+=============
+[![Szalona miłość - Yves Saint Laurent / L'Amour fou 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szalona-milosc-yves-saint-laurent-l-amour-fou-2010)
 
-        Szalona miłość - Yves Saint Laurent / L'Amour fou 2010 
-        =============
-        
-        [![Szalona miłość - Yves Saint Laurent / L'Amour fou 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szalona-milosc-yves-saint-laurent-l-amour-fou-2010)
-        
-        
  Yves Saint Laurent i Pierre Bergé poznali się w 1958 roku. Każdy znalazł mężczyznę swojego życia. Pierwszy raz w filmie kinowym, Pierre Bergé opowiada o tej miłości. O pięćdziesięciu latach żaru i burz, niezwykłych sukcesów i osobistych cierpień. Film jest osobistym hołdem na rzecz dekadencji i piękna, złożonym słynnemu projektantowi za jego konsekwentną postawę, łamiącą wszelkie obowiązujące wówczas zasady i granice myślenia oraz działania. Laurent nie tylko stworzył bowiem znaną na świecie kolekcję dzieł sztuki i ubrań, lecz jako pierwszy wykorzystał na wybiegu czarnoskóre i azjatyckie modelki. A wszystko działo się przecież w czasach, gdy równość rasowa nie była powszechną praktyką w świecie mody.  ... znaną na świecie kolekcję dzieł sztuki i ubrań, lecz jako pierwszy wykorzystał na wybiegu czarnoskóre i azjatyckie modelki. A wszystko działo się przecież w czasach, gdy równość rasowa nie była powszechną praktyką w świecie mody.
-    

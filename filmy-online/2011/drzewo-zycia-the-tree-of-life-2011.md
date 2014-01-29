@@ -1,9 +1,5 @@
+Drzewo życia / The Tree of Life 2011 
+=============
+[![Drzewo życia / The Tree of Life 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/drzewo-zycia-the-tree-of-life-2011)
 
-        Drzewo życia / The Tree of Life 2011 
-        =============
-        
-        [![Drzewo życia / The Tree of Life 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/drzewo-zycia-the-tree-of-life-2011)
-        
-        
  Film-Arcydzieło, który szuka odpowiedzi na najważniejsze pytanie ludzkości – jaki jest sens życia? Duet najlepszych aktorów naszych czasów (Brad Pitt i Sean Penn) w filmie legendarnego twórcy kina – Terrence’a Malicka („Cienka czerwona linia”). Jack żyje wraz z dwójką braci oraz rodzicami w szczęśliwym domu. Rodzice otaczają go opieką i troską, a świat wydaje się być dla niego wspaniałym miejscem. Do tego z pozoru idealnego świata zaczynają jednak docierać mroczne aspekty życia takie jak choroba, cierpienie i śmierć. Chłopak zaczyna swoją drogę wiodącą ku dorosłości i przekonuje się, że w miejsce sielanki i beztroski przychodzi mu zmierzyć się z labiryntem dorosłego życia. Jack staje się zagubioną duszą w nowoczesnym świecie. Jedynym sposobem na wydostanie się z pułapki  będzie znalezienie odpowiedzi na najbardziej fundamentalne pytania o sens wiary i powód naszej egzystencji. Będzie to wymagało podróży do najodleglejszych miejsc w czasie i przestrzeni – miejsc, w których nie był jeszcze nikt.   ... aspekty życia takie jak choroba, cierpienie i śmierć. Chłopak zaczyna swoją drogę wiodącą ku dorosłości i przekonuje się, że w miejsce sielanki i beztroski przychodzi mu zmierzyć się z labiryntem dorosłego życia. Jack staje się zagubioną duszą w nowoczesnym świecie. Jedynym sposobem na wydostanie się z pułapki  będzie znalezienie odpowiedzi na najbardziej fundamentalne pytania o sens wiary i powód naszej egzystencji. Będzie to wymagało podróży do najodleglejszych miejsc w czasie i przestrzeni – miejsc, w których nie był jeszcze nikt.
-    

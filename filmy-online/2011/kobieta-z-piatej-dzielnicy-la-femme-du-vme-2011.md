@@ -1,9 +1,5 @@
+Kobieta z piątej dzielnicy / La Femme du Vème 2011 
+=============
+[![Kobieta z piątej dzielnicy / La Femme du Vème 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kobieta-z-piatej-dzielnicy-la-femme-du-vme-2011)
 
-        Kobieta z piątej dzielnicy / La Femme du Vème 2011 
-        =============
-        
-        [![Kobieta z piątej dzielnicy / La Femme du Vème 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kobieta-z-piatej-dzielnicy-la-femme-du-vme-2011)
-        
-        
  Ten rok zdecydowanie nie należał do Toma Ricksa (Ethan Hawke). Po głośnym skandalu z jego udziałem, w krótkim czasie traci lukratywną posadę na amerykańskim uniwersytecie, a także odchodzą od niego żona i córka. Jeżeli kiedykolwiek zastanawiał się nad tym, czy zmienić swoje życie, nie mógł trafić na lepszy moment by to zrobić. Tom ucieka do Paryża, by w cieniu francuskich bulwarów napisać książkę i spróbować odzyskać rodzinę. Niestety z ambitnych planów niewiele wychodzi i bohater ląduje w podrzędnym hotelu zarabiając na życie jako nocny stróż. Czas osładza mu jedynie niezobowiązujący seks z Anią (Joanna Kulig), Polką pracującą jako kelnerka w pobliskim barze. Niespodziewanie w jego życiu pojawia się piękna i tajemnicza Margit (Kristin Scott Thomas). To, co początkowo zapowiadało się jak zwyczajne zauroczenie przemienia się w prawdziwie obsesyjną relację. Nowa kochanka całkowicie przejmuje władzę nad związkiem. Dodatkowo ich burzliwemu romansowi towarzyszy seria niewytłumaczalnych zdarzeń. Tom orientuje się, że tym razem naprawdę traci kontrolę nad swoim życiem.   ... bohater ląduje w podrzędnym hotelu zarabiając na życie jako nocny stróż. Czas osładza mu jedynie niezobowiązujący seks z Anią (Joanna Kulig), Polką pracującą jako kelnerka w pobliskim barze. Niespodziewanie w jego życiu pojawia się piękna i tajemnicza Margit (Kristin Scott Thomas). To, co początkowo zapowiadało się jak zwyczajne zauroczenie przemienia się w prawdziwie obsesyjną relację. Nowa kochanka całkowicie przejmuje władzę nad związkiem. Dodatkowo ich burzliwemu romansowi towarzyszy seria niewytłumaczalnych zdarzeń. Tom orientuje się, że tym razem naprawdę traci kontrolę nad swoim życiem.
-    

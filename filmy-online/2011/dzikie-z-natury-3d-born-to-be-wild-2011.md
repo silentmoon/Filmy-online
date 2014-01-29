@@ -1,9 +1,5 @@
+Dzikie z natury 3D / Born to Be Wild 2011 
+=============
+[![Dzikie z natury 3D / Born to Be Wild 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dzikie-z-natury-3d-born-to-be-wild-2011)
 
-        Dzikie z natury 3D / Born to Be Wild 2011 
-        =============
-        
-        [![Dzikie z natury 3D / Born to Be Wild 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dzikie-z-natury-3d-born-to-be-wild-2011)
-        
-        
  'Dzikie z Natury 3D' to inspirująca opowieść o miłości, poświęceniu i nadzwyczajnej więzi między ludźmi i zwierzętami. Film ukazuje osierocone orangutany i słonie oraz wyjątkowych ludzi, którym udało się je nie tylko uratować i wychować, ale również przywrócić im życie na wolności. Ujęte w trójwymiarze IMAX 3D 'Dzikie z Natury 3D' to wzruszająca opowieść o miłości przybranych matek do niezwykłych dzieci – orangutanów i słoni. Dr Birute Mary Galdikas oraz Daphne Sheldrick poświęciły lata swego życia, aby ratować te osierocone maleństwa. Film w niezwykle poruszający sposób przedstawia działania osób, dla których los dzikich zwierząt nie jest obojętny, ale pozwala nam tez podejrzeć proces wychowania młodych orangutanów i słoni, które dzięki troskliwej opiece i niesamowitym zabawom, szczęśliwie dorastają i uczą się żyć na wolności.  Dowiadujemy się, że słonie muszą być szczęśliwe, aby przeżyć, a orangutany mogą być niezłymi komikami. Podejrzenie tych cudów natury w trójwymiarze, to niezwykłe przeżycie.    ... poświęciły lata swego życia, aby ratować te osierocone maleństwa. Film w niezwykle poruszający sposób przedstawia działania osób, dla których los dzikich zwierząt nie jest obojętny, ale pozwala nam tez podejrzeć proces wychowania młodych orangutanów i słoni, które dzięki troskliwej opiece i niesamowitym zabawom, szczęśliwie dorastają i uczą się żyć na wolności.  Dowiadujemy się, że słonie muszą być szczęśliwe, aby przeżyć, a orangutany mogą być niezłymi komikami. Podejrzenie tych cudów natury w trójwymiarze, to niezwykłe przeżycie. 
-    

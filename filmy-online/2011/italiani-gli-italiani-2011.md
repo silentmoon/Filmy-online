@@ -1,9 +1,5 @@
+Italiani / Gli Italiani 2011 
+=============
+[![Italiani / Gli Italiani 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/italiani-gli-italiani-2011)
 
-        Italiani / Gli Italiani 2011 
-        =============
-        
-        [![Italiani / Gli Italiani 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/italiani-gli-italiani-2011)
-        
-        
  Najnowszy film w reżyserii Łukasza Barczyka, który zaprosił do współpracy wybitnego reżysera teatralnego, Krzysztofa Warlikowskiego i aktorów Teatru Nowego - Jacka Poniedziałka i Renate Jett. Główna rola w filmie 'Gli Italiani', to debiut aktorski Krzysztofa Warlikowskiego. 'Gli Italiani' to podroż w głąb intymnego świata mężczyzny (Krzysztof Warlikowski), jego relacji z rodziną i najbliższymi (Renate Jett, Jacek Poniedziałek), wyprawa w głąb obrazów i przeżyć tak osobistych, że aż paradoksalnie uniwersalnych. 'Gli Italiani' jest śmiałym poszukiwaniem języka filmowego dla wyrażenia podstawowych przeżyć i emocji, języka wychodzącego poza konwencjonalne filmy psychologiczne. To próba ukazania kluczowych wspomnień każdego człowieka, jakby były częścią baśni, którą każdy z nas sam sobie opowiada, która rośnie i ewoluuje z biegiem naszego życia. Ta produkcja, niemalże w całości sfinansowana przez twórców filmu, powstawała przez ostatnie cztery lata w plenerach środkowych Włoch. 'Gli Italiani' są efektem współpracy scenariuszowej między Barczykiem a Warlikowskim i poprzez współdziałanie tych dwóch osobowości, fuzją współczesnego kina i nowego teatru. Film działa głównie przez swoją stronę wizualną, również za sprawą hipnotycznych zdjęć Kariny Kleszczewskiej, stałej współpracowniczki Łukasza Barczyka.  ... osobistych, że aż paradoksalnie uniwersalnych. 'Gli Italiani' jest śmiałym poszukiwaniem języka filmowego dla wyrażenia podstawowych przeżyć i emocji, języka wychodzącego poza konwencjonalne filmy psychologiczne. To próba ukazania kluczowych wspomnień każdego człowieka, jakby były częścią baśni, którą każdy z nas sam sobie opowiada, która rośnie i ewoluuje z biegiem naszego życia. Ta produkcja, niemalże w całości sfinansowana przez twórców filmu, powstawała przez ostatnie cztery lata w plenerach środkowych Włoch. 'Gli Italiani' są efektem współpracy scenariuszowej między Barczykiem a Warlikowskim i poprzez współdziałanie tych dwóch osobowości, fuzją współczesnego kina i nowego teatru. Film działa głównie przez swoją stronę wizualną, również za sprawą hipnotycznych zdjęć Kariny Kleszczewskiej, stałej współpracowniczki Łukasza Barczyka.
-    

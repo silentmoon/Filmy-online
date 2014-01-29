@@ -1,9 +1,5 @@
+Czerwony Kapturek - Prawdziwa historia / Hoodwinked! 2005 
+=============
+[![Czerwony Kapturek - Prawdziwa historia / Hoodwinked! 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czerwony-kapturek-prawdziwa-historia-hoodwinked-2005)
 
-        Czerwony Kapturek - Prawdziwa historia / Hoodwinked! 2005 
-        =============
-        
-        [![Czerwony Kapturek - Prawdziwa historia / Hoodwinked! 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czerwony-kapturek-prawdziwa-historia-hoodwinked-2005)
-        
-        
  Wszystkim się wydaje, że doskonale znają bajkę o Czerwonym Kapturku. Ale czy znamy prawdziwą wersję tej bajki? A może przez całe dzieciństwo byliśmy wprowadzani w błąd. Nawet w znanej wszystkim historii tkwią detale, których nie dostrzeże się na pierwszy rzut oka. W tym przypadku, zaczynamy opowieść od końca. Futrzany glina ze zwierzęcego świata prowadzi dochodzenie w sprawie zakłócenia porządku w chatce babci. Uczestnikami zdarzenia są czerwony kapturek, wilk i drwal z siekierą. Zarzuty są poważne: zakłócenie spokoju, zamiar zjedzenia babci oraz posiadanie siekiery bez pozwolenia. Wkrótce poznamy wersję dramatycznych wydarzeń w domku babci opowiedzianą przez wilka, kapturka, babcię i drwala. Okaże się, że każdy ma jakiś sekret.. wilk jako reporter szukający sensacji, babcia prowadząca podwójne życie, drwal marzący o karierze aktorskiej... Tej film obnaży prawdę o Czerwonym Kapturku.  ... siekierą. Zarzuty są poważne: zakłócenie spokoju, zamiar zjedzenia babci oraz posiadanie siekiery bez pozwolenia. Wkrótce poznamy wersję dramatycznych wydarzeń w domku babci opowiedzianą przez wilka, kapturka, babcię i drwala. Okaże się, że każdy ma jakiś sekret.. wilk jako reporter szukający sensacji, babcia prowadząca podwójne życie, drwal marzący o karierze aktorskiej... Tej film obnaży prawdę o Czerwonym Kapturku.
-    

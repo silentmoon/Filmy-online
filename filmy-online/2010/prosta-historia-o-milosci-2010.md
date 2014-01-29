@@ -1,9 +1,5 @@
+Prosta historia o miłości 2010 
+=============
+[![Prosta historia o miłości 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prosta-historia-o-milosci-2010)
 
-        Prosta historia o miłości 2010 
-        =============
-        
-        [![Prosta historia o miłości 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prosta-historia-o-milosci-2010)
-        
-        
  Reżyserski debiut Arkadiusza Jakubika rozgrywa się na wielu płaszczyznach. Jedną z nich jest, jak w tytule, prosta historia miłosna. Jednak równolegle z nią i na tych samych prawach istnieje rzeczywistość tworzenia filmu. Para scenarzystów wychodzi od mglistej idei, pary bohaterów, jakiejś relacji. Na początku widzimy tylko proces twórczy i burzę mózgów, skojarzenia, pomysły. Obserwujemy proces selekcji, wyboru miejsc, głównych wątków, aktorów grających pierwszoplanowe role. Z czasem widzimy coraz  'aktorów' i 'scenografii' i w końcu na naszych oczach zaczyna się 'realizacja'. Film powstaje w pociągu, więc ciasne wnętrza potęgują wrażenie zacieśniania się akcji i wątków. Od tego momentu jesteśmy ciągle zaskakiwani, scenarzysta bawi się widzem pokazując relacje między aktorami na przemian z uczuciami bohaterów których grają. I nigdy nie wiemy czy znajdujemy się w filmowej fikcji czy w równoległej filmowej rzeczywistości.  ... role. Z czasem widzimy coraz więcej 'aktorów' i 'scenografii' i w końcu na naszych oczach zaczyna się 'realizacja'. Film powstaje w pociągu, więc ciasne wnętrza potęgują wrażenie zacieśniania się akcji i wątków. Od tego momentu jesteśmy ciągle zaskakiwani, scenarzysta bawi się widzem pokazując relacje między aktorami na przemian z uczuciami bohaterów których grają. I nigdy nie wiemy czy znajdujemy się w filmowej fikcji czy w równoległej filmowej rzeczywistości.
-    

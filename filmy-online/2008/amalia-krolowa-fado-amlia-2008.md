@@ -1,9 +1,5 @@
+Amalia. Królowa fado / Amália 2008 
+=============
+[![Amalia. Królowa fado / Amália 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/amalia-krolowa-fado-amlia-2008)
 
-        Amalia. Królowa fado / Amália 2008 
-        =============
-        
-        [![Amalia. Królowa fado / Amália 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/amalia-krolowa-fado-amlia-2008)
-        
-        
  'Amália. Królowa fado' to poruszająca historia życia Amálii da Piedade Rodrigues - jednej z największych indywidualności muzycznych wszech czasów. Dzięki swemu talentowi i charyzmie Amalia rozsławiła fado na całym świecie. Porównywano ją do Edith Piaf i Billy Holiday. Jej niezwykły magnetyzm i naturalny czar z jednakową siłą zachwycały na światowych scenach. Nowy Jork, jesień 1984. Nocą nachodzą Amálię najbardziej odległe wspomnienia.  Obojętność matki i śmierć siostry. Zbyt wczesna dorosłość, zainicjowana namiętnością do gitarzysty Francisca Cruza, a potem lokalne i międzynarodowe sukcesy. I w końcu kryzys małżeństwa z rozsądku. Dojrzałość artystyczna, która nie chciała iść w parze z dojrzałością emocjonalną. Była rozdarta między dwoma kochankami. Eduardo Ricciardi, tenisista i playboy nie akceptował jej plebejskich korzeni, drugi, żonaty bankier, Ricardo Espírito Santo, był jej partnerem duchowym. Kres nadziei na wspólną przyszłość doprowadził ją do małżeństwa z Césarem Seabrą. Były też ponure tony - bolesny okres związany ze zdradą ze strony rodziny i związaniem się z reżimem faszystowskim. Zostaje on przełamany występem w Koloseum w Lizbonie podczas rewolucji goździków.  ... wczesna dorosłość, zainicjowana namiętnością do gitarzysty Francisca Cruza, a potem lokalne i międzynarodowe sukcesy. I w końcu kryzys małżeństwa z rozsądku. Dojrzałość artystyczna, która nie chciała iść w parze z dojrzałością emocjonalną. Była rozdarta między dwoma kochankami. Eduardo Ricciardi, tenisista i playboy nie akceptował jej plebejskich korzeni, drugi, żonaty bankier, Ricardo Espírito Santo, był jej partnerem duchowym. Kres nadziei na wspólną przyszłość doprowadził ją do małżeństwa z Césarem Seabrą. Były też ponure tony - bolesny okres związany ze zdradą ze strony rodziny i związaniem się z reżimem faszystowskim. Zostaje on przełamany występem w Koloseum w Lizbonie podczas rewolucji goździków.
-    

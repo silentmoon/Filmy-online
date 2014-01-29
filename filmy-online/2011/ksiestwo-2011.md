@@ -1,9 +1,5 @@
+Księstwo 2011 
+=============
+[![Księstwo 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ksiestwo-2011)
 
-        Księstwo 2011 
-        =============
-        
-        [![Księstwo 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ksiestwo-2011)
-        
-        
  Mała świętokrzyska wioska. Zionący alkoholem ojciec wpaja kilkuletniemu Zbyszkowi wiarę w książęce korzenie ich rodziny. Rozbudzone aspiracje sprawiają, że kilkanaście lat później ciasna prowincjonalna atmosfera staje się dla Zbyszka nie do zniesienia. Chłopak marzy o tym, żeby wyrwać się do „wielkiego świata”. Uświadamia sobie, że jego wehikułem może stać się piłka nożna. Jest najlepszym zawodnikiem lokalnej jedenastki. Niestety, w dniu kiedy selekcjonerzy zapraszają go do udziału w treningu pierwszoligowego zespołu, chłopak nabawia się poważnej kontuzji kolana, która przekreśla jego piłkarskie plany. Zbyszek jednak się nie poddaje. Postanawia wyrwać się z rodzinnej wioski „na indeks”. Zostaje studentem prawa. Ze względu na luźny stosunek do nauki jego relacja z uczelnią jest jednym wielkim pasmem sesji poprawkowych. Po zawaleniu egzaminu ostatniej szansy Zbyszek wraca do rodzinnej wsi – wmawia wszystkim, że to tylko wakacyjna przerwa. Ojciec nie żyje od wielu lat, a matka samodzielnie prowadzi gospodarstwo. Przy życiu trzyma ją tylko świadomość, że synowi udało się osiągnąć sukces. Zbyszek początkowo czuje się wyalienowany, ale osobiste niepowodzenia sprawiają, że dzień po dniu zbliża się do mieszkańców swojej rodzinnej miejscowości. Jak długo Zbyszkowi uda się ciągnąć tę mistyfikację i jakie będą jej konsekwencje?   ... udziału w treningu pierwszoligowego zespołu, chłopak nabawia się poważnej kontuzji kolana, która przekreśla jego piłkarskie plany. Zbyszek jednak się nie poddaje. Postanawia wyrwać się z rodzinnej wioski „na indeks”. Zostaje studentem prawa. Ze względu na luźny stosunek do nauki jego relacja z uczelnią jest jednym wielkim pasmem sesji poprawkowych. Po zawaleniu egzaminu ostatniej szansy Zbyszek wraca do rodzinnej wsi – wmawia wszystkim, że to tylko wakacyjna przerwa. Ojciec nie żyje od wielu lat, a matka samodzielnie prowadzi gospodarstwo. Przy życiu trzyma ją tylko świadomość, że synowi udało się osiągnąć sukces. Zbyszek początkowo czuje się wyalienowany, ale osobiste niepowodzenia sprawiają, że dzień po dniu zbliża się do mieszkańców swojej rodzinnej miejscowości. Jak długo Zbyszkowi uda się ciągnąć tę mistyfikację i jakie będą jej konsekwencje?
-    

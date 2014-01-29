@@ -1,9 +1,5 @@
+Marley i Ja / Marley & Me 2008 
+=============
+[![Marley i Ja / Marley & Me 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/marley-i-ja-marley-me-2008)
 
-        Marley i Ja / Marley & Me 2008 
-        =============
-        
-        [![Marley i Ja / Marley & Me 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/marley-i-ja-marley-me-2008)
-        
-        
  Jenny (Jennifer Aniston) i John Grogan (Owen Wilson) tuż po ślubie przeprowadzają się na Florydę. Dostają pracę, kupują dom. Ona chce mieć dziecko, on uważa, że to trochę za wcześnie. Kolega z pracy podrzuca mu rozwiązanie problemu: pies w prezencie dla żony! Jest mniej kłopotliwy niż niemowlę, trzeba go tylko karmić i wyprowadzać na spacer. A przy okazji można sprawdzić swoje talenty wychowawcze. I tak w życiu Jenny i Johna pojawia się Marley - mały labrador. Szczeniak szybko rośnie, lecz wcale nie dorasta. Jeśli słucha, to tylko swojego instynktu, który każe mu pozbyć się nadmiaru energii. Nie jest przy tym zbyt wymagający - wszystko, co znajdzie się w zasięgu jego wzroku, znakomicie nadaje się do zabawy. Marley wprowadza totalny chaos w życiu właścicieli, ale też w niezwykły sposób zmienia całą powiększającą się rodzinę. Pociesza, rozśmiesza, staje się świadkiem sukcesów i porażek. A przede wszystkim uświadamia Jenny i Johnowi, że można cieszyć się każdą chwilą.   ... szybko rośnie, lecz wcale nie dorasta. Jeśli słucha, to tylko swojego instynktu, który każe mu pozbyć się nadmiaru energii. Nie jest przy tym zbyt wymagający - wszystko, co znajdzie się w zasięgu jego wzroku, znakomicie nadaje się do zabawy. Marley wprowadza totalny chaos w życiu właścicieli, ale też w niezwykły sposób zmienia całą powiększającą się rodzinę. Pociesza, rozśmiesza, staje się świadkiem sukcesów i porażek. A przede wszystkim uświadamia Jenny i Johnowi, że można cieszyć się każdą chwilą.
-    

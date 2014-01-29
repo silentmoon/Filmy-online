@@ -1,9 +1,5 @@
+Graficiarze / Wholetrain 2006 
+=============
+[![Graficiarze / Wholetrain 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/graficiarze-wholetrain-2006)
 
-        Graficiarze / Wholetrain 2006 
-        =============
-        
-        [![Graficiarze / Wholetrain 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/graficiarze-wholetrain-2006)
-        
-        
  Grficiarze to trzymający w napięciu film o trudach dorastania w wielkim mieście, będący jednocześnie wnikliwym portretem subkultury malarzy graffitit. Film stawia pytania o granice wolności twórczej. Zdjęcia realizowane były w Warszawie. Czterech przyjaciół tworzy zgraną załogę graficiarzy. Ich odważne 'wrzuty' pojawiają się w najbardziej niesamowitych miejscach, wzbudzając podziw rówieśników. Pewnego dnia na ich terenie pojawia się konkurencja – nowa ekipa, której malarskie dokonania przebijają twórczość przyjaciół. Rozpoczyna się ostra rywalizacja, w którą zdecydowanie wkracza policja, usiłując ująć 'wandali'. W końcu zdarza się nieszczęście – podczas ucieczki po akcji ginie jeden z writerów, co zmienia na zawsze życie pozostałych chłopaków i doprowadza do pojednania skłóconych ekip. Atutami filmu są niezwykle plastyczne zdjęcia i znakomita, hiphopowa ścieżka dźwiękowa, na której udzielają się gwiazdy nowojorskiego undergroundu. Reżyser filmu i producent muzyki był przez wiele lat znaczącą postacią niemieckiej sceny graffitit, dlatego WHOLETRAIN niezwykle wiernie oddaje realia i klimat miejskiej dżungli.  ... malarskie dokonania przebijają twórczość przyjaciół. Rozpoczyna się ostra rywalizacja, w którą zdecydowanie wkracza policja, usiłując ująć 'wandali'. W końcu zdarza się nieszczęście – podczas ucieczki po akcji ginie jeden z writerów, co zmienia na zawsze życie pozostałych chłopaków i doprowadza do pojednania skłóconych ekip. Atutami filmu są niezwykle plastyczne zdjęcia i znakomita, hiphopowa ścieżka dźwiękowa, na której udzielają się gwiazdy nowojorskiego undergroundu. Reżyser filmu i producent muzyki był przez wiele lat znaczącą postacią niemieckiej sceny graffitit, dlatego WHOLETRAIN niezwykle wiernie oddaje realia i klimat miejskiej dżungli.
-    

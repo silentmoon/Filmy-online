@@ -1,9 +1,5 @@
+Austin Powers 2 - Szpieg, który nie umiera nigdy / Austin Powers: The Spy Who Shagged Me 1999 
+=============
+[![Austin Powers 2 - Szpieg, który nie umiera nigdy / Austin Powers: The Spy Who Shagged Me 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/austin-powers-2-szpieg-ktory-nie-umiera-nigdy-austin-powers-the-spy-who-shagged-me-1999)
 
-        Austin Powers 2 - Szpieg, który nie umiera nigdy / Austin Powers: The Spy Who Shagged Me 1999 
-        =============
-        
-        [![Austin Powers 2 - Szpieg, który nie umiera nigdy / Austin Powers: The Spy Who Shagged Me 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/austin-powers-2-szpieg-ktory-nie-umiera-nigdy-austin-powers-the-spy-who-shagged-me-1999)
-        
-        
  Kontynuacja komedii z 1997 roku pt. 'Austin Powers - agent specjalnej troski'. Doktor Zło konstruuje wehikuł czasu i przenosi się w przeszłość do roku 1969. Tu spotyka szkockiego ochroniarza i zleca mu kradzież libido - życiowej siły Austina Powersa, bez której agent jest bezbronny. Plan zostaje zrealizowany i pełen nowych sił witalnych Doktor Zło powraca do współczesności. Następnie, wraz ze swoimi współpracownikami wyrusza na Księżyc, skąd przy użyciu gigantycznego lasera zamierza wysadzić w powietrze cały Waszyngton. Tymczasem Austin Powers z pomocą brytyjskich agentów i partnerujących mu pięknych kobiet próbuje powstrzymać odwiecznego wroga i odebrać mu swoją własność...  ... zamierza wysadzić w powietrze cały Waszyngton. Tymczasem Austin Powers z pomocą brytyjskich agentów i partnerujących mu pięknych kobiet próbuje powstrzymać odwiecznego wroga i odebrać mu swoją własność...
-    

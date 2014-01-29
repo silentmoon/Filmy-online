@@ -1,9 +1,5 @@
+Kobieta w błękitnej wodzie / Lady in the Water 2006 
+=============
+[![Kobieta w błękitnej wodzie / Lady in the Water 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kobieta-w-blekitnej-wodzie-lady-in-the-water-2006)
 
-        Kobieta w błękitnej wodzie / Lady in the Water 2006 
-        =============
-        
-        [![Kobieta w błękitnej wodzie / Lady in the Water 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kobieta-w-blekitnej-wodzie-lady-in-the-water-2006)
-        
-        
  Cleveland Heep (Paul Giamatti) starał się uciec od tego świata, zaszywając się wśród przepalonych żarówek i zepsutych urządzeń bloku Cove, którym się opiekował jako dozorca. Jednak pewnej nocy, która zupełnie odmieni jego życie, Cleveland odnajduje jeszcze kogoś, kto także ukrywa się wśród prozy życia w budynku - tajemniczą dziewczynę o imieniu Story (Bryce Dallas Howard), która od pewnego czasu mieszka w korytarzach znajdujących się pod basenem należącym do obiektu. Cleveland odkrywa, że Story jest 'narfą' - podobną do nimfy postacią z bajki, śledzoną przez groźne stwory próbujące ją powstrzymać przed powrotem do swojego świata. Dzięki swym wyjątkowym, nadnaturalnym zdolnościom, Story zna przyszłość sąsiadów Clevelanda, których losy związane są bezpośrednio z jej życiem. Wszyscy muszą wspólnie rozszyfrować znaki, które otworzą jej drogę do wolności. Niestety, szanse na powrót Story do domu są coraz mniejsze, a mieszkańcy bloku z narażeniem życia próbują jej pomóc. Cleveland będzie musiał spojrzeć prosto w oczy demonom, które dotarły za nim do Cove, a pozostali sąsiedzi będą musieli nauczyć się kontrolować specjalne moce, które Story w nich wyzwoliła, aby wygrać trudną i niebezpieczną walkę o istnienie jej świata... i naszego.  ... Cleveland odkrywa, że Story jest 'narfą' - podobną do nimfy postacią z bajki, śledzoną przez groźne stwory próbujące ją powstrzymać przed powrotem do swojego świata. Dzięki swym wyjątkowym, nadnaturalnym zdolnościom, Story zna przyszłość sąsiadów Clevelanda, których losy związane są bezpośrednio z jej życiem. Wszyscy muszą wspólnie rozszyfrować znaki, które otworzą jej drogę do wolności. Niestety, szanse na powrót Story do domu są coraz mniejsze, a mieszkańcy bloku z narażeniem życia próbują jej pomóc. Cleveland będzie musiał spojrzeć prosto w oczy demonom, które dotarły za nim do Cove, a pozostali sąsiedzi będą musieli nauczyć się kontrolować specjalne moce, które Story w nich wyzwoliła, aby wygrać trudną i niebezpieczną walkę o istnienie jej świata... i naszego.
-    

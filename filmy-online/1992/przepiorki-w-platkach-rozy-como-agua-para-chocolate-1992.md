@@ -1,9 +1,5 @@
+Przepiórki w płatkach róży / Como Agua Para Chocolate 1992 
+=============
+[![Przepiórki w płatkach róży / Como Agua Para Chocolate 1992 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przepiorki-w-platkach-rozy-como-agua-para-chocolate-1992)
 
-        Przepiórki w płatkach róży / Como Agua Para Chocolate 1992 
-        =============
-        
-        [![Przepiórki w płatkach róży / Como Agua Para Chocolate 1992 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przepiorki-w-platkach-rozy-como-agua-para-chocolate-1992)
-        
-        
  Historia o miłości i dobrym jedzeniu, usytułowana w Meksyku początku XX wieku. Tita i Pedro nie mogą zrealizować swej miłości, gdyż jej matka, Elena, decyduje, że jej najmłodsza córka, musi zostać starą panną, by się nią opiekować w starości. Pomiędzy zapachami i smakiem tradycyjnej meksykańskiej kuchni, Tita cierpi długie lata przez miłość, która przetrwa nawet śmierć. Jak woda do czekolady jest fenomenem w kulturze meksykańskiej. Ta, pierwsza novela Laury Esquivel, otrzymała wiele dobrych recenzji i biła rekordy w sprzedaży w Meksyku, co jest niezmiernym sukcesem, gdyż jest to kraj, w którym się nie czyta dużo. Ekranizacja tej powieści stała się rzeczą jakby oczywistą, gdyż jej mąż, Alfonso Arau, meksykański reżyser i aktor, po tryunfie książki, po prostu nie widział tego inaczej. Film ten zawdzięcza swój sukces walorom estetycznym, lecz to nie przydało by się, gdyby opowieśc nie była tak przejmująca, gdyż właśnie dobra opowieść, jest kluczem do dobrego filmu. Szkoda, że film ten nie jest dystrybuowany w Polsce, lecz miejmy nadzieję, że to się zmieni. Dlatego też właśnie stworzyłam o nim tę stronę.   ... otrzymała wiele dobrych recenzji i biła rekordy w sprzedaży w Meksyku, co jest niezmiernym sukcesem, gdyż jest to kraj, w którym się nie czyta dużo. Ekranizacja tej powieści stała się rzeczą jakby oczywistą, gdyż jej mąż, Alfonso Arau, meksykański reżyser i aktor, po tryunfie książki, po prostu nie widział tego inaczej. Film ten zawdzięcza swój sukces walorom estetycznym, lecz to nie przydało by się, gdyby opowieśc nie była tak przejmująca, gdyż właśnie dobra opowieść, jest kluczem do dobrego filmu. Szkoda, że film ten nie jest dystrybuowany w Polsce, lecz miejmy nadzieję, że to się zmieni. Dlatego też właśnie stworzyłam o nim tę stronę.
-    

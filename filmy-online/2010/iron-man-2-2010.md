@@ -1,9 +1,5 @@
+Iron Man 2 2010 
+=============
+[![Iron Man 2 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/iron-man-2-2010)
 
-        Iron Man 2 2010 
-        =============
-        
-        [![Iron Man 2 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/iron-man-2-2010)
-        
-        
  Kilka miesięcy temu cały świat poznał prawdziwą tożsamość czerwonozłotego bohatera ze stali. W tym czasie miliarder Tony Stark (Robert Downey Jr.) zdołał ustabilizować stosunki Wschód-Zachód i przewrócić nadzieję na międzynarodowy pokój. Nie wszystkim jednak odpowiada jego działalność. Specjalna senacka komisja postrzega Iron Mana jako zagrożenie bezpieczeństwa narodowego. Innym przeciwnikiem Tony'ego jest Justin Hammer (Sam Rockwell), szef koncernu zbrojeniowego pragnący zostać wyłącznym dostawcą broni dla armii USA. Podczas Grand Prix Monako Tony decyduje się osobiście prowadzić samochód swojego zespołu. Wtedy atakuje go Ivan Vanko (Mickey Rourke), rosyjski złoczyńca i genialny fizyk, żądny zemsty za krzywdę, którą rodzina Starków wyrządziła jego ojcu.   ... zostać wyłącznym dostawcą broni dla armii USA. Podczas Grand Prix Monako Tony decyduje się osobiście prowadzić samochód swojego zespołu. Wtedy atakuje go Ivan Vanko (Mickey Rourke), rosyjski złoczyńca i genialny fizyk, żądny zemsty za krzywdę, którą rodzina Starków wyrządziła jego ojcu.
-    

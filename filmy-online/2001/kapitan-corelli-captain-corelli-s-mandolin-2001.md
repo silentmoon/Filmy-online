@@ -1,9 +1,5 @@
+Kapitan Corelli / Captain Corelli's Mandolin 2001 
+=============
+[![Kapitan Corelli / Captain Corelli's Mandolin 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kapitan-corelli-captain-corelli-s-mandolin-2001)
 
-        Kapitan Corelli / Captain Corelli's Mandolin 2001 
-        =============
-        
-        [![Kapitan Corelli / Captain Corelli's Mandolin 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kapitan-corelli-captain-corelli-s-mandolin-2001)
-        
-        
  Kiedy Corelli i jego ludzie przybywają na wyspę, sądzą, że czeka ich coś w rodzaju greckich wakacji, z dala od wojny. Początkowo Pelagia wraz z innymi mieszkańcami zachowuje rezerwę wobec nieproszonych gości, ale w końcu wdzięk Włochów i ich umiłowanie życia sprawiają, że zatarty zostaje dystans spowodowany narodowością i okolicznościami, a Pelagia dostrzega w Corellim takiego człowieka, jakim jest on w rzeczywistości - kochającego życie, swoją muzykę i właśnie ją. Jednakże wojna wdziera się na idylliczne brzegi Kefalinii na zawsze niszcząc spokój zarówno mieszkańców, jak i Włochów. Czuły związek między Antonio i Pelagią jest zagrożony. Kiedy do kapitana Corellego docierają brutalne realia wojny, musi wybierać między możliwością opuszczenia wyspy i kobietą, którą pokochał. Także Pelagia wie, że będąc bezsilną wobec wojny musi pożegnać się ze swoim kochankiem bez pewności, czy jeszcze kiedykolwiek się znów spotkają.   ... wojna wdziera się na idylliczne brzegi Kefalinii na zawsze niszcząc spokój zarówno mieszkańców, jak i Włochów. Czuły związek między Antonio i Pelagią jest zagrożony. Kiedy do kapitana Corellego docierają brutalne realia wojny, musi wybierać między możliwością opuszczenia wyspy i kobietą, którą pokochał. Także Pelagia wie, że będąc bezsilną wobec wojny musi pożegnać się ze swoim kochankiem bez pewności, czy jeszcze kiedykolwiek się znów spotkają.
-    

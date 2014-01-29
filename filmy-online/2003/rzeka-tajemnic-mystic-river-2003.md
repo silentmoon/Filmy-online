@@ -1,9 +1,5 @@
+Rzeka tajemnic / Mystic River 2003 
+=============
+[![Rzeka tajemnic / Mystic River 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rzeka-tajemnic-mystic-river-2003)
 
-        Rzeka tajemnic / Mystic River 2003 
-        =============
-        
-        [![Rzeka tajemnic / Mystic River 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rzeka-tajemnic-mystic-river-2003)
-        
-        
  Jimmy Markum (Sean Penn), Dave Boyle (Tim Robbins) i Sean Devine (Kevin Bacon) pochodzą z robotniczych rodzin. Znają i przyjaźnią się od dziecka, kiedy to razem wychowywali się w niespokojnej bostońskiej dzielnicy. W ich życiu nie wydarzyło się nic nadzwyczajnego, aż do momentu, kiedy jeden z nich wsiadł do niewłaściwego samochodu. Porwanie Davida Boyle'a zmieniło wszystko. Ich przyjaźń została zachwiana, chłopcy oddalili się od siebie. 25 lat później ich drogi ponownie się łączą za sprawą innego, tragicznego wydarzenia - morderstwa dziewiętnastoletniej córki Jimmy'ego. Seanowi, który został policyjnym detektywem, zostaje powierzona sprawa brutalnego morderstwa. Wraz ze swoim partnerem (Laurence Fishburne) rozpoczyna dochodzenie. Po krótkim dochodzeniu ich głównym podejrzanym staje się Dave Boyle.   ... łączą za sprawą innego, tragicznego wydarzenia - morderstwa dziewiętnastoletniej córki Jimmy'ego. Seanowi, który został policyjnym detektywem, zostaje powierzona sprawa brutalnego morderstwa. Wraz ze swoim partnerem (Laurence Fishburne) rozpoczyna dochodzenie. Po krótkim dochodzeniu ich głównym podejrzanym staje się Dave Boyle.
-    

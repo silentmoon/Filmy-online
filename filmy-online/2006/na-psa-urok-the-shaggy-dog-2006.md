@@ -1,9 +1,5 @@
+Na psa urok / The Shaggy Dog 2006 
+=============
+[![Na psa urok / The Shaggy Dog 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/na-psa-urok-the-shaggy-dog-2006)
 
-        Na psa urok / The Shaggy Dog 2006 
-        =============
-        
-        [![Na psa urok / The Shaggy Dog 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/na-psa-urok-the-shaggy-dog-2006)
-        
-        
  Kolejna komedia z sympatycznym psem w roli głównej. Tym razem na ekranie zobaczymy owczarka collie brodatego o imieniu Coal, sympatycznego biało-szarego psa o długiej sierści, znanego z umiejętności szybkiego uczenia się i nieprzeciętnej inteligencji. Komedia opowiada o prawniku Davie Douglasie (Tim Allen), który bez reszty poświęca się pracy, ledwie zauważając swoją żonę (Kristin Davis) i dzieci. Dave zajmuje się teraz m.in. sprawą dotyczącą instytutu badawczego, w których prowadzone są eksperymenty na zwierzętach. Dave w czasie pobytu w instytucie zostaje zainfekowany szczepionką zmieniającą cechy genetyczne. Szczepionka jest ściśle tajna, stworzył ją doktor Kozak (Robert Downey Jr.), który zamierza ją wykorzystać do niecnych celów. Działanie szczepionki objawia się pewnej nocy. Dave zamienia się w... psa pasterskiego! Zmiana jednak nie jest ostateczna. Prawnik co jakiś czas powraca do swojej postaci, jednak wtedy też nie jest wolny od typowo zwierzęcych odruchów, co stwarza wiele zabawnych sytuacji. Nie jest zabawnie jednak, gdy Dave jako pies odkrywa, jak bardzo oddalił się od swojej rodziny. Chce za wszelką cenę to naprawić, chociaż teraz jego możliwości są ograniczone. Mężczyzna w ciele psa będzie musiał też stoczyć śmiertelny pojedynek z doktorem Kozakiem...  ... prowadzone są eksperymenty na zwierzętach. Dave w czasie pobytu w instytucie zostaje zainfekowany szczepionką zmieniającą cechy genetyczne. Szczepionka jest ściśle tajna, stworzył ją doktor Kozak (Robert Downey Jr.), który zamierza ją wykorzystać do niecnych celów. Działanie szczepionki objawia się pewnej nocy. Dave zamienia się w... psa pasterskiego! Zmiana jednak nie jest ostateczna. Prawnik co jakiś czas powraca do swojej postaci, jednak wtedy też nie jest wolny od typowo zwierzęcych odruchów, co stwarza wiele zabawnych sytuacji. Nie jest zabawnie jednak, gdy Dave jako pies odkrywa, jak bardzo oddalił się od swojej rodziny. Chce za wszelką cenę to naprawić, chociaż teraz jego możliwości są ograniczone. Mężczyzna w ciele psa będzie musiał też stoczyć śmiertelny pojedynek z doktorem Kozakiem...
-    

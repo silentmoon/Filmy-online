@@ -1,9 +1,5 @@
+Czas Cyganów / Dom za vješanje 1988 
+=============
+[![Czas Cyganów / Dom za vješanje 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czas-cyganow-dom-za-vjeanje-1988)
 
-        Czas Cyganów / Dom za vješanje 1988 
-        =============
-        
-        [![Czas Cyganów / Dom za vješanje 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czas-cyganow-dom-za-vjeanje-1988)
-        
-        
  Z pozoru film przynosi etnograficzny portret jugosłowiańskich Cyganów; wystąpili w nim nieprofesjonalni aktorzy - Romowie posługujący się swym naturalnym językiem; na ekranie wybrzmiewają charakterystyczne dźwięki cygańskiej muzyki. Realizm filmu jest jednak pozorny. Najlepszym dla niego określeniem jest realizm magiczny. Kusturica przeplata liryzm i piękno z odrażającą ohydą. Bohaterowie uwikłani są w zdarzenia z pogranicza świata zdarzeń zwyczajnych i nadprzyrodzonych. Tragikomiczny klimat filmu, charakterystyczny dla całej twórczości Kusturicy, sugeruje już oryginalny tytuł filmu: 'Powieszony dom', który rzeczywiście zawisa w powietrzu w jednej z najbardziej spektakularnych scen filmu. Bohaterem opowieści jest Perhana, młody Cygan obdarzony zdolnościami telekinetycznymi, który w poszukiwaniu zarobku wyjeżdża do Włoch. Pieniądze potrzebne mu są na opłacenie operacji chorej siostry i ożenek z piękną Azrą. Na miejscu okazuje się, że jego praca polega głównie na kradzieżach, żebraniu i stręczycielstwie. Wciągnąwszy się w interes z czasem zastępuje swego szefa i sam zaczyna prowadzić całe 'przedsiębiorstwo'. Musi także uporać się z zawirowaniami losu, który nie szczędzi mu dramatycznych niespodzianek.   ... Tragikomiczny klimat filmu, charakterystyczny dla całej twórczości Kusturicy, sugeruje już oryginalny tytuł filmu: 'Powieszony dom', który rzeczywiście zawisa w powietrzu w jednej z najbardziej spektakularnych scen filmu. Bohaterem opowieści jest Perhana, młody Cygan obdarzony zdolnościami telekinetycznymi, który w poszukiwaniu zarobku wyjeżdża do Włoch. Pieniądze potrzebne mu są na opłacenie operacji chorej siostry i ożenek z piękną Azrą. Na miejscu okazuje się, że jego praca polega głównie na kradzieżach, żebraniu i stręczycielstwie. Wciągnąwszy się w interes z czasem zastępuje swego szefa i sam zaczyna prowadzić całe 'przedsiębiorstwo'. Musi także uporać się z zawirowaniami losu, który nie szczędzi mu dramatycznych niespodzianek.
-    

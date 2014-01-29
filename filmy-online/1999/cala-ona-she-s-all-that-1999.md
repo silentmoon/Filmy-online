@@ -1,9 +1,5 @@
+Cała ona / She's All That 1999 
+=============
+[![Cała ona / She's All That 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cala-ona-she-s-all-that-1999)
 
-        Cała ona / She's All That 1999 
-        =============
-        
-        [![Cała ona / She's All That 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cala-ona-she-s-all-that-1999)
-        
-        
  Typowa amerykańska szkoła średnia. Zbliża się bal maturalny. Zach Siler (Freddie Prinze Jr.), przewodniczący klasy, kapitan drużyny futbolowej, a zarazem najprzystojniejszy chłopak w szkole oraz jego dziewczyna Taylor Vaughan (Jodi Lyn O'Keefe) zostaną najprawdopodobniej królem i królową balu. Niestety tuż przed balem Taylor porzuca Zacha dla gwiazdora serialu telewizyjnego, czym naraża na szwank jego dobre imię. Upokorzony Siler stwierdza, że Taylor jest zupełnie przeciętna, a on z każdej dziewczyny potrafi uczynić królową balu. Zakłada się z kumplem, że zaszczyt ten spotka skromną Laney Boggs (Rachael Leigh Cook). Wszystko idzie gładko dopóki dziewczyna nie dowiaduje się, że Zach spotyka się z nią dla zakładu.  ... a on z każdej dziewczyny potrafi uczynić królową balu. Zakłada się z kumplem, że zaszczyt ten spotka skromną Laney Boggs (Rachael Leigh Cook). Wszystko idzie gładko dopóki dziewczyna nie dowiaduje się, że Zach spotyka się z nią dla zakładu.
-    

@@ -1,9 +1,5 @@
+The Social Network 2010 
+=============
+[![The Social Network 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/the-social-network-2010)
 
-        The Social Network 2010 
-        =============
-        
-        [![The Social Network 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/the-social-network-2010)
-        
-        
  To kolejny film najciekawszego reżysera ostatnich lat, twórcy takich obrazów jak 'Siedem', 'Podziemny krąg' czy 'Ciekawy przypadek Benjamina Buttona'. Historia opowiada o powstaniu portalu Facebook. Jedną z głównych ról gra Justin Timberlake. Pewnego październikowego wieczoru w 2003 roku, po zerwaniu z dziewczyną, Mark (Jesse Eisenberg) włamuje się do uniwersyteckiej sieci komputerowej i tworzy stronę internetową będącą bazą studentek Harvardu. Następnie umieszcza obok siebie zdjęcia dziewcząt i zadaje użytkownikom pytanie o to, która z nich jest atrakcyjniejsza. Strona otrzymuje nazwę Facemash i staje się niezwykle popularna wywołując jednocześnie mnóstwo kontrowersji. Mark zostaje oskarżony o celowe złamanie zabezpieczeń, pogwałcenie praw autorskich i naruszenie prywatności. Jednak to właśnie wtedy rodzi się zarys Facebooka. Wkrótce potem Mark zakłada stronę thefacebook.com, która gości na monitorach komputerów na Harvardzie, uniwersytetów Ivy League oraz Doliny Krzemowej, a potem dosłownie w każdym zakątku świata.  ... siebie zdjęcia dziewcząt i zadaje użytkownikom pytanie o to, która z nich jest atrakcyjniejsza. Strona otrzymuje nazwę Facemash i staje się niezwykle popularna wywołując jednocześnie mnóstwo kontrowersji. Mark zostaje oskarżony o celowe złamanie zabezpieczeń, pogwałcenie praw autorskich i naruszenie prywatności. Jednak to właśnie wtedy rodzi się zarys Facebooka. Wkrótce potem Mark zakłada stronę thefacebook.com, która gości na monitorach komputerów na Harvardzie, uniwersytetów Ivy League oraz Doliny Krzemowej, a potem dosłownie w każdym zakątku świata.
-    

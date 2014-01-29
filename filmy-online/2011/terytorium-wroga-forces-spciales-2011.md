@@ -1,9 +1,5 @@
+Terytorium wroga / Forces spéciales 2011 
+=============
+[![Terytorium wroga / Forces spéciales 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/terytorium-wroga-forces-spciales-2011)
 
-        Terytorium wroga / Forces spéciales 2011 
-        =============
-        
-        [![Terytorium wroga / Forces spéciales 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/terytorium-wroga-forces-spciales-2011)
-        
-        
  Grupa komandosów wyszkolonych do pracy w ekstremalnych warunkach podejmie się uwolnienia porwanej w Afganistanie dziennikarki. Dlaczego właśnie ta akcja staje się ich 'misją niemożliwą'? Czy ocalenie jednej osoby jest  warte od życia sześciu? Czy warte tego jest uczucie, które zrodzi się pomiędzy jednym z żołnierzy a dziennikarką? Czego nie jest w stanie przewidzieć wojskowy regulamin? Terytorium wroga, to pierwszy film wojenny, w którym na tak wielką skalę francuskie siły zbrojne zaangażowały zarówno swoich zawodowych żołnierzy, jak i najnowocześniejszą wojskową technologię. Rozmach produkcji jest oszałamiający i przywodzi na myśl największe hollywoodzkie produkcje -  'Szeregowca Ryana' czy 'Helikopter w ogniu'. Zdjęcia kręcono na trzech kontynentach, co pozwoliło stworzyć widowiskowe, zapierające dech w piersiach, realistyczne kino akcji. Powstał film niezwykły. Mocny, ale jednocześnie ściskający za gardło.   ... siły zbrojne zaangażowały zarówno swoich zawodowych żołnierzy, jak i najnowocześniejszą wojskową technologię. Rozmach produkcji jest oszałamiający i przywodzi na myśl największe hollywoodzkie produkcje -  'Szeregowca Ryana' czy 'Helikopter w ogniu'. Zdjęcia kręcono na trzech kontynentach, co pozwoliło stworzyć widowiskowe, zapierające dech w piersiach, realistyczne kino akcji. Powstał film niezwykły. Mocny, ale jednocześnie ściskający za gardło.
-    

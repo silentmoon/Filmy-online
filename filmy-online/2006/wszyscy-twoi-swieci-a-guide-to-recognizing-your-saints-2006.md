@@ -1,9 +1,5 @@
+Wszyscy twoi święci / A Guide to Recognizing Your Saints 2006 
+=============
+[![Wszyscy twoi święci / A Guide to Recognizing Your Saints 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wszyscy-twoi-swieci-a-guide-to-recognizing-your-saints-2006)
 
-        Wszyscy twoi święci / A Guide to Recognizing Your Saints 2006 
-        =============
-        
-        [![Wszyscy twoi święci / A Guide to Recognizing Your Saints 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wszyscy-twoi-swieci-a-guide-to-recognizing-your-saints-2006)
-        
-        
  Odnoszący sukcesy pisarz z Los Angeles, Dito (Robert Downey Jr.), po 15 latach nieobecności, wraca do rodzinnej Astorii - dzielnicy Nowego Jorku. Celem tak dalekiej podróży jest spotkanie i próba odbudowania relacji z poważnie chorym ojcem. To również okazja, aby odwiedzić starych znajomych z dzieciństwa, tzw. 'świętych' - przyjaciół Dito, którym udało się przetrwać ten trudny dla nich okres, tj. nie przedawkować, nie zostać zabitym czy nie skończyć w więzieniu. Pobyt tu sprawia, że u głównego bohatera budzą się wspomnienia z młodości - zarówno te pozytywne, jak i negatywne. Cofa się myślami do lat 80-tych, a dokładniej do pamiętnego, upalnego lata 1986 roku. Był to czas, który odcisnął swe piętno na całym jego późniejszym, pisarskim życiu...  ... sprawia, że u głównego bohatera budzą się wspomnienia z młodości - zarówno te pozytywne, jak i negatywne. Cofa się myślami do lat 80-tych, a dokładniej do pamiętnego, upalnego lata 1986 roku. Był to czas, który odcisnął swe piętno na całym jego późniejszym, pisarskim życiu...
-    

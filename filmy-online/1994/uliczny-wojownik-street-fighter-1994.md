@@ -1,9 +1,5 @@
+Uliczny wojownik / Street Fighter 1994 
+=============
+[![Uliczny wojownik / Street Fighter 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uliczny-wojownik-street-fighter-1994)
 
-        Uliczny wojownik / Street Fighter 1994 
-        =============
-        
-        [![Uliczny wojownik / Street Fighter 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uliczny-wojownik-street-fighter-1994)
-        
-        
  Szalony generał więzi 63 zakładników. Zadanie ich uwolnienia otrzymuje William Guile, pułkownik sił zbrojnych ONZ. 'Streetfighter' jest adaptacją jednej z najpopularniejszych na świecie gier komputerowych i fakt ten nie stanowi większej sensacji w czasach, gdy kino coraz częściej sięga do dorobku najróżniejszych mediów. Film jest debiutem reżyserskim znanego scenarzysty Stevena E. de Souzy, który zdobył uznanie scenariuszami do m.in 'Szklanej pułapki' i 'Zabójczej broni'. Dzięki niemu powstał widowiskowy film akcji z elementami kina fantastyczno - naukowego i przygodowego, wyróżniający się szybkim tempem, wspaniałymi plenerami (Bangkok, Australia) i sporą dawką humoru, niekiedy w formie błyskotliwej parodii. Wielkim atutem filmu jest niezwykle atrakcyjna, wielonarodowa obsada. Belgowi Jean - Claude Van Damme'owi partneruje niedawno zmarły wybitny aktor Raul Julia, a obok nich występują aktorzy wywodzący się z Hong Kongu (Ming - Na Wen), Australii (Kylie Minogue), Anglii (Simon Callow), Indii (Roshan Seth), a nawet rdzennych plemion indiańskich USA (Wes Studi).   ... Dzięki niemu powstał widowiskowy film akcji z elementami kina fantastyczno - naukowego i przygodowego, wyróżniający się szybkim tempem, wspaniałymi plenerami (Bangkok, Australia) i sporą dawką humoru, niekiedy w formie błyskotliwej parodii. Wielkim atutem filmu jest niezwykle atrakcyjna, wielonarodowa obsada. Belgowi Jean - Claude Van Damme'owi partneruje niedawno zmarły wybitny aktor Raul Julia, a obok nich występują aktorzy wywodzący się z Hong Kongu (Ming - Na Wen), Australii (Kylie Minogue), Anglii (Simon Callow), Indii (Roshan Seth), a nawet rdzennych plemion indiańskich USA (Wes Studi).
-    

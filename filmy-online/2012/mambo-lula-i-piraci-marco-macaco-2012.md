@@ -1,9 +1,5 @@
+Mambo, Lula i piraci / Marco Macaco 2012 
+=============
+[![Mambo, Lula i piraci / Marco Macaco 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mambo-lula-i-piraci-marco-macaco-2012)
 
-        Mambo, Lula i piraci / Marco Macaco 2012 
-        =============
-        
-        [![Mambo, Lula i piraci / Marco Macaco 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mambo-lula-i-piraci-marco-macaco-2012)
-        
-        
  Nowy film twórcy przebojowych 'Disco Robaczków', z którymi w 2010 roku pląsało w Polsce ponad 600 tysięcy widzów. W pełnej gorących hitów z Karaibów, rozśpiewanej i roztańczonej komedii dla całej rodziny, głosów użyczyli: pierwsza dama polskiego kabaretu – Katarzyna Pakosińska; człowiek, który nauczył 'Shreka' polskiej mowy – Zbigniew Zamachowski oraz niekwestionowany król Julian polskiego dubbingu - Jarosław Boberek. Piosenkarka Lula i dzielny strażnik plaży Mambo próbują powstrzymać złoczyńcę Carlosa, który zamierza przejąć władzę na wyspie prezydenta Małpiozo i nękać jej mieszkańców podrzędnym disco 24-godziny na dobę. Mambo i Lula, wspierani przez załogę piratów-melomanów, rzucą wyzwanie Carlosowi i udowodnią całym tropikom, że nie ma mocnego na człekokształtnego, a muzyka pochodzi od małpy! Szympańską zabawę w kinach zapewnią mistrzowie dubbingu - Katarzyna Pakosińska ('Renifer Niko ratuje brata'), Zbigniew Zamachowski (seria 'Shrek') oraz Jarosław Boberek (niezapomniany król Julian z 'Madagaskaru') w roli Prezydenta Małpiozo. Piosenki napisał Marek Robaczewski, autor pamiętnych adaptacji przebojów lat 70. z 'Disco Robaczków' (między innymi 'Ja siłę mam' w wykonaniu Agnieszki Chylińskiej).  ... powstrzymać złoczyńcę Carlosa, który zamierza przejąć władzę na wyspie prezydenta Małpiozo i nękać jej mieszkańców podrzędnym disco 24-godziny na dobę. Mambo i Lula, wspierani przez załogę piratów-melomanów, rzucą wyzwanie Carlosowi i udowodnią całym tropikom, że nie ma mocnego na człekokształtnego, a muzyka pochodzi od małpy! Szympańską zabawę w kinach zapewnią mistrzowie dubbingu - Katarzyna Pakosińska ('Renifer Niko ratuje brata'), Zbigniew Zamachowski (seria 'Shrek') oraz Jarosław Boberek (niezapomniany król Julian z 'Madagaskaru') w roli Prezydenta Małpiozo. Piosenki napisał Marek Robaczewski, autor pamiętnych adaptacji przebojów lat 70. z 'Disco Robaczków' (między innymi 'Ja siłę mam' w wykonaniu Agnieszki Chylińskiej).
-    

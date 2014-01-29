@@ -1,9 +1,5 @@
+Step Up 3D 2010 
+=============
+[![Step Up 3D 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/step-up-3d-2010)
 
-        Step Up 3D 2010 
-        =============
-        
-        [![Step Up 3D 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/step-up-3d-2010)
-        
-        
  Luke (Rick Malambri) jest tancerzem ulicznym. Jego dom to stary magazyn w Nowym Jorku. Miejsce to jest rajem dla młodych ludzi z całego świata, którzy kochają taniec i muzykę. Jedyną rodziną Luke’a są członkowie grupy House of Pirates, z którymi codziennie ćwiczy, aby pokonać swoich odwiecznych rywali z konkurującej ekipy House of Samurai. Nieubłaganie zbliża się wielki dzień międzynarodowych mistrzostw w tańcu. Luke wyrusza w miasto na poszukiwanie nowych, utalentowanych tancerzy, którzy pomogą mu wzbogacić skład jego grupy i tym samym zwiększą szansę na wygranie głównej nagrody w turnieju. Chłopak poznaje Natalie (Sharni Vinson) i Moose’a (znany ze „Step Up 2” rewelacyjny Adam Sevani). Między Lukiem i dziewczyną rodzi się uczucie, jednak młoda tancerka kryje sekret, który może zniszczyć iskrzącą między nimi miłość i zaprzepaści szansę na wygranie mistrzostw. W ostatnim momencie z pomocą przychodzą sprowadzeni przez Moose’a starzy członkowie ekipy z Maryland School of Arts. Czy zdążą jeszcze przygotować się do zwycięstwa w turnieju?  ... tancerzy, którzy pomogą mu wzbogacić skład jego grupy i tym samym zwiększą szansę na wygranie głównej nagrody w turnieju. Chłopak poznaje Natalie (Sharni Vinson) i Moose’a (znany ze „Step Up 2” rewelacyjny Adam Sevani). Między Lukiem i dziewczyną rodzi się uczucie, jednak młoda tancerka kryje sekret, który może zniszczyć iskrzącą między nimi miłość i zaprzepaści szansę na wygranie mistrzostw. W ostatnim momencie z pomocą przychodzą sprowadzeni przez Moose’a starzy członkowie ekipy z Maryland School of Arts. Czy zdążą jeszcze przygotować się do zwycięstwa w turnieju?
-    

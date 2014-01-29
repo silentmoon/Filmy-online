@@ -1,9 +1,5 @@
+Z miłości 2011 
+=============
+[![Z miłości 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/z-milosci-2011)
 
-        Z miłości 2011 
-        =============
-        
-        [![Z miłości 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/z-milosci-2011)
-        
-        
  Historia dwudziestoletniej Eweliny, która wraz z mężem decyduje się zagrać w filmie porno. Orgazm, którego doświadczy na planie podczas zdjęć, reakcja męża i przeżycia innych kobiet z branży zupełnie przewartościują jej życie. Ewelina i Piotr są kilka miesięcy po ślubie, mają małe dziecko i jak wiele młodych małżeństw, nieustające kłopoty finansowe. Piotrek nie ma stałej pracy i pomysłu jak utrzymać rodzinę. W rozmowie z przyjaciółmi dowiadują się, że udział w filmie porno jest łatwym i przyjemnym sposobem na szybkie zarobienie sporej sumy. Ewelina decyduje, że wraz z Piotrem tylko raz zagrają w takim filmie. Małżeństwo wyjeżdża do Warszawy zrealizować swój odważny plan. Wkraczając nieśmiało w progi porno biznesu, młodzi ludzie uruchamiają serię zdarzeń, które trwale zmieniają ich relacje i przesuwają moralne granice.    ... jest łatwym i przyjemnym sposobem na szybkie zarobienie sporej sumy. Ewelina decyduje, że wraz z Piotrem tylko raz zagrają w takim filmie. Małżeństwo wyjeżdża do Warszawy zrealizować swój odważny plan. Wkraczając nieśmiało w progi porno biznesu, młodzi ludzie uruchamiają serię zdarzeń, które trwale zmieniają ich relacje i przesuwają moralne granice. 
-    

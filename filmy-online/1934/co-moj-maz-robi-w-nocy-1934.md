@@ -1,9 +1,5 @@
+Co mój mąż robi w nocy? 1934 
+=============
+[![Co mój mąż robi w nocy? 1934 ](http://vidos.pl/images/player.gif)](http://vidos.pl/co-moj-maz-robi-w-nocy-1934)
 
-        Co mój mąż robi w nocy? 1934 
-        =============
-        
-        [![Co mój mąż robi w nocy? 1934 ](http://vidos.pl/images/player.gif)](http://vidos.pl/co-moj-maz-robi-w-nocy-1934)
-        
-        
  Roman Tarski (Michał Znicz) jest współwłaścicielem doskonale prosperującej firmy budowlanej 'Żel-Beton'. Jednak pewnego dnia, gdy jego wspólnik Otto znika z całą gotówką, jest zrujnowany. Stefie, swojej żonie (Maria Gorczyńska), która właśnie powróciła z nadmorskich wakacji, opowiada zmyśloną historię o praktykowanym wśród przemysłowców planowym bankructwie i konieczności konspiracyjnej pracy, przez pewien czas, wyłącznie w nocy. Praca ta, to posada kelnera w nocnym lokalu 'Alhambra', gdzie Roman zatrudnił się, żeby zarobić na życie. Ciągłe zmęczenie męża i  dziwne wynurzenia w czasie snu wzbudzają w Stefie coraz  podejrzeń. A gdy w kuchni zastaje Romana w towarzystwie pokojówki Kazi (Tola Mankiewiczówna) i jej narzeczonego Walerego (Wojciech Ruszkowski), również kelnera w 'Alhambrze', kompletnie pijanych, postanawia wreszcie całą sprawę wyjaśnić. Pomaga jej w tym baron Carolescu (Kazimierz Krukowski), adorator Stefy...   ... 'Alhambra', gdzie Roman zatrudnił się, żeby zarobić na życie. Ciągłe zmęczenie męża i  dziwne wynurzenia w czasie snu wzbudzają w Stefie coraz więcej podejrzeń. A gdy w kuchni zastaje Romana w towarzystwie pokojówki Kazi (Tola Mankiewiczówna) i jej narzeczonego Walerego (Wojciech Ruszkowski), również kelnera w 'Alhambrze', kompletnie pijanych, postanawia wreszcie całą sprawę wyjaśnić. Pomaga jej w tym baron Carolescu (Kazimierz Krukowski), adorator Stefy...
-    

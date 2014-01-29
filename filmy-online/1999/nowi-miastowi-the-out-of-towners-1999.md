@@ -1,9 +1,5 @@
+Nowi miastowi / The Out-of-Towners 1999 
+=============
+[![Nowi miastowi / The Out-of-Towners 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nowi-miastowi-the-out-of-towners-1999)
 
-        Nowi miastowi / The Out-of-Towners 1999 
-        =============
-        
-        [![Nowi miastowi / The Out-of-Towners 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nowi-miastowi-the-out-of-towners-1999)
-        
-        
  Kiedy małżeńska para w średnim wieku opuszcza swoje gniazdo rodzinne na środkowym-zachodzie Stanów Zjednoczonych i udaje się w kierunku Nowego Yorku rozpoczyna się szalona 24-godzinna odyseja pełna nieprzewidzianych wydarzeń i zabawnych sytuacji. Wraz z biegiem wypadków, które porywają ich ze sobą, państwu Clark udaje się w końcu odnaleźć siebie samych i swoje prawdziwe szczęście we dwoje. Do tej pory życie codzienne Henry'ego i Nancy obracało się wokół przyziemnych spraw spłacania zaciągniętych kredytów i opłat za szkoły dla dzieci. Wszystko to ma nagle ulec zmianie, w momencie kiedy Henry dostaje atrakcyjną propozycję pracy w Nowym Yorku. Nowa sytuacja oznacza dla Henry'ego szansę odniesienia sukcesu, a dla ich małżeństwa możliwość odnalezienia dawnej namiętności.   ... spraw spłacania zaciągniętych kredytów i opłat za szkoły dla dzieci. Wszystko to ma nagle ulec zmianie, w momencie kiedy Henry dostaje atrakcyjną propozycję pracy w Nowym Yorku. Nowa sytuacja oznacza dla Henry'ego szansę odniesienia sukcesu, a dla ich małżeństwa możliwość odnalezienia dawnej namiętności.
-    

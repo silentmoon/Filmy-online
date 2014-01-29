@@ -1,9 +1,5 @@
+Chuligani / Neds 2010 
+=============
+[![Chuligani / Neds 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chuligani-neds-2010)
 
-        Chuligani / Neds 2010 
-        =============
-        
-        [![Chuligani / Neds 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chuligani-neds-2010)
-        
-        
  Przejmująca opowieść o dojrzewaniu młodego człowieka, który zmienia się ze wzorowego ucznia w nastolatka noszącego w kieszeni nóż. John McGill, przeobraża się z ofiary w mściciela, z prymusa w chuligana, z ministranta w chłopaka wąchającego klej. Kiedy w końcu postanawia zerwać w gangiem, teraźniejszość i  złe wydarzenia z przeszłości sprawiają, że pogodzenie tych dwóch światów wydaje się być niemożliwe.  'Chuligani' to mocna, szokująca i dogłębnie przejmująca historia o dorastaniu, której akcja została osadzona w latach siedemdziesiątych w sercu Szkocji, a która mogłaby wydarzyć się wszędzie: choćby w blokowiskach Nowej Huty czy w kamienicach Pragi.  ... wydaje się być niemożliwe.  'Chuligani' to mocna, szokująca i dogłębnie przejmująca historia o dorastaniu, której akcja została osadzona w latach siedemdziesiątych w sercu Szkocji, a która mogłaby wydarzyć się wszędzie: choćby w blokowiskach Nowej Huty czy w kamienicach Pragi.
-    

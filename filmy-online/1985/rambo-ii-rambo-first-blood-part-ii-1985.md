@@ -1,9 +1,5 @@
+Rambo II / Rambo: First Blood Part II 1985 
+=============
+[![Rambo II / Rambo: First Blood Part II 1985 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rambo-ii-rambo-first-blood-part-ii-1985)
 
-        Rambo II / Rambo: First Blood Part II 1985 
-        =============
-        
-        [![Rambo II / Rambo: First Blood Part II 1985 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rambo-ii-rambo-first-blood-part-ii-1985)
-        
-        
  John Rambo (Sylvester Stallone) trafia do więzienia. Jego dawny dowódca, pułkownik Trautman (Richard Crenna) dotrzymuje wcześniejszej obietnicy i doprowadza do uwolnienia go. Rambo otrzymuje zadanie odnalezienia amerykańskich jeńców, którzy zaginęli w Wietnamie. Ostatnio przebywali w obozie, z którego jemu udało się uciec. Może odmówić udziału w misji, ale wtedy najbliższe pięć lat spędzi w kamieniołomach. Jeśli wypełni zadanie i powróci, prezydent daruje mu karę. Okazuje się, że ma zdobyć tylko dowody na to, że jeńcy nadal przebywają w obozie. Resztą ma się zająć Delta Force, której dowodził będzie pułkownik Trautman. Po wylądowaniu w dżungli, John jest zdany wyłącznie na siebie.  ... się, że ma zdobyć tylko dowody na to, że jeńcy nadal przebywają w obozie. Resztą ma się zająć Delta Force, której dowodził będzie pułkownik Trautman. Po wylądowaniu w dżungli, John jest zdany wyłącznie na siebie.
-    

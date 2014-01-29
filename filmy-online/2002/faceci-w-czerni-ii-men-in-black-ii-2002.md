@@ -1,9 +1,5 @@
+Faceci w czerni II / Men in Black II 2002 
+=============
+[![Faceci w czerni II / Men in Black II 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/faceci-w-czerni-ii-men-in-black-ii-2002)
 
-        Faceci w czerni II / Men in Black II 2002 
-        =============
-        
-        [![Faceci w czerni II / Men in Black II 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/faceci-w-czerni-ii-men-in-black-ii-2002)
-        
-        
  Agenci Jay i Kay spotykają się ponownie, by stawić czoła złowrogiej uwodzicielce, która stanowi największe niebezpieczeństwo, z jakim kiedykolwiek musiała sobie radzić organizacja MIB w swej misji ratowania Ziemi przed mętami z kosmosu. W przeciągu czterech lat, jak minęły od czasu, gdy ci dwaj agenci po raz ostatni współpracowali nad odwróceniem od Ziemi widma zagłady, Kay rozkoszował się urokami życia zwykłego obywatela, a Jay przejął jego pozycje w firmie. Podczas pozornie rutynowego śledztwa w sprawie przestępstwa popełnionego między kosmitami, Jay odkrywa diaboliczną intrygę, za którą stoi Serleena, zła i przewrotna kosmitka z odległej galaktyki, ukrywająca się pod postacią seksownej modelki bielizny. Na Ziemi jest tylko jedna osoba, która wie, jakie są naprawdę intencje Serleeny. Jest to były agent MIB, obecnie naczelny obibok w innej państwowej organizacji, a mianowicie na amerykańskiej poczcie.   ... rutynowego śledztwa w sprawie przestępstwa popełnionego między kosmitami, Jay odkrywa diaboliczną intrygę, za którą stoi Serleena, zła i przewrotna kosmitka z odległej galaktyki, ukrywająca się pod postacią seksownej modelki bielizny. Na Ziemi jest tylko jedna osoba, która wie, jakie są naprawdę intencje Serleeny. Jest to były agent MIB, obecnie naczelny obibok w innej państwowej organizacji, a mianowicie na amerykańskiej poczcie.
-    

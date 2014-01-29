@@ -1,9 +1,5 @@
+Wallander - Mastermind 2005 
+=============
+[![Wallander - Mastermind 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wallander-mastermind-2005)
 
-        Wallander - Mastermind 2005 
-        =============
-        
-        [![Wallander - Mastermind 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wallander-mastermind-2005)
-        
-        
  Pozory mylą. Za fasadą małomiasteczkowej, szwedzkiej społeczności czai się zło i mrok, z którymi będzie się musiał zmierzyć komisarz Wallander, bohater bestsellerowych powieści Henninga Mankella, najpopularniejszego europejskiego pisarza kryminałów. Nagrodzony na festiwalu filmów policyjnych w Cognac Wallander opowiada o perfekcyjnym planie, który wywróci do góry nogami życie komisarza. Ktoś infiltruje posterunek policji w Ystad. Ktoś manipuluje działaniami policjantów. Ktoś skutecznie dezintegruje ich pracę. Ten ktoś jest wszędzie i nigdzie ? niczym zbyt późno odkryty wirus. W tym samym czasie komisarz Kurt Wallander usiłuje znaleźć powiązania pomiędzy sprawami zaginionej nastolatki i powieszonej kobiety, której ciało znalazła jego córka Linda. Czy w mieszkaniu komisarza Wallandera ktoś był? Do kogo należy odcięta głowa znaleziona w strumieniu niedaleko Ystad? Czy komisarz ma rację, próbując powiązać ze sobą wszystkie te wątki? Co kryje się za tymi wydarzeniami, które musiały być poprzedzone latami drobiazgowego planowania? Wkrótce Wallander zacznie zachowywać się nie jak policjant, lecz zwierzyna, na którą ktoś poluje?   ... Ktoś skutecznie dezintegruje ich pracę. Ten ktoś jest wszędzie i nigdzie ? niczym zbyt późno odkryty wirus. W tym samym czasie komisarz Kurt Wallander usiłuje znaleźć powiązania pomiędzy sprawami zaginionej nastolatki i powieszonej kobiety, której ciało znalazła jego córka Linda. Czy w mieszkaniu komisarza Wallandera ktoś był? Do kogo należy odcięta głowa znaleziona w strumieniu niedaleko Ystad? Czy komisarz ma rację, próbując powiązać ze sobą wszystkie te wątki? Co kryje się za tymi wydarzeniami, które musiały być poprzedzone latami drobiazgowego planowania? Wkrótce Wallander zacznie zachowywać się nie jak policjant, lecz zwierzyna, na którą ktoś poluje?
-    

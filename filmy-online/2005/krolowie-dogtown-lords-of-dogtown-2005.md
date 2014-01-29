@@ -1,9 +1,5 @@
+Królowie Dogtown / Lords of Dogtown 2005 
+=============
+[![Królowie Dogtown / Lords of Dogtown 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolowie-dogtown-lords-of-dogtown-2005)
 
-        Królowie Dogtown / Lords of Dogtown 2005 
-        =============
-        
-        [![Królowie Dogtown / Lords of Dogtown 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolowie-dogtown-lords-of-dogtown-2005)
-        
-        
  Film przedstawia losy grupy nastolatków z Venice w Kalifornii, pasjonatów surfingu i deski, którzy w latach 70 odkrywają nowy, fascynujący gatunek sportu ekstremalnego. Jeżdżąc na deskorolkach po pustych dnach basenów (pool skating) dzielnicy Dogtown opracowali i doprowadzili do perfekcji zupełnie nowy styl jazdy na desce. Łapiąc fale przy molo Pacific Ocean Park Z-Boys znani ze swojego agresywnego stylu i ostrych zachowań połączyli ekstremalne ewolucje surfingu ze sztuką skateboardingu dzięki czemu stali się w ciągu 'jednej nocy' lokalną sensacją i legendą. Nowy sport zaczyna być stylem życia dla wielu młodych ludzi i kulturowym fenomenem. Deskorolka staje się w Stanach Zjednoczonych sportem prawie narodowym i rozprzestrzenia się na cały świat. Poznajcie historię przyjaźni najbardziej utalentowanych profesjonalistów: Tonyego Alva, Jaya Adama i Stacy Peralta i zobaczcie sami jak sława i pieniądze, które pojawiły się z dnia na dzień... zaważyły na przyjaźni Z-Boyz, Dotychczasowe hobby przerodziło się w czysty biznes...   ... skateboardingu dzięki czemu stali się w ciągu 'jednej nocy' lokalną sensacją i legendą. Nowy sport zaczyna być stylem życia dla wielu młodych ludzi i kulturowym fenomenem. Deskorolka staje się w Stanach Zjednoczonych sportem prawie narodowym i rozprzestrzenia się na cały świat. Poznajcie historię przyjaźni najbardziej utalentowanych profesjonalistów: Tonyego Alva, Jaya Adama i Stacy Peralta i zobaczcie sami jak sława i pieniądze, które pojawiły się z dnia na dzień... zaważyły na przyjaźni Z-Boyz, Dotychczasowe hobby przerodziło się w czysty biznes...
-    

@@ -1,9 +1,5 @@
+Pierwszy krzyk / Le Premier cri 2007 
+=============
+[![Pierwszy krzyk / Le Premier cri 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pierwszy-krzyk-le-premier-cri-2007)
 
-        Pierwszy krzyk / Le Premier cri 2007 
-        =============
-        
-        [![Pierwszy krzyk / Le Premier cri 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pierwszy-krzyk-le-premier-cri-2007)
-        
-        
  Zgodnie z talmudyczną legendą dziecko, przychodząc na świat, pamięta swoje poprzednie życie, ale anioł, który towarzyszy narodzinom, nakazuje mu zachować tę wiedzę w tajemnicy. Kładzie palec na ustach niemowlęcia, aby mogło o wszystkim zapomnieć. Anielski dotyk poprzedza pierwszy krzyk dziecka i pozostawia ślad – niewielkie wgłębienie pomiędzy górną wargą a nosem... Oto narodziny w skali całej planety pokazane na wielkim ekranie. Różnice pomiędzy wieloma krajami, społeczeństwami i kulturami podczas tego najpiękniejszego i najbardziej niezwykłego dnia. W ciągu 24-godzin na całej ziemi losy kilku bohaterów przecinają się w tej wyjątkowej, a zarazem wspólnej dla nich chwili – kiedy dziecko przychodzi na świat. Film z udziałem rzeczywistych bohaterów jest świadectwem tego magicznego momentu początków życia. Odkrywa uniwersalizm narodzin, które są przecież tak niepowtarzalne i różne jak każdy z nas. Historia toczy się na pięciu kontynentach, od najsłabiej rozwiniętych, zacofanych regionów po obszary najbardziej zurbanizowane.  ... społeczeństwami i kulturami podczas tego najpiękniejszego i najbardziej niezwykłego dnia. W ciągu 24-godzin na całej ziemi losy kilku bohaterów przecinają się w tej wyjątkowej, a zarazem wspólnej dla nich chwili – kiedy dziecko przychodzi na świat. Film z udziałem rzeczywistych bohaterów jest świadectwem tego magicznego momentu początków życia. Odkrywa uniwersalizm narodzin, które są przecież tak niepowtarzalne i różne jak każdy z nas. Historia toczy się na pięciu kontynentach, od najsłabiej rozwiniętych, zacofanych regionów po obszary najbardziej zurbanizowane.
-    

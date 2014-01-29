@@ -1,9 +1,5 @@
+Kroniki Riddicka / The Chronicles of Riddick 2004 
+=============
+[![Kroniki Riddicka / The Chronicles of Riddick 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kroniki-riddicka-the-chronicles-of-riddick-2004)
 
-        Kroniki Riddicka / The Chronicles of Riddick 2004 
-        =============
-        
-        [![Kroniki Riddicka / The Chronicles of Riddick 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kroniki-riddicka-the-chronicles-of-riddick-2004)
-        
-        
  Richard B. Riddick - międzygalaktyczny więzień obdarzony zdolnością widzenia w ciemnościach - spędził ostatnie pięć lat przemieszczając się pomiędzy zapomnianymi światami na obrzeżach galaktyki, starając się uniknąć najemników zawziętych na nagrodę za jego głowę. Teraz ścigany znajduje się na planecie Helion - miejscu zamieszkania postępowego, wielo-kulturowego społeczeństwa, które zostało zaatakowane przez Lorda Marshala (Colm Feore). Jest to fanatyczny kapłan, który ma zamiar podbić ludzką rasę. Prowadzi on już dziesiątą krucjatę przeciwko niej, a pomaga mu w tym jego armia wojowników zwana Necromongers. Riddick - wygnany do śródziemnego więzienia, gdzie różnice temperatur wahają się od arktycznych nocy po wulkaniczne dnie, spotyka Kyrę (Alexa Davalos), która prowadzi go do Necroca - głównego statku najeźdźców, gdzie musi zmierzyć się z Lordem Marshalem w apokaliptycznym boju, którego stawką jest prawdopodobnie los wszystkich wciąż żyjących, jak również i tych na skraju śmierci przedstawicieli rasy ludzkiej. Kontynuacja jednego z największych przebojów roku 2000 - 'Pitch Black'.   ... zamiar podbić ludzką rasę. Prowadzi on już dziesiątą krucjatę przeciwko niej, a pomaga mu w tym jego armia wojowników zwana Necromongers. Riddick - wygnany do śródziemnego więzienia, gdzie różnice temperatur wahają się od arktycznych nocy po wulkaniczne dnie, spotyka Kyrę (Alexa Davalos), która prowadzi go do Necroca - głównego statku najeźdźców, gdzie musi zmierzyć się z Lordem Marshalem w apokaliptycznym boju, którego stawką jest prawdopodobnie los wszystkich wciąż żyjących, jak również i tych na skraju śmierci przedstawicieli rasy ludzkiej. Kontynuacja jednego z największych przebojów roku 2000 - 'Pitch Black'.
-    

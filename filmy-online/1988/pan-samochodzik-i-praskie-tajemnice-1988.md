@@ -1,9 +1,5 @@
+Pan Samochodzik i praskie tajemnice 1988 
+=============
+[![Pan Samochodzik i praskie tajemnice 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pan-samochodzik-i-praskie-tajemnice-1988)
 
-        Pan Samochodzik i praskie tajemnice 1988 
-        =============
-        
-        [![Pan Samochodzik i praskie tajemnice 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pan-samochodzik-i-praskie-tajemnice-1988)
-        
-        
  'Pan Samochodzik i praskie tajemnice' to kinowa wersja powieści Zbigniewa Nienackiego pt. 'Pan Samochodzik i tajemnica tajemnic'. Akcja utworu Tarnasa łączy w sobie elementy współczesnego kina młodzieżowo - przygodowego z motywami mitologicznymi i cudami techniki na miarę XXI wieku. Przed antykwariatem w Pradze mężczyzna ogląda leżącą w witrynie starą księgę Davida Katza 'O cudownych właściwościach szlachetnych kamieni'. W krakowskim hangarze nad Wisłą pan Tomasz i jego młodzi koledzy Bartek, Piątek, Niedziela i Poniedziałek szykują do drogi niezwykły samochód, który potrafi zmieniać się w latający talerz. Przyjaciele jadą do Pragi, Tomasz bowiem otrzymał informację o kradzieży z zamku w Oporowie obrazu 'Sąd rabina Love' oraz książki Davida Katza. W Pradze, w mieszkaniu państwa Dohnalów wita ich kilkunastoletnia Ludmiła oraz jej starsza siostra, która jest kustoszem. Wszyscy przeżywają niezwykłe przygody związane z poszukiwaniem obrazu oraz ukrytego skarbu. Przez cały czas intryga rozwija się w tonacji pogodnej zabawy.   ... młodzi koledzy Bartek, Piątek, Niedziela i Poniedziałek szykują do drogi niezwykły samochód, który potrafi zmieniać się w latający talerz. Przyjaciele jadą do Pragi, Tomasz bowiem otrzymał informację o kradzieży z zamku w Oporowie obrazu 'Sąd rabina Love' oraz książki Davida Katza. W Pradze, w mieszkaniu państwa Dohnalów wita ich kilkunastoletnia Ludmiła oraz jej starsza siostra, która jest kustoszem. Wszyscy przeżywają niezwykłe przygody związane z poszukiwaniem obrazu oraz ukrytego skarbu. Przez cały czas intryga rozwija się w tonacji pogodnej zabawy.
-    

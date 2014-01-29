@@ -1,9 +1,5 @@
+Romeo musi umrzeć / Romeo Must Die 2000 
+=============
+[![Romeo musi umrzeć / Romeo Must Die 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/romeo-musi-umrzec-romeo-must-die-2000)
 
-        Romeo musi umrzeć / Romeo Must Die 2000 
-        =============
-        
-        [![Romeo musi umrzeć / Romeo Must Die 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/romeo-musi-umrzec-romeo-must-die-2000)
-        
-        
  Dwie rodziny, podzielone tradycją, połączone brutalną wojną. Azjatycka i afroamerykańska mafia: obie dążą do przejęcia władzy na niebezpiecznych ulicach Oakland. Kiedy pierwszą ofiarą porachunków pada syn chińskiego przywódcy Po, konflikt sięga rozmiarów, jakich nie spodziewała się żadna ze stron. Wiadomość o morderstwie szybko dociera do starszego brata Po, Hana, legendarnego byłego gliniarza, aktualnie odsiadującego wyrok w więzieniu w Hong Kongu. To tylko kwestia czasu, kiedy Han dotrze do wybrzeży Stanów Zjednoczonych. Uznawany za odmieńca na łonie własnej rodziny, nie potrafi znaleźć odpowiedzi na już istniejące i wciąż pojawiające się pytania. W świecie zdrady i czyhającego niebezpieczeństwa, Han postanawia samodzielnie pomścić śmierć ukochanego brata. W odróżnieniu od innych, którzy tylko używają broni, Han sam jest bronią. Znalezienie się w zasięgu jego wzroku może być śmiertelną pomyłką.   ... kiedy Han dotrze do wybrzeży Stanów Zjednoczonych. Uznawany za odmieńca na łonie własnej rodziny, nie potrafi znaleźć odpowiedzi na już istniejące i wciąż pojawiające się pytania. W świecie zdrady i czyhającego niebezpieczeństwa, Han postanawia samodzielnie pomścić śmierć ukochanego brata. W odróżnieniu od innych, którzy tylko używają broni, Han sam jest bronią. Znalezienie się w zasięgu jego wzroku może być śmiertelną pomyłką.
-    

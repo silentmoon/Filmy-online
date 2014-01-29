@@ -1,9 +1,5 @@
+Człowiek zwany Dora-heita / Dora-heita 2000 
+=============
+[![Człowiek zwany Dora-heita / Dora-heita 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czlowiek-zwany-dora-heita-dora-heita-2000)
 
-        Człowiek zwany Dora-heita / Dora-heita 2000 
-        =============
-        
-        [![Człowiek zwany Dora-heita / Dora-heita 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czlowiek-zwany-dora-heita-dora-heita-2000)
-        
-        
  Samuraj Koheita Mochizuki zostaje wyznaczony przez lokalnego suwerena na stanowisko sędziego i wysłany do słynącego z wysokiej przestępczości regionu Horisoto, gdzie przepadli bez wieści jego trzej poprzednicy. Mochizuki ma jednak fatalną opinię, powszechnie wiadomo o jego skłonności do kobiet i alkoholu, kiedy więc przybywa na miejsce, od razu zyskuje niezbyt chwalebny przydomek 'Dora-heita' (odpowiednik współczesnego 'playboya'). Nie tylko nie próbuje się wybielać, ale wręcz namawia swego przyjaciela Senbę, do rozpuszczania kolejnych plotek. Najważniejszym zadaniem nowego sędziego jest rozbicie trzech grup przestępczych działających na przedmieściach miasta. Ponieważ misja jest tajna, Dora-heita postanawia udawać przez członkami yakuzy, którzy zawarli porozumienie z miejscowym klanem samurajów, hazardzistę i podrywacza szukającego rozrywek. Zyskuje ich zaufanie i uczestniczy we wspólnych libacjach z udziałem gejsz, ale okazuje się, że jedna z gejsz, Kosei, była z nim kiedyś związana przez siedem lat. Porzucona, teraz może chcieć się zemścić i wydać sędziego. Na domiar złego, kiedy samuraje odkrywają, że sędzia regularnie spotyka się z członkami yakuzy, postanawiają go zlikwidować w obawie, że ten ujawni ich porozumienie z przestępcami i zniszczy ich reputację.  ... wręcz namawia swego przyjaciela Senbę, do rozpuszczania kolejnych plotek. Najważniejszym zadaniem nowego sędziego jest rozbicie trzech grup przestępczych działających na przedmieściach miasta. Ponieważ misja jest tajna, Dora-heita postanawia udawać przez członkami yakuzy, którzy zawarli porozumienie z miejscowym klanem samurajów, hazardzistę i podrywacza szukającego rozrywek. Zyskuje ich zaufanie i uczestniczy we wspólnych libacjach z udziałem gejsz, ale okazuje się, że jedna z gejsz, Kosei, była z nim kiedyś związana przez siedem lat. Porzucona, teraz może chcieć się zemścić i wydać sędziego. Na domiar złego, kiedy samuraje odkrywają, że sędzia regularnie spotyka się z członkami yakuzy, postanawiają go zlikwidować w obawie, że ten ujawni ich porozumienie z przestępcami i zniszczy ich reputację.
-    

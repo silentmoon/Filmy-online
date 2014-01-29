@@ -1,9 +1,5 @@
+Piła V / Saw V 2008 
+=============
+[![Piła V / Saw V 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pila-v-saw-v-2008)
 
-        Piła V / Saw V 2008 
-        =============
-        
-        [![Piła V / Saw V 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pila-v-saw-v-2008)
-        
-        
  Hoffman (w tej roli Costas Mandylor) to ostatnia osoba, która przeżyła upiorną grę Jigsawa. W rzeczywistości to właśnie on kontynuuje plan Pana Układanki... Tyle wiemy na temat fabuły Piły V - najnowszej części kontrowersyjnej serii. Scenariusz tego filmu to, zdaje się, jedna z lepiej strzeżonych tajemnic Hollywood; twórcy filmu i aktorzy niechętnie wypowiadają się na ten temat, a grono wiernych fanów niecierpliwie czeka na premierę. Wśród bohaterów znanych z Piły IV pojawi się nowa postać, Brit - w tej roli Julie Benz, osoba dobrze znana wielbicielom horrorów z kultowych seriali - Dexter (w roli Rity - niewinnej i niczego nieświadomej dziewczyny Dextera), Buffy, postrach wampirów i Anioł ciemności (w roli wampirzycy Darli). W Stanach Zjednoczonych Piła V wchodzi na ekrany kin 24 października 2008, co jest pewnym rozczarowanie dla wielbicieli serii przyzwyczajonych do premier kolejnych części w Halloween. Dużo satysfakcji będą natomiast mieli polscy widzowie, ponieważ polska premiera filmu jest zaplanowana dokładnie tego samego dnia - biorąc pod uwagę różnicę czasu oznacza to, że zobaczą Piłę V wcześniej, niż widzowie w USA.  ... się nowa postać, Brit - w tej roli Julie Benz, osoba dobrze znana wielbicielom horrorów z kultowych seriali - Dexter (w roli Rity - niewinnej i niczego nieświadomej dziewczyny Dextera), Buffy, postrach wampirów i Anioł ciemności (w roli wampirzycy Darli). W Stanach Zjednoczonych Piła V wchodzi na ekrany kin 24 października 2008, co jest pewnym rozczarowanie dla wielbicieli serii przyzwyczajonych do premier kolejnych części w Halloween. Dużo satysfakcji będą natomiast mieli polscy widzowie, ponieważ polska premiera filmu jest zaplanowana dokładnie tego samego dnia - biorąc pod uwagę różnicę czasu oznacza to, że zobaczą Piłę V wcześniej, niż widzowie w USA.
-    

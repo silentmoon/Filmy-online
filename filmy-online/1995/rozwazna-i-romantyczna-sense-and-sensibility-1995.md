@@ -1,9 +1,5 @@
+Rozważna i romantyczna / Sense and Sensibility 1995 
+=============
+[![Rozważna i romantyczna / Sense and Sensibility 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rozwazna-i-romantyczna-sense-and-sensibility-1995)
 
-        Rozważna i romantyczna / Sense and Sensibility 1995 
-        =============
-        
-        [![Rozważna i romantyczna / Sense and Sensibility 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rozwazna-i-romantyczna-sense-and-sensibility-1995)
-        
-        
  Anglia, schyłek XVIII wieku. Henry Dashwod umiera, cały majątek zgodnie z prawem dziedziczy jego syn z pierwszego małżeństwa, John. Ten nakazuje opuścić posiadłość drugiej żonie zmarłego ojca i jej trzem córkom. Najstarsza z sióstr Elinor (Emma Thompson) jest inteligentną kobietą, spotyka pełnego uroku Edwarda Ferrarsa (Hugh Grant), boi się jednak okazać mu swoje uczucia. Młodsza siostra Elinor, Marianne (Kate Winslet) nie ma jeszcze dwudziestu lat i żyje w świecie romantycznych ideałów. Pochłonięta romansem z Johnem Willoughby (James Fleet) dziewczyna ignoruje nie tylko zasady dobrego wychowania, ale i uczucia, jakimi darzy ją nieśmiały pułkownik Brandon (Alan Rickman), który w przeszłości przeżył nieszczęśliwą miłość i wciąż jest samotny. Najmłodsza z rodzeńtwa Margaret (Emilie Francois) jest 'dwudziestoletnią trzpiotką', która spędza czas łażąc po drzewach i turlając się po trawie, a która swoje siostry uważa za straszliwe nudziary. Po opuszczeniu rodzinnego domu pani Dashwood i jej córki zamieszkują u sir Johna Middletona i jego teściowej pani Jennings, która całą rodzinę zaprasza do swojego domu do Londynu. Elinor spotyka tam Edwarda, Marianne Johna Willoughby, pojawi się także tajemniczy pułkownik Brandon.  ... romantycznych ideałów. Pochłonięta romansem z Johnem Willoughby (James Fleet) dziewczyna ignoruje nie tylko zasady dobrego wychowania, ale i uczucia, jakimi darzy ją nieśmiały pułkownik Brandon (Alan Rickman), który w przeszłości przeżył nieszczęśliwą miłość i wciąż jest samotny. Najmłodsza z rodzeńtwa Margaret (Emilie Francois) jest 'dwudziestoletnią trzpiotką', która spędza czas łażąc po drzewach i turlając się po trawie, a która swoje siostry uważa za straszliwe nudziary. Po opuszczeniu rodzinnego domu pani Dashwood i jej córki zamieszkują u sir Johna Middletona i jego teściowej pani Jennings, która całą rodzinę zaprasza do swojego domu do Londynu. Elinor spotyka tam Edwarda, Marianne Johna Willoughby, pojawi się także tajemniczy pułkownik Brandon.
-    

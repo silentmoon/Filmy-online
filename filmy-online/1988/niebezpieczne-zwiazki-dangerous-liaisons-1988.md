@@ -1,9 +1,5 @@
+Niebezpieczne związki / Dangerous Liaisons 1988 
+=============
+[![Niebezpieczne związki / Dangerous Liaisons 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niebezpieczne-zwiazki-dangerous-liaisons-1988)
 
-        Niebezpieczne związki / Dangerous Liaisons 1988 
-        =============
-        
-        [![Niebezpieczne związki / Dangerous Liaisons 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niebezpieczne-zwiazki-dangerous-liaisons-1988)
-        
-        
  Rzecz dzieje się we Francji w 1788 r. Markiza de Merteuil potrzebuje przysługi ze strony swojego byłego kochanka Viconte de Valmont. Jej były mąż planuje małżeństwo z młodą, cnotliwą Cecile de Volanges. Markiza pragnie, by Valmont uwiódł Cecile przed jej ślubem. W międzyczasie Valmont stara się zrealizować własne plany podboju - jego celem jest Madame de Tourvel, piękna, bogobojna mężatka. Markiza jednak nie wierzy, aby Valmontowi się udało zdobyć tę kobietę. Obiecuje mu nagrodę w postaci ostatniej nocy spędzonej z nią, jeżeli Valmont dostarczy jej pisemny dowód na to, iż między nim a Madame de Tourvel doszło do zbliżenia.   ... nagrodę w postaci ostatniej nocy spędzonej z nią, jeżeli Valmont dostarczy jej pisemny dowód na to, iż między nim a Madame de Tourvel doszło do zbliżenia.
-    

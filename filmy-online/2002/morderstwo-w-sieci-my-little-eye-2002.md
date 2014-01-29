@@ -1,9 +1,5 @@
+Morderstwo w sieci / My Little Eye 2002 
+=============
+[![Morderstwo w sieci / My Little Eye 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/morderstwo-w-sieci-my-little-eye-2002)
 
-        Morderstwo w sieci / My Little Eye 2002 
-        =============
-        
-        [![Morderstwo w sieci / My Little Eye 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/morderstwo-w-sieci-my-little-eye-2002)
-        
-        
  Film wykorzystuje metodę para dokumentalnego filmowania fabuły. W pewnym domu w miejscowości Naive w Nowej Funlandii zostaje zamkniętych pięcioro śmiałków. Mają tam egzystować przez 6 miesięcy, w nadziei wygrania 1 miliona dolarów. Podstawowym warunkiem jest to, aby żaden z nich nie zrezygnował przez ten okres. Gdyby choć jedno z nich nie wytrzymało - przegrywa cała reszta. Przez cały czas ich życie jest podglądane przez dziesiątki ukrytych i nie, kamer, które filmują i pokazują ten dziwaczny spektakl w internecie. Obserwujemy ich, gdy zostało już kilka tygodni do końca konkursu. Organizatorzy podnoszą napięcie poprzez niewytłumaczalne przez domowników wydarzenia - np. podrzucają zakrwawiony toporek, zmniejszają racje żywnościowe. Wywołują tym kłótnie, narastające szaleństwo, przekleństwa. Rośnie napięcie, zaczynają się groźne wypadki a agresja i gwałt zaczynają burzyć atmosferę. Bardzo dobry, niskobudżetowy dreszczowiec wykorzystujący odwrócenie zasady znanej z podobnych reality shows - gdzie poszczególni uczestnicy odpadali drogą jakiś eliminacji. Tu odwrotnie - nikt nie może się wycofać.  ... pokazują ten dziwaczny spektakl w internecie. Obserwujemy ich, gdy zostało już kilka tygodni do końca konkursu. Organizatorzy podnoszą napięcie poprzez niewytłumaczalne przez domowników wydarzenia - np. podrzucają zakrwawiony toporek, zmniejszają racje żywnościowe. Wywołują tym kłótnie, narastające szaleństwo, przekleństwa. Rośnie napięcie, zaczynają się groźne wypadki a agresja i gwałt zaczynają burzyć atmosferę. Bardzo dobry, niskobudżetowy dreszczowiec wykorzystujący odwrócenie zasady znanej z podobnych reality shows - gdzie poszczególni uczestnicy odpadali drogą jakiś eliminacji. Tu odwrotnie - nikt nie może się wycofać.
-    

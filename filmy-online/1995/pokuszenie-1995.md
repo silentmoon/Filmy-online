@@ -1,9 +1,5 @@
+Pokuszenie 1995 
+=============
+[![Pokuszenie 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pokuszenie-1995)
 
-        Pokuszenie 1995 
-        =============
-        
-        [![Pokuszenie 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pokuszenie-1995)
-        
-        
  Jest rok 1953. Młoda zakonnica, Anna (Magdalena Cielecka), zostaje przywieziona do miejsca odosobnienia. Ma posługiwać uwięzionemu przez komunistyczną władzę księdzu (Olgierd Łukaszewicz). Anna przeżywa szok, gdy rozpoznaje w księdzu człowieka, którego obdarzyła kiedyś pierwszą wielką miłość. Spotkanie po latach staje się dla nich ciężką próbą, muszą walczyć z budzącym się na powrót uczuciem. Jednocześnie walczą o zachowanie godności wobec oprawców. Anna nie wie, że służba bezpieczeństwa precyzyjnie zaplanowała intrygę. Zakonnicy ma przypaść rola donosicielki, jej zdaniem jest skompromitowanie księdza. Początkowo staje się to niemożliwe, Anna ochrania księdza i opiekuje się nim z oddaniem. Komendant, oficer SB (Krzysztof Pieczyński) wie, że Anna kocha i szanuje człowieka, którego ma zadenuncjować, ale cierpliwie czeka na rozwój wypadków... Młoda zakonnica czuje się zupełnie samotna między dwiema potęgami - ustrojem komunistycznym i Kościołem. Komendant ma swoje zadanie, ksiądz ma swoją misję. Annie pozostaje zakazane i grzeszne uczucie.   ... bezpieczeństwa precyzyjnie zaplanowała intrygę. Zakonnicy ma przypaść rola donosicielki, jej zdaniem jest skompromitowanie księdza. Początkowo staje się to niemożliwe, Anna ochrania księdza i opiekuje się nim z oddaniem. Komendant, oficer SB (Krzysztof Pieczyński) wie, że Anna kocha i szanuje człowieka, którego ma zadenuncjować, ale cierpliwie czeka na rozwój wypadków... Młoda zakonnica czuje się zupełnie samotna między dwiema potęgami - ustrojem komunistycznym i Kościołem. Komendant ma swoje zadanie, ksiądz ma swoją misję. Annie pozostaje zakazane i grzeszne uczucie.
-    

@@ -1,9 +1,5 @@
+Król Skorpion / The Scorpion King 2002 
+=============
+[![Król Skorpion / The Scorpion King 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krol-skorpion-the-scorpion-king-2002)
 
-        Król Skorpion / The Scorpion King 2002 
-        =============
-        
-        [![Król Skorpion / The Scorpion King 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krol-skorpion-the-scorpion-king-2002)
-        
-        
  Heroic fantasy w realiach starożytnego Egiptu. Umięśnieni mężczyźni, skąpo ubrane kobiety i masa efektów specjalnych. Zainspirowana opowieściami o legendarnym władcy Egiptu, historia opowiedziana w filmie 'Król Skorpion' osadzona jest w pełnych brutalności czasach ciężkich doświadczeń plemion pustynnych jeszcze cztery wieki przed wzniesieniem Wielkiej Piramidy. To właśnie wtedy, jak widzimy początkowo na ekranie, czarnoksiężnik przepowiedział, że wkrótce na arenę starożytnego świata wkroczy postać legendarnego króla, który wsławi się odwagą i męstwem. Bezwzględny i okrutny Memnon mniema, iż chodzi o niego i gotów jest zrobić wszystko, aby zostać królem. Siłą stara się podporządkować sobie plemiona pustynne, w swoich atakach napotykając na niewielki opór nielicznych, osłabionych codziennymi zmaganiami ludów. Mimo to niewielka grupa Akkadianów, niegdyś słynnego i silnego liczebnie szczepu sumeryjskiego, teraz niemalże na wymarciu, zostaje wynajęta z zamiarem pozbycia się czarnoksiężnika, który steruje zabójczą ręką Memnona. Z czasem okazuje się, że z grupy Akkadianów na skutek starć z wrogiem ostaje się zaledwie jedna osoba - Mathyus.   ... starożytnego świata wkroczy postać legendarnego króla, który wsławi się odwagą i męstwem. Bezwzględny i okrutny Memnon mniema, iż chodzi o niego i gotów jest zrobić wszystko, aby zostać królem. Siłą stara się podporządkować sobie plemiona pustynne, w swoich atakach napotykając na niewielki opór nielicznych, osłabionych codziennymi zmaganiami ludów. Mimo to niewielka grupa Akkadianów, niegdyś słynnego i silnego liczebnie szczepu sumeryjskiego, teraz niemalże na wymarciu, zostaje wynajęta z zamiarem pozbycia się czarnoksiężnika, który steruje zabójczą ręką Memnona. Z czasem okazuje się, że z grupy Akkadianów na skutek starć z wrogiem ostaje się zaledwie jedna osoba - Mathyus.
-    

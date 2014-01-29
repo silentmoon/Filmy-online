@@ -1,9 +1,5 @@
+Wpuszczony w kanał / Flushed Away 2006 
+=============
+[![Wpuszczony w kanał / Flushed Away 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wpuszczony-w-kanal-flushed-away-2006)
 
-        Wpuszczony w kanał / Flushed Away 2006 
-        =============
-        
-        [![Wpuszczony w kanał / Flushed Away 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wpuszczony-w-kanal-flushed-away-2006)
-        
-        
  Głównym bohaterem filmu, którego akcja rozgrywa się pod ulicami Londynu, jest Roddy (Hugh Jackman) rozpieszczona mysz domowa, mieszkająca w apartamencie w Kensington. Kiedy, jednak zamieszkujący w kanałach ściekowych szczur Sid (Shane Richie) wyłania nagle się ze zlewu i decyduje, że właśnie nadeszła jego kolej na cieszenie się luksusem. Roddy zamierza pozbyć się szkodnika. Plan Roddy?ego spala jednak na panewce, bo to właśnie on staje się tym, który zostaje spuszczony z wodą do podziemnego, pełnego zgiełku świata. Tam, Roddy odkrywa pulsującą metropolię, w której spotyka Ritę (Kate Winslet), bystrą szczurzycę. Roddy ma zamiar wrócić do domu, jednak na jego drodze staje nikczemna żaba-Al Ropuch (Ian McKellen). Al Ropuch wysyła swoich dwóch nieszczęsnych popleczników - szczury: Szpenka (Andy Serkis) i Chloriana (Bill Nighy), a także kuzyna ? De Żabę (Jean Reno) ? aby dopilnowali, by Roddy i Rita zostali... zamrożeni.  ... do podziemnego, pełnego zgiełku świata. Tam, Roddy odkrywa pulsującą metropolię, w której spotyka Ritę (Kate Winslet), bystrą szczurzycę. Roddy ma zamiar wrócić do domu, jednak na jego drodze staje nikczemna żaba-Al Ropuch (Ian McKellen). Al Ropuch wysyła swoich dwóch nieszczęsnych popleczników - szczury: Szpenka (Andy Serkis) i Chloriana (Bill Nighy), a także kuzyna ? De Żabę (Jean Reno) ? aby dopilnowali, by Roddy i Rita zostali... zamrożeni.
-    

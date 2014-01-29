@@ -1,9 +1,5 @@
+Przelotni kochankowie / Los Amantes pasajeros 2013 
+=============
+[![Przelotni kochankowie / Los Amantes pasajeros 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przelotni-kochankowie-los-amantes-pasajeros-2013)
 
-        Przelotni kochankowie / Los Amantes pasajeros 2013 
-        =============
-        
-        [![Przelotni kochankowie / Los Amantes pasajeros 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przelotni-kochankowie-los-amantes-pasajeros-2013)
-        
-        
  Pedro Almodóvar wita na pokładzie lotu pasażerskiego z Madrytu do Meksyku! Z powodu technicznej usterki, bezpieczeństwo pasażerów znajdujących się na pokładzie zostaje zagrożone. Doświadczeni piloci robią wszystko, by znaleźć rozwiązanie tej trudnej sytuacji. Personel pokładowy bez reszty poświęca swe ciała i dusze, by w każdy możliwy sposób uprzyjemnić podróż pasażerom. Okazuje się, że życie w chmurach jest tak samo skomplikowane jak na ziemi, a przyczyny są zawsze te same: seks i śmierć. Na pokładzie samolotu poznajemy: nowożeńców wyruszających w podróż poślubną, królową plotkarskich magazynów, bezwzględnego biznesmena uciekającego z Hiszpanii przed policją oraz Don Juana próbującego rozstać się z jedną ze swoich kochanek. Każde z nich leci do Meksyku w określonym celu – by coś załatwić albo przed czymś uciec. Co musi się wydarzyć, by ta grupa nieznajomych wyznała sobie swoje tajemnice? Co musi się stać, by wszyscy – włącznie z pilotami – wyjawili najgłębiej skrywane pragnienia?   ... seks i śmierć. Na pokładzie samolotu poznajemy: nowożeńców wyruszających w podróż poślubną, królową plotkarskich magazynów, bezwzględnego biznesmena uciekającego z Hiszpanii przed policją oraz Don Juana próbującego rozstać się z jedną ze swoich kochanek. Każde z nich leci do Meksyku w określonym celu – by coś załatwić albo przed czymś uciec. Co musi się wydarzyć, by ta grupa nieznajomych wyznała sobie swoje tajemnice? Co musi się stać, by wszyscy – włącznie z pilotami – wyjawili najgłębiej skrywane pragnienia?
-    

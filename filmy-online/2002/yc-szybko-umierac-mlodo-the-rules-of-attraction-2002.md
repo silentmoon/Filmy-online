@@ -1,9 +1,5 @@
+Żyć szybko, umierać młodo / The Rules of Attraction 2002 
+=============
+[![Żyć szybko, umierać młodo / The Rules of Attraction 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/yc-szybko-umierac-mlodo-the-rules-of-attraction-2002)
 
-        Żyć szybko, umierać młodo / The Rules of Attraction 2002 
-        =============
-        
-        [![Żyć szybko, umierać młodo / The Rules of Attraction 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/yc-szybko-umierac-mlodo-the-rules-of-attraction-2002)
-        
-        
  Sean Bateman (James Van Der Beek) jest studentem w Camden College, szanowanej prywatnej uczelni gdzieś na Wschodnim Wybrzeżu. Sean jest zauroczony śliczną Lauren Hynde (Shannyn Sossamon). Lauren, inteligentna i nieprzystępna dziewczyna, zdecydowanie preferuje towarzystwo Victora (Kip Pardue), przystojnego, lecz zainteresowanego głównie sobą kobieciarza. Victorem interesuje się również Lara (Jessica Biel), niezbyt inteligentna współlokatorka Lauren. Victor nie ma nic przeciwko takiemu układowi. Lauren spotykała się wcześniej ze snobowatym Paulem Dentonem (Ian Somerhalder), ale Paul, biseksualista, aktualnie ma wyraźną ochotę na związek z Seanem. Tymczasem w campusie pojawia się dealer narkotykowy, Rupert (Clifton Collins Jr.). Rupert szybko odkrywa, że środowisko jego uniwersyteckich kolegów jest idealnym miejscem na sprzedaż większej ilości prochów. Sean, stały klient Ruperta, popada w poważne tarapaty finansowe i decyduje się pomóc w rozprowadzaniu nielegalnego towaru, by spłacić swoje długi. Tymczasem Paul coraz bardziej pogrąża się w uzależnienie od marihuany.  ... takiemu układowi. Lauren spotykała się wcześniej ze snobowatym Paulem Dentonem (Ian Somerhalder), ale Paul, biseksualista, aktualnie ma wyraźną ochotę na związek z Seanem. Tymczasem w campusie pojawia się dealer narkotykowy, Rupert (Clifton Collins Jr.). Rupert szybko odkrywa, że środowisko jego uniwersyteckich kolegów jest idealnym miejscem na sprzedaż większej ilości prochów. Sean, stały klient Ruperta, popada w poważne tarapaty finansowe i decyduje się pomóc w rozprowadzaniu nielegalnego towaru, by spłacić swoje długi. Tymczasem Paul coraz bardziej pogrąża się w uzależnienie od marihuany.
-    

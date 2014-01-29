@@ -1,9 +1,5 @@
+Wszystko płynie 2011 
+=============
+[![Wszystko płynie 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wszystko-plynie-2011)
 
-        Wszystko płynie 2011 
-        =============
-        
-        [![Wszystko płynie 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wszystko-plynie-2011)
-        
-        
  'Wszystko płynie' to dokumentalne, fabularyzowane , kino drogi. Muzyczno-filmowa impresja stworzona całkowicie poza głównym nurtem polskiej kinematografii. Ilustrowana wyjątkową ścieżką dźwiękowa, stworzoną przez młodych, otwartych, pełnych pasji polskich artystów. Prosta historia człowieka zagubionego, który ucieka przed wielkomiejskimi problemami, staje się spokojną opowieścią o przyrodzie i przestrzeni dzikiej rzeki w środku Europy. Dzięki pięknym zdjęciom i nastrojowej narracji muzycznej widz przebywa podróż wraz z głównym bohaterem. Na rzece wszystko się zmienia, wszystko przemija, pozostaje nostalgia, która może być źródłem mądrości. 'Wszystko płynie' spokojnie, niespiesznie skłania do refleksji o życiu i powrocie do natury.    ... narracji muzycznej widz przebywa podróż wraz z głównym bohaterem. Na rzece wszystko się zmienia, wszystko przemija, pozostaje nostalgia, która może być źródłem mądrości. 'Wszystko płynie' spokojnie, niespiesznie skłania do refleksji o życiu i powrocie do natury. 
-    

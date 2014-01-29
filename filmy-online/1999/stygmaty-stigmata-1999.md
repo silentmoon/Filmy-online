@@ -1,9 +1,5 @@
+Stygmaty / Stigmata 1999 
+=============
+[![Stygmaty / Stigmata 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stygmaty-stigmata-1999)
 
-        Stygmaty / Stigmata 1999 
-        =============
-        
-        [![Stygmaty / Stigmata 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stygmaty-stigmata-1999)
-        
-        
  Frankie Paige ma dwadzieścia kilka lat. Nosi wielki plastikowy pierścień i jest fryzjerką. Ma chłopaka. W Boga nie wierzy, i 'kocha siebie taką, jaka jest'. W promieniu pół kilometra mieszka setka takich samych dziewcząt. A jednak coś ją od nich różni. Coraz częściej przytrafia jej się coś, czego nie rozumie i czego nie chce. Narażona na paranormalne ataki, krwawiąca z dłoni i stóp, szuka pomocy. Choć chwyta się wszystkiego, by powrócić do normalności, zjawiska przybierają na sile. Lekarze i psycholodzy stawiają wiele diagnoz, co to za przypadłość i dlaczego dotknęła właśnie ją, ale wśród nich nie ma odpowiedzi na podstawowe pytanie. Notatki w prasie o przejmujących scenach docierają do Watykanu, niezadowolonego z sensacyjnego rozgłosu. Badacz, ksiądz Andrew Kiernan, przyjeżdża, by przywrócić sprawie właściwy jej wymiar - ordynarnego oszustwa. To, co widzi i słyszy, natychmiast przekonuje go, że niebezpieczeństwo, które zawisło nad Frankie, jest całkowicie realne.   ... na sile. Lekarze i psycholodzy stawiają wiele diagnoz, co to za przypadłość i dlaczego dotknęła właśnie ją, ale wśród nich nie ma odpowiedzi na podstawowe pytanie. Notatki w prasie o przejmujących scenach docierają do Watykanu, niezadowolonego z sensacyjnego rozgłosu. Badacz, ksiądz Andrew Kiernan, przyjeżdża, by przywrócić sprawie właściwy jej wymiar - ordynarnego oszustwa. To, co widzi i słyszy, natychmiast przekonuje go, że niebezpieczeństwo, które zawisło nad Frankie, jest całkowicie realne.
-    

@@ -1,9 +1,5 @@
+Intruz / The Host 2013 
+=============
+[![Intruz / The Host 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/intruz-the-host-2013)
 
-        Intruz / The Host 2013 
-        =============
-        
-        [![Intruz / The Host 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/intruz-the-host-2013)
-        
-        
  Przyszłość. Panowanie na Ziemi przejął niewidzialny wróg. Najeźdźcy opanowali ludzkie ciała umieszczając w nich Dusze, dla których ludzie są jedynie żywicielami. Dusze są z natury dobre, spokojne i łagodne, ale nie potrafią czuć jak my. Melanie - jedna z ostatnich wolnych istot, zostaje schwytana, a w jej ciele umieszczona zostaje Wagabunda. Jest to doświadczona dusza, która zamieszkiwała już na siedmiu planetach. Jej zadaniem jest poznanie wspomnień Melanie i odkrycie, gdzie jeszcze ukrywają się buntownicy czyli wolni ludzie. Zadanie okazuje się jednak o wiele trudniejsze niż można było przypuszczać. Melanie jest wyjątkowo silną osobowością i toczy z Wagabundą walkę o panowanie nad ciałem i umysłem. Co  - z czasem - Wagabunda poznaje wspomnienia dziewczyny o ukochanym mężczyźnie i sama zaczyna odczuwać coś dziwnego… Wkrótce Melanie i Wagabudna zawrą swoisty pakt i wyruszą na pustynię w poszukiwaniu mężczyzny bez którego nie potrafią żyć…  ... gdzie jeszcze ukrywają się buntownicy czyli wolni ludzie. Zadanie okazuje się jednak o wiele trudniejsze niż można było przypuszczać. Melanie jest wyjątkowo silną osobowością i toczy z Wagabundą walkę o panowanie nad ciałem i umysłem. Co więcej - z czasem - Wagabunda poznaje wspomnienia dziewczyny o ukochanym mężczyźnie i sama zaczyna odczuwać coś dziwnego… Wkrótce Melanie i Wagabudna zawrą swoisty pakt i wyruszą na pustynię w poszukiwaniu mężczyzny bez którego nie potrafią żyć…
-    

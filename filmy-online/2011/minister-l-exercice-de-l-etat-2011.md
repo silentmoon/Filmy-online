@@ -1,9 +1,5 @@
+Minister / L'Exercice de l'Etat 2011 
+=============
+[![Minister / L'Exercice de l'Etat 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/minister-l-exercice-de-l-etat-2011)
 
-        Minister / L'Exercice de l'Etat 2011 
-        =============
-        
-        [![Minister / L'Exercice de l'Etat 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/minister-l-exercice-de-l-etat-2011)
-        
-        
  Minister transportu – Bertrand Saint-Jean ('Chłopiec na rowerze', 'Nic do oclenia', 'Czarna Wenus') – budzi się w środku nocy. Dzwoni jego osobista sekretarka. Autobus z dziećmi wpadł do rowu w ośnieżonych Ardenach. Jest kilka śmiertelnych ofiar. Minister nie ma wyjścia, musi jechać na miejsce tragedii, bo tego oczekują od niego wyborcy i media. W świetle kamer współczuje rodzinom ofiar i buduje własny wizerunek medialny. W ten sposób uruchamia szalony wir nieoczekiwanych zdarzeń, które wymagają szybkich i przemyślanych decyzji. Aby przetrwać w skomplikowanym świecie polityki, trzeba działać strategicznie, bez względu na konsekwencje. Trudno jednak zapomnieć o ludzkich dramatach, śmiertelnej tragedii, politycznych walkach i wszechobecnym kryzysie. W obłąkanej plątaninie zdarzeń, w których jedna kolizja następuje po drugiej, minister stara się zachować twarz, obronić własne interesy i pozycję. Pomocne okazują się żelazne nerwy, niezłomność i odporność na stres, jednak to nie wszystko, czego wymaga od niego sytuacja. Do jakich innych poświęceń jest jeszcze zdolny? Jak długo utrzyma się na najwyższym szczeblu w polityce, która pożera lojalność, przyjaźnie, zasady i przekonania?  ... zdarzeń, które wymagają szybkich i przemyślanych decyzji. Aby przetrwać w skomplikowanym świecie polityki, trzeba działać strategicznie, bez względu na konsekwencje. Trudno jednak zapomnieć o ludzkich dramatach, śmiertelnej tragedii, politycznych walkach i wszechobecnym kryzysie. W obłąkanej plątaninie zdarzeń, w których jedna kolizja następuje po drugiej, minister stara się zachować twarz, obronić własne interesy i pozycję. Pomocne okazują się żelazne nerwy, niezłomność i odporność na stres, jednak to nie wszystko, czego wymaga od niego sytuacja. Do jakich innych poświęceń jest jeszcze zdolny? Jak długo utrzyma się na najwyższym szczeblu w polityce, która pożera lojalność, przyjaźnie, zasady i przekonania?
-    

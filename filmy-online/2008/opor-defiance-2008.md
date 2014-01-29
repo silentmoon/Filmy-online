@@ -1,9 +1,5 @@
+Opór / Defiance 2008 
+=============
+[![Opór / Defiance 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/opor-defiance-2008)
 
-        Opór / Defiance 2008 
-        =============
-        
-        [![Opór / Defiance 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/opor-defiance-2008)
-        
-        
  Rok 1941 – Żydzi w Europie Wschodniej padają ofiarami masowych mordów. Trzem braciom Bielskim udaje się schronić wraz z grupką uciekinierów w gęstym lesie, który znają od dziecięcych lat. Na początku starają się po prostu przetrwać. Gdy jednak wieść o ich odwadze rozchodzi się, w lesie pojawia się coraz  mężczyzn, kobiet, dzieci i starców, dla których bracia są jedyną nadzieją na przetrwanie. Tewje (Daniel Craig) obejmuje przywództwo, ale jego decyzje często krytykuje Zus (Liev Schreiber), który obawia się ceny, jaką przyjdzie im zapłacić za idealizm starszego brata. Najmłodszy z braci – Asael (Jamie Bell) stara się pogodzić skłócone rodzeństwo. Aby przygotować się na nadejście srogiej zimy, uciekinierzy budują osadę. Poczucie wspólnoty pozwoli im zachować wiarę w człowieczeństwo w najgorszych latach wojny.  ... Zus (Liev Schreiber), który obawia się ceny, jaką przyjdzie im zapłacić za idealizm starszego brata. Najmłodszy z braci – Asael (Jamie Bell) stara się pogodzić skłócone rodzeństwo. Aby przygotować się na nadejście srogiej zimy, uciekinierzy budują osadę. Poczucie wspólnoty pozwoli im zachować wiarę w człowieczeństwo w najgorszych latach wojny.
-    

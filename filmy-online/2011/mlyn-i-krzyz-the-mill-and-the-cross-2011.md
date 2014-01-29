@@ -1,9 +1,5 @@
+Młyn i krzyż / The Mill and the Cross 2011 
+=============
+[![Młyn i krzyż / The Mill and the Cross 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mlyn-i-krzyz-the-mill-and-the-cross-2011)
 
-        Młyn i krzyż / The Mill and the Cross 2011 
-        =============
-        
-        [![Młyn i krzyż / The Mill and the Cross 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mlyn-i-krzyz-the-mill-and-the-cross-2011)
-        
-        
  Najnowszy film Lecha Majewskiego dostarczy wrażeń wszystkim, którzy szukają niezapomnianych przeżyć w kinie. Ręką reżysera, na oczach widzów, ożywiony zostaje niezwykły obraz – 'Droga Krzyżowa' Bruegla, z całym swym pięknem, z całą swoją surowością i okrucieństwem. Dzięki nowym technologiom reżyser pokazuje losy 12 postaci z obrazu. Realizacja filmu trwała 3 lata i wymagała niezwykłej cierpliwości i wyobraźni. Wykorzystano technologię CGI (obraz generowany komputerowo, technologia wykorzystana m.in. w 'Labiryncie fauna' i 'Avatarze') oraz przestrzeni 3D. 'Wykonana praca może być porównana do tkania ogromnego cyfrowego gobelinu zbudowanego z wielowarstwowych perspektyw, zjawisk atmosferycznych i ludzi' – tłumaczy reżyser Lech Majewski. W rolę Pietera Bruegela wcielił się Rutger Hauer. Michael York zagrał bankiera Jonghelincka, kolekcjonera jego obrazów, a Marię – Charlotte Rampling. Po filmach 'Avatar' i 'Incepcja', w których nie chodziło jedynie o opowiedzenie zwyczajnej historii, również 'Młyn i Krzyż' wpisuje się w nowy nurt wizjonerskiego kina. Widzowie podczas tego filmu będą mogli odkryć, że granice wyobraźni, dla prawdziwych artystów, nie istnieją.   ... technologia wykorzystana m.in. w 'Labiryncie fauna' i 'Avatarze') oraz przestrzeni 3D. 'Wykonana praca może być porównana do tkania ogromnego cyfrowego gobelinu zbudowanego z wielowarstwowych perspektyw, zjawisk atmosferycznych i ludzi' – tłumaczy reżyser Lech Majewski. W rolę Pietera Bruegela wcielił się Rutger Hauer. Michael York zagrał bankiera Jonghelincka, kolekcjonera jego obrazów, a Marię – Charlotte Rampling. Po filmach 'Avatar' i 'Incepcja', w których nie chodziło jedynie o opowiedzenie zwyczajnej historii, również 'Młyn i Krzyż' wpisuje się w nowy nurt wizjonerskiego kina. Widzowie podczas tego filmu będą mogli odkryć, że granice wyobraźni, dla prawdziwych artystów, nie istnieją.
-    

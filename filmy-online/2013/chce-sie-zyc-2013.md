@@ -1,9 +1,5 @@
+Chce się żyć 2013 
+=============
+[![Chce się żyć 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chce-sie-zyc-2013)
 
-        Chce się żyć 2013 
-        =============
-        
-        [![Chce się żyć 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chce-sie-zyc-2013)
-        
-        
  Kiedy Mateusz (Dawid Ogrodnik) przyszedł na świat, lekarze wydali na niego wyrok, uznając go za 'roślinę'. Jednak rodzice chłopca (Arkadiusz Jakubik i Dorota Kolak) nigdy nie pogodzili się z diagnozą, wierząc, że mimo problemów z komunikacją, ich syn jest w pełni sprawny intelektualnie. Mateusz dorasta otoczony troską i miłością, zyskując wiernego przyjaciela - mieszkającą w sąsiedztwie Ankę (Anna Karczmarczyk). Jednak los sprawia, że musi rozłączyć się z rodziną i trafia do specjalistycznego ośrodka. Z dala od bliskich podejmuje trudną walkę o godność i prawo do normalnego życia. Sytuacja Mateusza zmieni się, kiedy do placówki trafi młoda wolontariuszka (Katarzyna Zawadzka), a on sam przyciągnie uwagę lekarki (Anna Nehrebecka), która pracuje nad eksperymentalnymi metodami leczenia.  ... specjalistycznego ośrodka. Z dala od bliskich podejmuje trudną walkę o godność i prawo do normalnego życia. Sytuacja Mateusza zmieni się, kiedy do placówki trafi młoda wolontariuszka (Katarzyna Zawadzka), a on sam przyciągnie uwagę lekarki (Anna Nehrebecka), która pracuje nad eksperymentalnymi metodami leczenia.
-    

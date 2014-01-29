@@ -1,9 +1,5 @@
+Świnki 2009 
+=============
+[![Świnki 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/winki-2009)
 
-        Świnki 2009 
-        =============
-        
-        [![Świnki 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/winki-2009)
-        
-        
  Szesnastoletni Tomek mieszka w małym miasteczku na polsko-niemieckim pograniczu. Wyrasta w szarej rzeczywistości typowego blokowiska, w rodzinie, w której od zawsze brakuje pieniędzy. Tomek jednak, w odróżnieniu od swojej starszej siostry, nie przywiązuje szczególnej wagi do spraw materialnych. Bardziej zajmuje go nauka, a szczególnie astronomia, której poświęca każdą wolną chwilę. Wydaje się, że Tomek ma przed sobą dobrą przyszłość. Zda maturę i wyruszy do wielkiego miasta na studia. Jednak wszystko komplikuje się, gdy w jego życiu pojawia się dziewczyna. Dla Marty najważniejsze są ładne ciuchy, kosmetyki i dobra zabawa. A to wszystko kosztuje. Zafascynowany dziewczyną Tomek postanawia za wszelką cenę zdobyć pieniądze. Na rodziców nie ma co liczyć, ale od czego są koledzy. O rok starszy Ciemny wprowadza Tomka w świat przygranicznych interesów, na których można nieźle zarobić. Rzecz jest oczywiście nielegalna i niebezpieczna. Zakochany nastolatek jest jednak gotowy na wszystko. A gdy zrobi już pierwszy krok, nie będzie miał odwrotu. Reżyser Robert Gliński w niezwykle realistyczny sposób przedstawia mroczny świat przygranicznego półświatka, gdzie zarabia się na przemycie i prostytucji nieletnich. Jego bohater wkracza w świat, gdzie najlepiej sprzedaje się niewinność.  ... na studia. Jednak wszystko komplikuje się, gdy w jego życiu pojawia się dziewczyna. Dla Marty najważniejsze są ładne ciuchy, kosmetyki i dobra zabawa. A to wszystko kosztuje. Zafascynowany dziewczyną Tomek postanawia za wszelką cenę zdobyć pieniądze. Na rodziców nie ma co liczyć, ale od czego są koledzy. O rok starszy Ciemny wprowadza Tomka w świat przygranicznych interesów, na których można nieźle zarobić. Rzecz jest oczywiście nielegalna i niebezpieczna. Zakochany nastolatek jest jednak gotowy na wszystko. A gdy zrobi już pierwszy krok, nie będzie miał odwrotu. Reżyser Robert Gliński w niezwykle realistyczny sposób przedstawia mroczny świat przygranicznego półświatka, gdzie zarabia się na przemycie i prostytucji nieletnich. Jego bohater wkracza w świat, gdzie najlepiej sprzedaje się niewinność.
-    

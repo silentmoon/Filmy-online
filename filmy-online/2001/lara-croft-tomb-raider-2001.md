@@ -1,9 +1,5 @@
+Lara Croft: Tomb Raider 2001 
+=============
+[![Lara Croft: Tomb Raider 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lara-croft-tomb-raider-2001)
 
-        Lara Croft: Tomb Raider 2001 
-        =============
-        
-        [![Lara Croft: Tomb Raider 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lara-croft-tomb-raider-2001)
-        
-        
  Pewnej nocy, kiedy trzy planety ustawiły się w jednej linii, Lara Croft odkryła pomiędzy pudłami przywiezionymi dwadzieścia lat wcześniej z jednej z archeologicznych wypraw swojego nieżyjącego ojca lorda Croft tajemniczy zegar. Kiedyś ojciec opowiedział jej o tajnej organizacji Illuminati, która poszukuje starożytnego zegara - klucza do przestrzeni i czasu. Klucz ten jest trójkątem wykonanym z krystalicznego metalu i 5000 lat temu został użyty do pokonania wrogów organizacji. Jeśli dwie części tego trójkąta kiedykolwiek zostaną złożone, czas się zatrzyma, przodkowie wrócą do życia, a los ludzkości zostanie zmieniony na zawsze. Lara ma 48 godzin do czasu, kiedy wszystkie planety staną w jednej linii i dojdzie do całkowitego zaćmienia - wtedy moc trójkąta będzie największa. Jeśli jej misja się nie powiedzie następna taka sytuacja nastąpi za 5000 lat. W swojej misji Lara wyrusza do Kambodży gdzie znajduje się Grobowiec Tańczącego Światła kryjący jedna cześć tajemnicy, a następnie na Syberię gdzie w Świątyni Dziesięciu Tysięcy Cieni znajduje się druga cześć sekretu. Czy 48 godzin wystarczy, aby Lara Croft odkryła tajemnicę i ocaliła wszechświat?   ... organizacji. Jeśli dwie części tego trójkąta kiedykolwiek zostaną złożone, czas się zatrzyma, przodkowie wrócą do życia, a los ludzkości zostanie zmieniony na zawsze. Lara ma 48 godzin do czasu, kiedy wszystkie planety staną w jednej linii i dojdzie do całkowitego zaćmienia - wtedy moc trójkąta będzie największa. Jeśli jej misja się nie powiedzie następna taka sytuacja nastąpi za 5000 lat. W swojej misji Lara wyrusza do Kambodży gdzie znajduje się Grobowiec Tańczącego Światła kryjący jedna cześć tajemnicy, a następnie na Syberię gdzie w Świątyni Dziesięciu Tysięcy Cieni znajduje się druga cześć sekretu. Czy 48 godzin wystarczy, aby Lara Croft odkryła tajemnicę i ocaliła wszechświat?
-    

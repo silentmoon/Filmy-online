@@ -1,9 +1,5 @@
+30 dni mroku / 30 Days of Night 2007 
+=============
+[![30 dni mroku / 30 Days of Night 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/30-dni-mroku-30-days-of-night-2007)
 
-        30 dni mroku / 30 Days of Night 2007 
-        =============
-        
-        [![30 dni mroku / 30 Days of Night 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/30-dni-mroku-30-days-of-night-2007)
-        
-        
  Producent Sam Raimi ('Spider-Man') oddaje w ręce widzów przerażający horror '30 Days of Night,' rozgrywający się w odosobnionym mieście Barrow na Alasce, gdzie panują ekstremalnie złe warunki pogodowe typowe dla obszarów blisko koła poddbiegunowego. Dodatkowo miasto zostaje spowite jak co roku niesamowitymi ciemościami, które utrzymują się przez cały miesiąc... Kiedy większość mieszkańców zmierza na północ aby przeczekać zimę, nagle pojawiają się tajemniczy przybysze: krwiożercze wampiry, gotowe wykorzystać fakt nieprzerwanego mroku aby 'posilić' się pozostałymi mieszkańcami miasta. Kiedy nadchodzi noc, Szeryf miasta Barrow, Eben (Josh Hartnett), jego żonaStella (Melissa George), i nieustannie kurcząca się grupa ocalałych muszą zrobić wszystką żeby przetrwać do pierwszego brzasku nad Barrow.  ... krwiożercze wampiry, gotowe wykorzystać fakt nieprzerwanego mroku aby 'posilić' się pozostałymi mieszkańcami miasta. Kiedy nadchodzi noc, Szeryf miasta Barrow, Eben (Josh Hartnett), jego żonaStella (Melissa George), i nieustannie kurcząca się grupa ocalałych muszą zrobić wszystką żeby przetrwać do pierwszego brzasku nad Barrow.
-    

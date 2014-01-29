@@ -1,9 +1,5 @@
+Moja super eksdziewczyna / My Super Ex-Girlfriend 2006 
+=============
+[![Moja super eksdziewczyna / My Super Ex-Girlfriend 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/moja-super-eksdziewczyna-my-super-ex-girlfriend-2006)
 
-        Moja super eksdziewczyna / My Super Ex-Girlfriend 2006 
-        =============
-        
-        [![Moja super eksdziewczyna / My Super Ex-Girlfriend 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/moja-super-eksdziewczyna-my-super-ex-girlfriend-2006)
-        
-        
  Bycie superbohaterką ma swoje zalety, ale również wady. Trzeba nosić te absurdalnie obcisłe stroje, pomagać ludziom w potrzebie i ukrywać swoją prawdziwą tożsamość. To nieustanna walka o utrzymanie normalnych relacji z otoczeniem. Jenny Johnson (aka G-Girl) wie to najlepiej. Ma już dość problemów ze znalezieniem partnera i odstawiania swojego życia osobistego na boczny tor. Wszystko to jednak się zmienia, gdy poznaje Matta Saundersa. Matt jest całkiem przystojnym facetem przed trzydziestką. W dniu, w którym odkrywa, że jego dziewczyna, Jenny, jest w rzeczywistości seksowną superbohaterką G-Girl, staje się najszczęśliwszym facetem na ziemi. Pomyślcie tylko o tych wszystkich możliwościach wykorzystania supermocy w związku. We dwoje przeżywają wiele cudownych chwil, nadają nawet całkiem nowe znaczenie łóżkowej zamianie ról... Niestety, gdy początkowe podniecenie mija, Matt zrywa z Jenny, by dość szybko odkryć, że nie tak łatwo opuścić wzgardzoną superbohaterkę. G-Girl, zanim pozwoli mu odejść, zmieni jego życie w piekło.  ... przed trzydziestką. W dniu, w którym odkrywa, że jego dziewczyna, Jenny, jest w rzeczywistości seksowną superbohaterką G-Girl, staje się najszczęśliwszym facetem na ziemi. Pomyślcie tylko o tych wszystkich możliwościach wykorzystania supermocy w związku. We dwoje przeżywają wiele cudownych chwil, nadają nawet całkiem nowe znaczenie łóżkowej zamianie ról... Niestety, gdy początkowe podniecenie mija, Matt zrywa z Jenny, by dość szybko odkryć, że nie tak łatwo opuścić wzgardzoną superbohaterkę. G-Girl, zanim pozwoli mu odejść, zmieni jego życie w piekło.
-    

@@ -1,9 +1,5 @@
+Jay i Cichy Bob kontratakują / Jay and Silent Bob Strike Back 2001 
+=============
+[![Jay i Cichy Bob kontratakują / Jay and Silent Bob Strike Back 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jay-i-cichy-bob-kontratakuja-jay-and-silent-bob-strike-back-2001)
 
-        Jay i Cichy Bob kontratakują / Jay and Silent Bob Strike Back 2001 
-        =============
-        
-        [![Jay i Cichy Bob kontratakują / Jay and Silent Bob Strike Back 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jay-i-cichy-bob-kontratakuja-jay-and-silent-bob-strike-back-2001)
-        
-        
  Jay i Cichy Bob, znani jako postacie drugoplanowe z filmów Kevina Smitha, awansowali do rangi głównych bohaterów! Jay (naturszczyk Jason Mewes) jest chudy i gadatliwy, Bob (sam Kevin Smith) to grubas, który nic nie mówi. Obaj mieszkają w New Jersey i wystają całe dnie pod sklepem spożywczym handlując zielem; Jay zabija czas opowiadając sprośności, jest erotomanem-gawędziarzem. W filmie 'W pogoni za Amy' Jay i Bob zostali bohaterami komiksu. Teraz dowiadują się przypadkiem, że komiks jest ekranizowany w Hollywood. Po dłuższej chwili do ich ospałych mózgów dociera idea, że ktoś powinien im za to zapłacić. Ruszają więc do Kalifornii, aby upomnieć się o swoje. Podróż przez całe Stany to dla nich wyzwanie nie lada, bo całe życie spędzili stojąc pod sklepem i nic nie wiedzą o Bożym świecie. Wszystkie drogi prowadzą jednak do Hollywood, więc Jay i Bob w końcu tam dotrą - angażują się po drodze w mnóstwo filmowych sytuacji i poznają zastępy znanych postaci amerykańskiego kina.   ... komiks jest ekranizowany w Hollywood. Po dłuższej chwili do ich ospałych mózgów dociera idea, że ktoś powinien im za to zapłacić. Ruszają więc do Kalifornii, aby upomnieć się o swoje. Podróż przez całe Stany to dla nich wyzwanie nie lada, bo całe życie spędzili stojąc pod sklepem i nic nie wiedzą o Bożym świecie. Wszystkie drogi prowadzą jednak do Hollywood, więc Jay i Bob w końcu tam dotrą - angażują się po drodze w mnóstwo filmowych sytuacji i poznają zastępy znanych postaci amerykańskiego kina.
-    

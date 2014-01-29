@@ -1,9 +1,5 @@
+Bitwa o Ziemię / Battlefield Earth: A Saga of the Year 3000 2000 
+=============
+[![Bitwa o Ziemię / Battlefield Earth: A Saga of the Year 3000 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bitwa-o-ziemie-battlefield-earth-a-saga-of-the-year-3000-2000)
 
-        Bitwa o Ziemię / Battlefield Earth: A Saga of the Year 3000 2000 
-        =============
-        
-        [![Bitwa o Ziemię / Battlefield Earth: A Saga of the Year 3000 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bitwa-o-ziemie-battlefield-earth-a-saga-of-the-year-3000-2000)
-        
-        
  Jest rok 3000. Ludzie nie są już rasą panującą na Ziemi, wiele lat wcześniej naszą planetę podbili bowiem bezwzględni przedstawiciele obcej cywilizacji, Psyklopi. Ci, którym udało się przetrwać, dzielą się na dwie grupy - niewolników zdanych na łaskę najeźdźców i zbiegów, którzy żyją w prymitywnych plemionach. Pamięć o inwazji została zatarta, jej miejsce zajęły przesądy o monstrualnych przybyszach, w których ludzie widzą wcielenie mściwych bogów. Jonnie Goodboy Tyler ukrywa się w górach wraz z garstką innych, którzy cudem uniknęli niewoli lub śmierci z rąk najeźdźców. Pewnego dnia wyrusza w poszukiwaniu nowego schronienia i wpada w ręce Psyklopów, którzy zmuszają go do niewolniczej pracy. Wkrótce Jonnie zwraca na siebie uwagę szefa służby bezpieczeństwa, Terla, który podziwia jego inteligencję i wytrwałość. Chcąc wykorzystać go do własnych celów uczy Jonniego języka Psyklopów i obsługi maszyn. Nie zdaje sobie jednak sprawy, że wiedza ta może obrócić się przeciwko najeźdźcom.  ... się w górach wraz z garstką innych, którzy cudem uniknęli niewoli lub śmierci z rąk najeźdźców. Pewnego dnia wyrusza w poszukiwaniu nowego schronienia i wpada w ręce Psyklopów, którzy zmuszają go do niewolniczej pracy. Wkrótce Jonnie zwraca na siebie uwagę szefa służby bezpieczeństwa, Terla, który podziwia jego inteligencję i wytrwałość. Chcąc wykorzystać go do własnych celów uczy Jonniego języka Psyklopów i obsługi maszyn. Nie zdaje sobie jednak sprawy, że wiedza ta może obrócić się przeciwko najeźdźcom.
-    

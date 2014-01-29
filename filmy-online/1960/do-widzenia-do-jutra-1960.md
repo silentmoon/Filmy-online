@@ -1,9 +1,5 @@
+Do widzenia, do jutra... 1960 
+=============
+[![Do widzenia, do jutra... 1960 ](http://vidos.pl/images/player.gif)](http://vidos.pl/do-widzenia-do-jutra-1960)
 
-        Do widzenia, do jutra... 1960 
-        =============
-        
-        [![Do widzenia, do jutra... 1960 ](http://vidos.pl/images/player.gif)](http://vidos.pl/do-widzenia-do-jutra-1960)
-        
-        
  Debiut reżyserski Janusza Morgensterna. Tło wydarzeń, o których opowiada film, stanowią autentyczne wątki z życiorysu Zbyszka Cybulskiego, współzałożyciela reżysera i aktora gdańskiego kabaretu studenckiego Bim-Bom. Autentyczna jest także postać Marguerite, córki francuskiego konsula, spędzającej w Polsce jedynie wakacje i święta. W prostą, romantyczną przygodę, autorzy filmu wpletli sceny realizowane w prawdziwych gdańskich piwnicach studenckich, próbując w ten sposób utrwalić niepowtarzalne zjawisko, jakimi były kabarety w drugiej połowie lat 50. Pragnęli oddać ich nastrój, urodę i przesłanie, a tym samym wyrazić stan ducha, tęsknoty ówczesnej młodej inteligencji. Gra Zbyszka Cybulskiego oddaje to wszystko, co ukrywa się w cieniu, poza wypowiadanymi słowami, lecz jest obecne w życiu: niezgoda na nietrwałość uczuć, na świat, w którym nie ma miejsca dla romantyzmu, na szczęście ulotne jak chwila.  ... utrwalić niepowtarzalne zjawisko, jakimi były kabarety w drugiej połowie lat 50. Pragnęli oddać ich nastrój, urodę i przesłanie, a tym samym wyrazić stan ducha, tęsknoty ówczesnej młodej inteligencji. Gra Zbyszka Cybulskiego oddaje to wszystko, co ukrywa się w cieniu, poza wypowiadanymi słowami, lecz jest obecne w życiu: niezgoda na nietrwałość uczuć, na świat, w którym nie ma miejsca dla romantyzmu, na szczęście ulotne jak chwila.
-    

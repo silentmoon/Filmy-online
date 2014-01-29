@@ -1,9 +1,5 @@
+Królewna Śnieżka / Mirror Mirror 2012 
+=============
+[![Królewna Śnieżka / Mirror Mirror 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolewna-niezka-mirror-mirror-2012)
 
-        Królewna Śnieżka / Mirror Mirror 2012 
-        =============
-        
-        [![Królewna Śnieżka / Mirror Mirror 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krolewna-niezka-mirror-mirror-2012)
-        
-        
  Komedia jak z bajki z baśniową obsadą - Julia Roberts jako Zła Królowa oraz Lily Collins – córka muzyka Phila Collinsa - w roli ślicznej królewny Śnieżki! Dawno, dawno temu w zaczarowanym królestwie żyła sobie piękna królewna. Na imię miała Śnieżka. Jej skóra była czysta jak śnieg, a włosy czarne jak noc. Pewnego dnia władzę nad krainą przejęła podstępem zła królowa (Julia Roberts). Zazdrosna o urodę i wdzięk dziewczyny rozkazała wygnać ją z królestwa. Teraz jej celem będzie wyjść bogato za mąż i pozbyć się problemów finansowych. Idealnym kandydatem będzie bardzo przystojny i niezwykle majętny książę. Niestety sprawy się nieco skomplikują, kiedy Śnieżka powróci, aby walczyć o swoje racje na czele bandy siedmiu krasnali-rabusiów. Zła królowa popadnie w nie lada tarapaty. Dzielna Śnieżka zamierza jej odebrać nie tylko władzę, ale także kandydata na męża, bo przystojny książę już dawno wpadł jej w oko. Lustereczko powiedz przecie, kto jest najpiękniejszy na świecie…  ... będzie wyjść bogato za mąż i pozbyć się problemów finansowych. Idealnym kandydatem będzie bardzo przystojny i niezwykle majętny książę. Niestety sprawy się nieco skomplikują, kiedy Śnieżka powróci, aby walczyć o swoje racje na czele bandy siedmiu krasnali-rabusiów. Zła królowa popadnie w nie lada tarapaty. Dzielna Śnieżka zamierza jej odebrać nie tylko władzę, ale także kandydata na męża, bo przystojny książę już dawno wpadł jej w oko. Lustereczko powiedz przecie, kto jest najpiękniejszy na świecie…
-    

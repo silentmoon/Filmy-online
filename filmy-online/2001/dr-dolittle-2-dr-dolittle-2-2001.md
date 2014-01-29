@@ -1,9 +1,5 @@
+Dr Dolittle 2 / Dr. Dolittle 2 2001 
+=============
+[![Dr Dolittle 2 / Dr. Dolittle 2 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dr-dolittle-2-dr-dolittle-2-2001)
 
-        Dr Dolittle 2 / Dr. Dolittle 2 2001 
-        =============
-        
-        [![Dr Dolittle 2 / Dr. Dolittle 2 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dr-dolittle-2-dr-dolittle-2-2001)
-        
-        
  Dr John Dolittle zyskał wielką sławę dzięki niezwykłemu darowi, który pozwala mu rozmawiać ze zwierzętami. Sława ma jednak i swoje złe strony: doktor cieszy się tak wielkim wzięciem, że nie jest w stanie przyjąć wszystkich pacjentów, którzy się do niego zgłaszają. Z trudem godzi obowiązki zawodowe i rodzinne, a żona i dzieci coraz częściej czynią mu wyrzuty. Jakby tego było mało, czworonożni pacjenci zwracają się do niego z niezwykłą misję: chcą, by uratował ich las przed bezwzględnymi przedsiębiorcami, którzy planują wyciąć go w pień. Szczęśliwym zbiegiem okoliczności dr Dolittle spotyka na swej drodze Avę, niedźwiedzicę z gatunku, któremu grozi wyginięcie. Ava może stać się kluczem do powodzenia misji doktora, jeśli znajdzie partnera, wpisana zostanie na listę gatunków chronionych, a tym samym zapobiegnie zagładzie lasu. Doktor znajduje jej idealnego kandydata na męża w osobie Archiego, przemądrzałego niedźwiedzia cyrkowego, którego największą wadą jest niepohamowane łakomstwo. Przekonuje go, że w naturalnym środowisku spotka miłość swojego życia.   ... bezwzględnymi przedsiębiorcami, którzy planują wyciąć go w pień. Szczęśliwym zbiegiem okoliczności dr Dolittle spotyka na swej drodze Avę, niedźwiedzicę z gatunku, któremu grozi wyginięcie. Ava może stać się kluczem do powodzenia misji doktora, jeśli znajdzie partnera, wpisana zostanie na listę gatunków chronionych, a tym samym zapobiegnie zagładzie lasu. Doktor znajduje jej idealnego kandydata na męża w osobie Archiego, przemądrzałego niedźwiedzia cyrkowego, którego największą wadą jest niepohamowane łakomstwo. Przekonuje go, że w naturalnym środowisku spotka miłość swojego życia.
-    

@@ -1,9 +1,5 @@
+Harry Potter i Insygnia Śmierci: Część I / Harry Potter and the Deathly Hallows: Part 1 2010 
+=============
+[![Harry Potter i Insygnia Śmierci: Część I / Harry Potter and the Deathly Hallows: Part 1 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/harry-potter-i-insygnia-mierci-czesc-i-harry-potter-and-the-deathly-hallows-part-1-2010)
 
-        Harry Potter i Insygnia Śmierci: Część I / Harry Potter and the Deathly Hallows: Part 1 2010 
-        =============
-        
-        [![Harry Potter i Insygnia Śmierci: Część I / Harry Potter and the Deathly Hallows: Part 1 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/harry-potter-i-insygnia-mierci-czesc-i-harry-potter-and-the-deathly-hallows-part-1-2010)
-        
-        
  Kolejna i zarazem przedostatnia część przygód znanego czarodzieja. Tym razem Harry i jego dwójka przyjaciół, Ron i Hermiona, będą musieli zmierzyć się z misją jaką powierzył im Dumbledore. Ich zadaniem jest odnalezienie Horkruksów, tajemniczych przedmiotów, w których Ten, Którego Imienia Nie Wolno Wymawiać ukrył części swojej duszy. Od samego początku trójka przyjaciół musi zmierzyć się z przeciwnościami, ponieważ ścigają ich śmierciożercy i szmalcownicy. Ministerstwo Magii i szkoła magii w Hogwarcie zostały przejęte przez siły Voldemorta, a najwyższą  władzę i tym samym miejsce dyrektora szkoły objął Severus Snape, prawa ręka Czarnego Pana. W tych czasach nikt nie morze czuć się bezpieczny, a szczególnie ci czarodzieje, którzy nie mają czystej krwi. Harry, Ron i Hermiona pozornie pozostawieni sami sobie, mogą jednak liczyć na pomoc Dumbledore'a, który niczym zza grobu pomaga im odnaleźć Horkruksy i przygotowuje ich na ostateczne starcie. Ale czy mimo tej pomocy Harry zdoła odnaleźć odpowiedź na pytanie: czym są Insygnia Śmierci i dlaczego Dumbledorowi tak zależało by je odnalazł?  ... szkoła magii w Hogwarcie zostały przejęte przez siły Voldemorta, a najwyższą  władzę i tym samym miejsce dyrektora szkoły objął Severus Snape, prawa ręka Czarnego Pana. W tych czasach nikt nie morze czuć się bezpieczny, a szczególnie ci czarodzieje, którzy nie mają czystej krwi. Harry, Ron i Hermiona pozornie pozostawieni sami sobie, mogą jednak liczyć na pomoc Dumbledore'a, który niczym zza grobu pomaga im odnaleźć Horkruksy i przygotowuje ich na ostateczne starcie. Ale czy mimo tej pomocy Harry zdoła odnaleźć odpowiedź na pytanie: czym są Insygnia Śmierci i dlaczego Dumbledorowi tak zależało by je odnalazł?
-    

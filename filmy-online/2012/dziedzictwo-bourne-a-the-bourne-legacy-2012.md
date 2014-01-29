@@ -1,9 +1,5 @@
+Dziedzictwo Bourne'a / The Bourne Legacy 2012 
+=============
+[![Dziedzictwo Bourne'a / The Bourne Legacy 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dziedzictwo-bourne-a-the-bourne-legacy-2012)
 
-        Dziedzictwo Bourne'a / The Bourne Legacy 2012 
-        =============
-        
-        [![Dziedzictwo Bourne'a / The Bourne Legacy 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dziedzictwo-bourne-a-the-bourne-legacy-2012)
-        
-        
  Dwanaście lat temu, poznaliśmy Bourne'a, kiedy znaleziono go nieprzytomnego nad Morzem Śródziemnym. W trakcie kolejnych trzech filmów, widzowie śledzili jego walkę o przetrwanie i próby poznania własnej tożsamości. Poznali specjalny program CIA Treadstone i wyjątkowe zdolności Bourne'a. Pod koniec trzeciego filmu z serii fani mieli nawet poczucie, że historia została zakończona. 'Dziedzictwo Bourne'a' po raz kolejny podnosi kurtynę, aby odsłonić jeszcze mroczniejsze warstwy intrygi i przedstawić widzom nowego bohatera. 'Dziedzictwo Bourne'a' jest bezpośrednim spadkiem po tym, co wydarzyło się we wcześniejszych filmach. Publiczne ujawnienie się Bourne'a pod koniec 'Ultimatum Bourne'a' okazało się być iskrą, która mogła zagrozić latom prac rozwojowych, służącym szkoleniu lepszych agentów i wojowników. Teraz widzowie odkryją, że istnieje mnóstwo programów wywiadowczych, a stworzony przez CIA Treadstone był jednym z wcześniejszych.  ... intrygi i przedstawić widzom nowego bohatera. 'Dziedzictwo Bourne'a' jest bezpośrednim spadkiem po tym, co wydarzyło się we wcześniejszych filmach. Publiczne ujawnienie się Bourne'a pod koniec 'Ultimatum Bourne'a' okazało się być iskrą, która mogła zagrozić latom prac rozwojowych, służącym szkoleniu lepszych agentów i wojowników. Teraz widzowie odkryją, że istnieje mnóstwo programów wywiadowczych, a stworzony przez CIA Treadstone był jednym z wcześniejszych.
-    

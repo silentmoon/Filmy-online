@@ -1,9 +1,5 @@
+Renaissance 2006 
+=============
+[![Renaissance 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/renaissance-2006)
 
-        Renaissance 2006 
-        =============
-        
-        [![Renaissance 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/renaissance-2006)
-        
-        
  Rok 2054. W labiryncie ulic Paryża, gdzie każdy ruch i gest są kontrolowane i filmowane, Ilona Tasuiev, młoda, piękna i inteligenta pani naukowiec, zostaje porwana. Sprawą zajmuje się kontrowersyjny oficer policji, Karas, naciskany przez Avalon, firmę która zatrudniała kobietę, aby jak najszybciej odszukał zaginioną. Karas szybko orientuje się, że nie tylko jemu zależy na odszukaniu kobiety i że jego przeciwnicy zrobią wszystko, aby go ubiec. Jednak im bliżej prawdy dociera, tym bardziej pętla się zaciska i na jaw wychodzą nowe fakty. Ilona okazuje się być kluczem do odkrycia, które pozwoliłoby człowiekowi zrównać się z Bogiem - tajemniczego Protokołu Renaissance. Odszukanie zaginionej staje się dla Karasa sprawą życia i śmierci, lecz może ono także zadecydować o przyszłości całego ludzkiego gatunku...  ... tym bardziej pętla się zaciska i na jaw wychodzą nowe fakty. Ilona okazuje się być kluczem do odkrycia, które pozwoliłoby człowiekowi zrównać się z Bogiem - tajemniczego Protokołu Renaissance. Odszukanie zaginionej staje się dla Karasa sprawą życia i śmierci, lecz może ono także zadecydować o przyszłości całego ludzkiego gatunku...
-    

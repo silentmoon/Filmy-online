@@ -1,9 +1,5 @@
+Prosta historia / The Straight Story 1999 
+=============
+[![Prosta historia / The Straight Story 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prosta-historia-the-straight-story-1999)
 
-        Prosta historia / The Straight Story 1999 
-        =============
-        
-        [![Prosta historia / The Straight Story 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prosta-historia-the-straight-story-1999)
-        
-        
  Film opowiada o sześciotygodniowej odysei Straighta, który postanawia pojednać się z chorym bratem. Nie rozmawiał z nim od ponad dziesięciu lat. Ponieważ już dawno odebrano mu prawo jazdy i w dodatku niedowidzi, postanawia wyruszyć w drogę jedynym dostępnym mu wehikułem - małym traktorem z przyczepą. Przemierza 300 mil lokalnymi drogami, pośród pól i łąk Iowy i Wisconsin. Jedzie niespiesznie, by tak rzec, delektując się drogą, niczym wędrujący Wilhelm Meister Goethego, nie tyle jednak ucząc się życia, ile je sobie przypominając i porządkując najważniejsze wydarzenia. Jadąc wolno może podziwiać zmieniający się krajobraz i kontemplować zachody słońca, ma czas na rozmowy z napotkanymi ludźmi, a na noc zatrzymuje się tam, gdzie akurat zastał go zmrok - na skraju lasu lub pola. Jest wolny - żyje pełnią życia, na swój sposób i w swoim tempie. Źródło: Gutek-film  ... tyle jednak ucząc się życia, ile je sobie przypominając i porządkując najważniejsze wydarzenia. Jadąc wolno może podziwiać zmieniający się krajobraz i kontemplować zachody słońca, ma czas na rozmowy z napotkanymi ludźmi, a na noc zatrzymuje się tam, gdzie akurat zastał go zmrok - na skraju lasu lub pola. Jest wolny - żyje pełnią życia, na swój sposób i w swoim tempie. Źródło: Gutek-film
-    

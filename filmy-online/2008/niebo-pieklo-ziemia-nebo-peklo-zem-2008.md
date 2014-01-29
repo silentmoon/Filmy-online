@@ -1,9 +1,5 @@
+Niebo, piekło... ziemia / Nebo, peklo... zem 2008 
+=============
+[![Niebo, piekło... ziemia / Nebo, peklo... zem 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niebo-pieklo-ziemia-nebo-peklo-zem-2008)
 
-        Niebo, piekło... ziemia / Nebo, peklo... zem 2008 
-        =============
-        
-        [![Niebo, piekło... ziemia / Nebo, peklo... zem 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niebo-pieklo-ziemia-nebo-peklo-zem-2008)
-        
-        
  Klara, jest młodą i utalentowaną baletnicą. Pewnego dnia otrzymuje kuszącą propozycje od światowej sławy choreografa. Proponuje jej wyjazd do innego kraju, gdzie miałaby tańczyć w jednym z najlepszych zespołów baletowych. Klara czuje się jak w niebie, bo jej największe marzenie właśnie ma się spełnić. Niestety jej chłopak Tomas, młody, odnoszący sukcesy biznesmen, nie podziela jej entuzjazmu i odchodzi.  Klara nie chce rezygnować ze swoich planów, jednak nagły wypadek niweczy jej marzenia na karierę za granicą. Dziewczyna załamuje się.  W między czasie poznaje charyzmatycznego 54- letniego mężczyznę -  Rudolfa, w którym szaleńczo się zakochuje. Pewnego dnia Klara odkrywa jego sekret… Zanurza się w nowy związek.  Rozpoczyna się gra między miłością i erotyką, niedostępnością i odpowiedzialnością, rolą „matki” i kochanki… [opis dystrybutora]   ... niweczy jej marzenia na karierę za granicą. Dziewczyna załamuje się.  W między czasie poznaje charyzmatycznego 54- letniego mężczyznę -  Rudolfa, w którym szaleńczo się zakochuje. Pewnego dnia Klara odkrywa jego sekret… Zanurza się w nowy związek.  Rozpoczyna się gra między miłością i erotyką, niedostępnością i odpowiedzialnością, rolą „matki” i kochanki… [opis dystrybutora]
-    

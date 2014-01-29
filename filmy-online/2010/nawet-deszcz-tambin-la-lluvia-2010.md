@@ -1,9 +1,5 @@
+Nawet deszcz / También la lluvia 2010 
+=============
+[![Nawet deszcz / También la lluvia 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nawet-deszcz-tambin-la-lluvia-2010)
 
-        Nawet deszcz / También la lluvia 2010 
-        =============
-        
-        [![Nawet deszcz / También la lluvia 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nawet-deszcz-tambin-la-lluvia-2010)
-        
-        
  Przez wielu uważany za najlepszy hiszpański film ubiegłego roku, 'Nawet deszcz' to widowiskowa produkcja w gwiazdorskiej obsadzie (Gael García Bernal, Luis Tosar), napisana przez Paula Laverty'ego, scenarzystę filmów Kena Loacha, z muzyką Alberta Iglesiasa, na stałe współpracującego z Pedro Almodovarem. Na czele ekipy stanęła kobieta – hiszpańska reżyserka Icíar Bollaín ('Moimi oczami', 'Mataharis'). Sebastian – reżyser idealista – i Costa, jego producent, realizują w Boliwii film o przybyciu Kolumba do Ameryki. Pragną ukazać wielkiego odkrywcę w sposób daleki od wyidealizowanej wersji szkolnych podręczników – na ekranie żądni złota Kolumb i jego świta brutalnie rozprawiają się z Indianami. Realizacja filmu idzie wyśmienicie do momentu gdy w okolicy wybucha tzw. 'wojna o wodę', wywołana prywatyzacją wodociągów. Szybko okazuje się, że pomimo upływu 500 lat, konkwista trwa nadal. Kiedyś wyzyskiwani przez konkwistadorów, dziś boliwijscy Indianie stają się ofiarami chciwych polityków i międzynarodowych korporacji. Rozpoczyna się podwójna walka rdzennych mieszkańców Boliwii z najeźdźcami z Zachodu – w filmie i w rzeczywistości. Costa i Sebastian staną przed trudną decyzją, czy są gotowi zrobić film za wszelką cenę, nawet kosztem indiańskich współpracowników i własnych ideałów.   ... w Boliwii film o przybyciu Kolumba do Ameryki. Pragną ukazać wielkiego odkrywcę w sposób daleki od wyidealizowanej wersji szkolnych podręczników – na ekranie żądni złota Kolumb i jego świta brutalnie rozprawiają się z Indianami. Realizacja filmu idzie wyśmienicie do momentu gdy w okolicy wybucha tzw. 'wojna o wodę', wywołana prywatyzacją wodociągów. Szybko okazuje się, że pomimo upływu 500 lat, konkwista trwa nadal. Kiedyś wyzyskiwani przez konkwistadorów, dziś boliwijscy Indianie stają się ofiarami chciwych polityków i międzynarodowych korporacji. Rozpoczyna się podwójna walka rdzennych mieszkańców Boliwii z najeźdźcami z Zachodu – w filmie i w rzeczywistości. Costa i Sebastian staną przed trudną decyzją, czy są gotowi zrobić film za wszelką cenę, nawet kosztem indiańskich współpracowników i własnych ideałów.
-    

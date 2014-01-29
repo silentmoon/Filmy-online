@@ -1,9 +1,5 @@
+Obserwator / The Watcher 2000 
+=============
+[![Obserwator / The Watcher 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/obserwator-the-watcher-2000)
 
-        Obserwator / The Watcher 2000 
-        =============
-        
-        [![Obserwator / The Watcher 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/obserwator-the-watcher-2000)
-        
-        
  Po latach ścigania seryjnego mordercy agent FBI Joel Campbell (James Spader) ma dosyć swojej pracy. Czuje się wypalony, dręczą go migreny i pogłębiająca się depresja. Postanawia zakończyć swoją karierę w policji i przenosi się do Chicago. Jednakże zmiana otoczenia nie powoduje ucieczki przed przeszłością. Wraz z agentem do miasta przenosi się seryjny morderca David Allen Griffin (Keanu Reeves), który w przedziwny sposób czuje się związany z Campbellem. Griffin wie, że bez agenta jego makabryczne morderstwa przestaną być tak ekscytujące, jak dawniej... Dlatego podąża śladem ulubionego agenta na drugi koniec Stanów i rozpoczyna perfidną grę. Przed każdym zabójstwem wysyła Campbellowi zdjęcie kolejnej ofiary i daje mu 24 godziny na odnalezienie jej i uratowanie. Czy wypalonemu agentowi uda się powstrzymać zbrodniarza?   ... agenta jego makabryczne morderstwa przestaną być tak ekscytujące, jak dawniej... Dlatego podąża śladem ulubionego agenta na drugi koniec Stanów i rozpoczyna perfidną grę. Przed każdym zabójstwem wysyła Campbellowi zdjęcie kolejnej ofiary i daje mu 24 godziny na odnalezienie jej i uratowanie. Czy wypalonemu agentowi uda się powstrzymać zbrodniarza?
-    

@@ -1,9 +1,5 @@
+Pamięć złotej rybki / Goldfish Memory 2003 
+=============
+[![Pamięć złotej rybki / Goldfish Memory 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pamiec-zlotej-rybki-goldfish-memory-2003)
 
-        Pamięć złotej rybki / Goldfish Memory 2003 
-        =============
-        
-        [![Pamięć złotej rybki / Goldfish Memory 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pamiec-zlotej-rybki-goldfish-memory-2003)
-        
-        
  Jak twierdzi jeden z bohaterów filmu, złota rybka, w przeciwieństwie do ludzi, ma tylko trzysekundową pamięć i dlatego jest skazana na ciągłe powielanie własnych błędów. Komediodramat Elizabeth Gill testuje tę hipotezę na swoich bohaterach, grupie dobrze sytuowanych 20. i 30. latków, mieszkańcach współczesnego Dublina, zajętych nieustanną zmianą partnerów w poszukiwaniu tego właściwego. Ile nauczyli się na własnych błędach? Fabuła śledzi te same postaci w różnych układach partnerskich. Jednym z bohaterów filmu jest pechowiec Lothario, profesor, który obiektem swoich uczuć czyni o wiele młodsze od siebie studentki. Clara, była „zdobycz” profesora, decyduje się na związek z dziennikarką, próbując jednocześnie wtrącić się w nowy układ niewiernego kochanka… Układ par zmienia się kolejny raz– bohaterowie są ogromnie zajęci, wspinając się w pocie czoła do szczytu marzeń o idealnym partnerze. Elizabeth Gill stara się unikać przesłodzenia swojej opowieści, w czym pomagają jej przykuwające uwagę, pełne światła zdjęcia zarówno ulic Dublina jak i wnętrz – barów, bibliotek, sal wykładowych. Dobry scenariusz i atrakcyjna gra aktorów są dodatkowymi atutami filmu. [Filmoteka Narodowa]  ... partnerskich. Jednym z bohaterów filmu jest pechowiec Lothario, profesor, który obiektem swoich uczuć czyni o wiele młodsze od siebie studentki. Clara, była „zdobycz” profesora, decyduje się na związek z dziennikarką, próbując jednocześnie wtrącić się w nowy układ niewiernego kochanka… Układ par zmienia się kolejny raz– bohaterowie są ogromnie zajęci, wspinając się w pocie czoła do szczytu marzeń o idealnym partnerze. Elizabeth Gill stara się unikać przesłodzenia swojej opowieści, w czym pomagają jej przykuwające uwagę, pełne światła zdjęcia zarówno ulic Dublina jak i wnętrz – barów, bibliotek, sal wykładowych. Dobry scenariusz i atrakcyjna gra aktorów są dodatkowymi atutami filmu. [Filmoteka Narodowa]
-    

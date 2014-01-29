@@ -1,9 +1,5 @@
+3000 mil do Graceland / 3000 Miles to Graceland 2001 
+=============
+[![3000 mil do Graceland / 3000 Miles to Graceland 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/3000-mil-do-graceland-3000-miles-to-graceland-2001)
 
-        3000 mil do Graceland / 3000 Miles to Graceland 2001 
-        =============
-        
-        [![3000 mil do Graceland / 3000 Miles to Graceland 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/3000-mil-do-graceland-3000-miles-to-graceland-2001)
-        
-        
  W Las Vegas odbywa się właśnie tydzień z Elvisem. Całe miasto zdominowane jest przez fanów naśladujących króla rocka, obowiązkowo odzianych w charakterystyczne dla Presleya stroje i z wielkimi bokobrodami. Jednak pięciu mieszkańców zameldowanych w hotelu Riviera w futerałach na gitary wcale nie nosi instrumentów, ponieważ zajęte są one przez broń, a faceci planują wielki skok na hotelowy sejf. Dla tych pięciu zbirów będzie to napad życia. Dowodzi nimi wielokrotnie już skazywany Michael i jego przyjaciel z celi Murphy. Przebrani za Elvisa złodzieje rabują z hotelowego kasyna 3,2 miliona dolarów, a ścigani przez policję salwują się dramatyczną ucieczką helikopterem, który stoi na dachu hotelu. Kiedy Murphy postanawia zdradzić swoich kompanów i zatrzymać cały łup dla siebie, Michael ucieka z częścią zdobyczy. Podczas swojej drogi spotyka Cybil, dziewczynę z małego miasteczka, która marzy o sławie. Michael, który pragnie zerwać ze swoim dotychczasowym życiem, przekracza granicę państwa, lecz krok w krok za nimi podąża Murphy, który z racji spędzonego z nim czasu we wspólnej celi, jest w stanie przewidzieć wszystkie jego posunięcia.   ... skazywany Michael i jego przyjaciel z celi Murphy. Przebrani za Elvisa złodzieje rabują z hotelowego kasyna 3,2 miliona dolarów, a ścigani przez policję salwują się dramatyczną ucieczką helikopterem, który stoi na dachu hotelu. Kiedy Murphy postanawia zdradzić swoich kompanów i zatrzymać cały łup dla siebie, Michael ucieka z częścią zdobyczy. Podczas swojej drogi spotyka Cybil, dziewczynę z małego miasteczka, która marzy o sławie. Michael, który pragnie zerwać ze swoim dotychczasowym życiem, przekracza granicę państwa, lecz krok w krok za nimi podąża Murphy, który z racji spędzonego z nim czasu we wspólnej celi, jest w stanie przewidzieć wszystkie jego posunięcia.
-    

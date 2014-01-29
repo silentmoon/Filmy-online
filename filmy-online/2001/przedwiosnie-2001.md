@@ -1,9 +1,5 @@
+Przedwiośnie 2001 
+=============
+[![Przedwiośnie 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przedwiosnie-2001)
 
-        Przedwiośnie 2001 
-        =============
-        
-        [![Przedwiośnie 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przedwiosnie-2001)
-        
-        
  Opowieść o buncie, miłości i dojrzewaniu. Burzliwa historia młodego człowieka, którego namiętnością były kobiety i historia. Ekranizacja powieści Stefana Żeromskiego pod tym samym tytułem, jednej z najważniejszych pozycji literatury polskiej. Cezary Baryka (Mateusz Damięcki) mieszka w Baku. Chce być inżynierem naftowym. Kiedy jest zakochany po raz pierwszy, do miasta wkracza rewolucja. Giną jego przyjaciele i dziewczyna, umiera matka. Baryka za namową ojca wyjeżdża do Polski. Tutaj w czasie wojny z bolszewikami ratuje życie swojemu swojemu przyjacielowi. Po wojnie, zaproszonego przez niego do rodzinnego majątku, ma nadzieję na spokojne życie. Tymczasem zakochuje się w nim kobieta, i to nie jedna. Baryka jest rozdarty - głos wewnętrzny mówi mu, czego ma nie robić, ale nie mówi, co ma robić. Aż pewnego dnia... [opis dystrybutora]  ... Polski. Tutaj w czasie wojny z bolszewikami ratuje życie swojemu swojemu przyjacielowi. Po wojnie, zaproszonego przez niego do rodzinnego majątku, ma nadzieję na spokojne życie. Tymczasem zakochuje się w nim kobieta, i to nie jedna. Baryka jest rozdarty - głos wewnętrzny mówi mu, czego ma nie robić, ale nie mówi, co ma robić. Aż pewnego dnia... [opis dystrybutora]
-    

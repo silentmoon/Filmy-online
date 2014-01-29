@@ -1,9 +1,5 @@
+Reguły sztuki / Art Heist 2004 
+=============
+[![Reguły sztuki / Art Heist 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/reguly-sztuki-art-heist-2004)
 
-        Reguły sztuki / Art Heist 2004 
-        =============
-        
-        [![Reguły sztuki / Art Heist 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/reguly-sztuki-art-heist-2004)
-        
-        
  Nowojorska specjalistka od dzieł sztuki powraca na swój ulubiony teren; ramię w ramię ze swym dawnym partnerem ma pomóc w rozwikłaniu sprawy serii zuchwałych rabunków w Barcelonnie. Sandra Walker (Ellen Pompeo, Złap mnie, jeśli potrafisz) zostaje wysłana do Barcelony przez bogatego klienta z misją odzyskania bezcennego, wypożyczonego do muzeum obrazu, który został stamtąd skradziony. Partneruje jej były chłopak. Kiedy śledztwo prowadzi ich do bezwzględnego rosyjskiego mafiosa i życie Sandry znajduje się w poważnym niebezpieczeństwie, do akcji wkracza nowojorski policjant - jej mąż Bruce (William Baldwin, Ognisty podmuch), z którym jest w separacji. Zdecydowana wyzwolić się z krępujących ją więzów małżeństwa, które i tak jest już tylko fikcją, Sandra uświadamia Bruce'owi, że działa daleko poza swoją jurysdykcją i to nie pod tym jednym, terytorialnym względem... Gdy jednak rabunki powtarzają się, a Bruce odkrywa, że ktoś stara się wrobić Sandrę, muszą działać wspólnie, by rozwikłać sprawę i oczyścić jej imię.   ... i życie Sandry znajduje się w poważnym niebezpieczeństwie, do akcji wkracza nowojorski policjant - jej mąż Bruce (William Baldwin, Ognisty podmuch), z którym jest w separacji. Zdecydowana wyzwolić się z krępujących ją więzów małżeństwa, które i tak jest już tylko fikcją, Sandra uświadamia Bruce'owi, że działa daleko poza swoją jurysdykcją i to nie pod tym jednym, terytorialnym względem... Gdy jednak rabunki powtarzają się, a Bruce odkrywa, że ktoś stara się wrobić Sandrę, muszą działać wspólnie, by rozwikłać sprawę i oczyścić jej imię.
-    

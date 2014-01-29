@@ -1,9 +1,5 @@
+Wojna Restrepo / Restrepo 2010 
+=============
+[![Wojna Restrepo / Restrepo 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wojna-restrepo-restrepo-2010)
 
-        Wojna Restrepo / Restrepo 2010 
-        =============
-        
-        [![Wojna Restrepo / Restrepo 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wojna-restrepo-restrepo-2010)
-        
-        
  Restrepo jest jednym z nielicznych filmów we współczesnej kinematografii, w której zarówno kule jak i wznoszony przez nie obłoczek kurzu tuż przy nogach stojącego żołnierza są do bólu prawdziwe. Tim Hetherington, fotograf z laurem World Press Photo i Sebastian Junger, autor przeniesionej na ekran morskiej odysei rybackiego kutra - Gniew oceanu towarzyszą przez 15 miesięcy plutonowi marines w zagubionej w górach Afganistanu dolinie Korengal, zwanej inaczej Doliną Śmierci, gdyż zginęło w niej  Amerykanów niż w jakimkolwiek innym punkcie afgańskiego konfliktu. Przez 5 lat wojny toczonej na 27 km kwadratowych ziemi poniosło śmierć prawie 50 żołnierzy. Wojny o tyle bezsensownej, że wojsko wycofano z doliny w kwietniu 2010 r., mimo iż miejsce to jest ważnym kanałem przerzutowym broni z pobliskiego Pakistanu. Jednak nie wielka polityka ale dynamika relacji między uczestnikami konfliktu interesuje Jungera i Hetheringtona najbardziej. Film zaczyna się standardowym – „Nie wiem, po co tu jesteśmy” i kończy „Kiedy słyszę słowo Restrepo, nie myślę o bazie, do której ta nazwa przylgnęła, ale o przyjacielu, o sanitariuszu Juanie Restrepo”. Jest to film o braterstwie broni.   ... Śmierci, gdyż zginęło w niej więcej Amerykanów niż w jakimkolwiek innym punkcie afgańskiego konfliktu. Przez 5 lat wojny toczonej na 27 km kwadratowych ziemi poniosło śmierć prawie 50 żołnierzy. Wojny o tyle bezsensownej, że wojsko wycofano z doliny w kwietniu 2010 r., mimo iż miejsce to jest ważnym kanałem przerzutowym broni z pobliskiego Pakistanu. Jednak nie wielka polityka ale dynamika relacji między uczestnikami konfliktu interesuje Jungera i Hetheringtona najbardziej. Film zaczyna się standardowym – „Nie wiem, po co tu jesteśmy” i kończy „Kiedy słyszę słowo Restrepo, nie myślę o bazie, do której ta nazwa przylgnęła, ale o przyjacielu, o sanitariuszu Juanie Restrepo”. Jest to film o braterstwie broni.
-    

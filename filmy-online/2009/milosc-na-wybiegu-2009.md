@@ -1,9 +1,5 @@
+Miłość na wybiegu 2009 
+=============
+[![Miłość na wybiegu 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/milosc-na-wybiegu-2009)
 
-        Miłość na wybiegu 2009 
-        =============
-        
-        [![Miłość na wybiegu 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/milosc-na-wybiegu-2009)
-        
-        
  „Miłość na wybiegu” to komedia romantyczna rozgrywająca się w magicznym świecie mody. Julka (Karolina Gorczyca) mieszka w małej nadbałtyckiej miejscowości i szczerze nienawidzi codziennych obowiązków, która polegają głównie na smażeniu ryb dla wczasowiczów. Marzy o studiach artystycznych w wielkim mieście. Niestety, zawód miłosny sprawia, że oblewa egzamin, ale przyrzeka sobie, że nie wróci w rodzinne strony, tylko spróbuje jakoś sobie poradzić w Warszawie. Znajoma rodziców, pani Marta (Barbara Brylska), wynajmuje jej pokój, a przypadkowe spotkanie w salonie fryzjerskim pani Marty owocuje nieoczekiwaną ofertą pracy – Julka dostaje propozycję dołączenia do zespołu modelek prestiżowej warszawskiej agencji. W ten sposób młoda i niedoświadczona dziewczyna wkracza w wielki świat mody, który nie zawsze jest tak piękny i idealny jak na zdjęciach w kolorowych magazynach. Czy Julka będzie umiała pogodzić karierę modelki z rodzącym się uczuciem do trochę cynicznego fotografa Kacpra (Marcin Dorociński)? Czy oboje zdołają stawić czoła intrygom zakochanej w Kacprze właścicielki agencji modelek, Marlenie (Urszula Grabowska) i jej przyjaciółki, redaktorki naczelnej modnego miesięcznika (Iza Kuna)?  ... pani Marta (Barbara Brylska), wynajmuje jej pokój, a przypadkowe spotkanie w salonie fryzjerskim pani Marty owocuje nieoczekiwaną ofertą pracy – Julka dostaje propozycję dołączenia do zespołu modelek prestiżowej warszawskiej agencji. W ten sposób młoda i niedoświadczona dziewczyna wkracza w wielki świat mody, który nie zawsze jest tak piękny i idealny jak na zdjęciach w kolorowych magazynach. Czy Julka będzie umiała pogodzić karierę modelki z rodzącym się uczuciem do trochę cynicznego fotografa Kacpra (Marcin Dorociński)? Czy oboje zdołają stawić czoła intrygom zakochanej w Kacprze właścicielki agencji modelek, Marlenie (Urszula Grabowska) i jej przyjaciółki, redaktorki naczelnej modnego miesięcznika (Iza Kuna)?
-    

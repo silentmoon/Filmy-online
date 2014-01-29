@@ -1,9 +1,5 @@
+Polowanie / Jagten 2012 
+=============
+[![Polowanie / Jagten 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/polowanie-jagten-2012)
 
-        Polowanie / Jagten 2012 
-        =============
-        
-        [![Polowanie / Jagten 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/polowanie-jagten-2012)
-        
-        
  Niewinne kłamstwo małoletniej podopiecznej zmienia w piekło życie nauczyciela z prowincji (Mads Mikkelsen, niezapomniany przeciwnik Bonda z 'Casino Royale'). Mężczyzna staje się celem nagonki lokalnej społeczności, która z góry uznaje go winnym i postanawia na własną rękę wymierzyć sprawiedliwość. Błyskotliwy thriller Thomasa Vinterberga, z poruszającą i zapadającą w pamięć rolą Madsa Mikkelsena, był jedną z największych sensacji ostatniej edycji MFF w Cannes, zdobywając trzy nagrody: dla najlepszego aktora, Jury Ekumenicznego oraz Vulcain Prize za zdjęcia Charlotte Bruus Christensen. 'Polowanie' jest laureatem British Independent Film Award dla najlepszego filmu zagranicznego, Nagrody Publiczności MFF w Vancouver, zostało też nominowane do BAFTA w kategorii Najlepszy Film Nieanglojęzyczny.   ... trzy nagrody: dla najlepszego aktora, Jury Ekumenicznego oraz Vulcain Prize za zdjęcia Charlotte Bruus Christensen. 'Polowanie' jest laureatem British Independent Film Award dla najlepszego filmu zagranicznego, Nagrody Publiczności MFF w Vancouver, zostało też nominowane do BAFTA w kategorii Najlepszy Film Nieanglojęzyczny.
-    

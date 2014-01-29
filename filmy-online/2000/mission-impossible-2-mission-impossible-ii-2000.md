@@ -1,9 +1,5 @@
+Mission: Impossible 2 / Mission: Impossible II 2000 
+=============
+[![Mission: Impossible 2 / Mission: Impossible II 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mission-impossible-2-mission-impossible-ii-2000)
 
-        Mission: Impossible 2 / Mission: Impossible II 2000 
-        =============
-        
-        [![Mission: Impossible 2 / Mission: Impossible II 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mission-impossible-2-mission-impossible-ii-2000)
-        
-        
  W 'Mission Impossible 2' tryumfalnie powraca na ekrany Ethan Hunt - uwodzicielski agent, o rozbrajającym uśmiechu (Tom Cruise), który tym razem staje przed 'niemożliwym do wykonania' zadaniem wykradzenia śmiercionośnego wirusa zmutowanej grypy 'Chimery' z łap bezwzględnych terrorystów. Już pierwsze sekwencje filmu zapowiadają niezłą zabawę w najlepszym hollywoodzkim stylu. Poza brawurową akcją przejęcia wartej miliony 'Chimery', serwowana nam jest katastrofa lotnicza, a na deser prezentowany jest sam agent Cruise wspinający się przez długie sekundy (oczywiście bez żadnych zabezpieczeń) w celu odebrania zlecenia na kolejną 'niemożliwą misję'. Intryga nabiera rozpędu, gdy agent Hunt dowiaduje się, że terrorystą, na którego poluje jest jego wieloletni dubler, równie elegancki, co i bezwzględny - agent Sean Ambrose (Dougray Scott). Będący kimś w rodzaju alter ego Hunta - sobowtórem o mrocznych skłonnościach, który w dodatku do szaleństwa zakochany jest w tej samej kobiecie...   ... deser prezentowany jest sam agent Cruise wspinający się przez długie sekundy (oczywiście bez żadnych zabezpieczeń) w celu odebrania zlecenia na kolejną 'niemożliwą misję'. Intryga nabiera rozpędu, gdy agent Hunt dowiaduje się, że terrorystą, na którego poluje jest jego wieloletni dubler, równie elegancki, co i bezwzględny - agent Sean Ambrose (Dougray Scott). Będący kimś w rodzaju alter ego Hunta - sobowtórem o mrocznych skłonnościach, który w dodatku do szaleństwa zakochany jest w tej samej kobiecie...
-    

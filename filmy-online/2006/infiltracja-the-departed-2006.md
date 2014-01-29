@@ -1,9 +1,5 @@
+Infiltracja / The Departed 2006 
+=============
+[![Infiltracja / The Departed 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/infiltracja-the-departed-2006)
 
-        Infiltracja / The Departed 2006 
-        =============
-        
-        [![Infiltracja / The Departed 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/infiltracja-the-departed-2006)
-        
-        
  Zrealizowany z hollywoodzkim rozmachem i gwiazdorską obsadą, remake światowego hitu 'Infernal Affairs' z 2002 roku. Akcja filmu rozgrywa się w południowym Bostonie, gdzie policja stanowa toczy zażartą walkę z przestępczością zorganizowaną. Młody tajny agent policji, Billy Costigan (Leonardo DiCaprio), otrzymuje od przełożonego Olivera Queenana (Martin Sheen) rozkaz przeniknięcia do struktur mafijnych, którymi rządzi Frank Costello (Jack Nicholson). Podczas gdy Billy szybko zdobywa zaufanie bossa, Colin Sullivan (Matt Damon) - zatwardziały młody przestępca, który już jako kadet Akademii Policyjnej pełnił rolę mafijnego informatora - zostaje awansowany na stanowisko dowódcze w Wydziale Spraw Wewnętrznych. Każdego z nich pochłania podwójne życie. Kiedy zarówno przestępcy, jak i stróże prawa, wpadają na trop wrogiej wtyczki we własnych szeregach, obaj bohaterowie rozpoczynają wyścig o to, kto pierwszy odkryje tożsamość drugiego, by tym samym uratować własną skórę...  ... zdobywa zaufanie bossa, Colin Sullivan (Matt Damon) - zatwardziały młody przestępca, który już jako kadet Akademii Policyjnej pełnił rolę mafijnego informatora - zostaje awansowany na stanowisko dowódcze w Wydziale Spraw Wewnętrznych. Każdego z nich pochłania podwójne życie. Kiedy zarówno przestępcy, jak i stróże prawa, wpadają na trop wrogiej wtyczki we własnych szeregach, obaj bohaterowie rozpoczynają wyścig o to, kto pierwszy odkryje tożsamość drugiego, by tym samym uratować własną skórę...
-    

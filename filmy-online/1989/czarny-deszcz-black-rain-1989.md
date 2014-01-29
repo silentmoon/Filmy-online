@@ -1,9 +1,5 @@
+Czarny deszcz / Black Rain 1989 
+=============
+[![Czarny deszcz / Black Rain 1989 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czarny-deszcz-black-rain-1989)
 
-        Czarny deszcz / Black Rain 1989 
-        =============
-        
-        [![Czarny deszcz / Black Rain 1989 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czarny-deszcz-black-rain-1989)
-        
-        
  Dwaj policjanci z Nowego Yorku są świadkami zabójstwa popełnionego w ramach porachunków japońskiej mafii. W bezpośrednim pościgu ujmują głównego sprawcę zabójstwa. Następnie muszą go eskortować aż do Japonii gdzie mają go przekazać miejscowej policji. Po przybyciu na miejsce gangster ucieka a dwaj Amerykanie rozpoczynają poszukiwania i wyjaśnianie sprawy związanej z próbą dokonania przez japońską mafię fałszerstwa amerykańskich banknotów. Działając na obcym terenie, muszą dostosować się do obowiązujących w Japonii zwyczajów. Muszą też nauczyć się współdziałać zarówno z japońską policją, jak i z niektórymi szefami Yakuzy. Dlatego też nie obejdzie się bez dramatycznych starć, spięć i śmiertelnych pojedynków.  ... dostosować się do obowiązujących w Japonii zwyczajów. Muszą też nauczyć się współdziałać zarówno z japońską policją, jak i z niektórymi szefami Yakuzy. Dlatego też nie obejdzie się bez dramatycznych starć, spięć i śmiertelnych pojedynków.
-    

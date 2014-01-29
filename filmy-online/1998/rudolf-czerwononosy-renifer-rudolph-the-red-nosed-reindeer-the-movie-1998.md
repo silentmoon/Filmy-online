@@ -1,9 +1,5 @@
+Rudolf czerwononosy Renifer / Rudolph the Red-Nosed Reindeer: The Movie 1998 
+=============
+[![Rudolf czerwononosy Renifer / Rudolph the Red-Nosed Reindeer: The Movie 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rudolf-czerwononosy-renifer-rudolph-the-red-nosed-reindeer-the-movie-1998)
 
-        Rudolf czerwononosy Renifer / Rudolph the Red-Nosed Reindeer: The Movie 1998 
-        =============
-        
-        [![Rudolf czerwononosy Renifer / Rudolph the Red-Nosed Reindeer: The Movie 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rudolf-czerwononosy-renifer-rudolph-the-red-nosed-reindeer-the-movie-1998)
-        
-        
  Bożonarodzeniowa kreskówka dla całej rodziny. Historia Renifera Rudolfa, który przychodzi na świat z intensywnie błyszczącym, czerwonym nosem. Jego odmienność wzbudza zdziwienie rodziców i niechęć kolegów ze szkoły. Drwiny rówieśników oraz niemożność dostania się, wzorem ojca, do zaprzęgu Świętego Mikołaja, sprawiają, że postanawia uciec z domu. Wyrusza w świat, spotykając po drodze oddanych przyjaciół, z którymi przeżywa mnóstwo niezwykłych przygód. Kiedy jednak dowiaduje się, że jego serdecznej przyjaciółce, łani o imieniu Fiołek, grozi niebezpieczeństwo, decyduje się na powrót. Ratuje ją z opresji i zyskuje sympatię oraz zaufanie Świętego Mikołaja, który prosi go, by zechciał poprowadzić zaprzęg, oświetlając swoim nosem drogę w czasie burzy śnieżnej. Wszystko to przywraca Rudolfowi pewność siebie, sprawiając, że ta pouczająca baśń staje się opowieścią o potrzebie tolerancji i akceptacji, wbrew wszelkim odmiennościom.   ... się, że jego serdecznej przyjaciółce, łani o imieniu Fiołek, grozi niebezpieczeństwo, decyduje się na powrót. Ratuje ją z opresji i zyskuje sympatię oraz zaufanie Świętego Mikołaja, który prosi go, by zechciał poprowadzić zaprzęg, oświetlając swoim nosem drogę w czasie burzy śnieżnej. Wszystko to przywraca Rudolfowi pewność siebie, sprawiając, że ta pouczająca baśń staje się opowieścią o potrzebie tolerancji i akceptacji, wbrew wszelkim odmiennościom.
-    

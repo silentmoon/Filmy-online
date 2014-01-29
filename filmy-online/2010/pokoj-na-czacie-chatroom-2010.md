@@ -1,9 +1,5 @@
+Pokój na czacie / Chatroom 2010 
+=============
+[![Pokój na czacie / Chatroom 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pokoj-na-czacie-chatroom-2010)
 
-        Pokój na czacie / Chatroom 2010 
-        =============
-        
-        [![Pokój na czacie / Chatroom 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pokoj-na-czacie-chatroom-2010)
-        
-        
  Gdy nastolatkowie Jim, Mo, Eva i Emily poznają przez Internet Williama, są zauroczeni jego charyzmą. Ale William nie jest tym, kim być się wydaje. To manipulant, który w prawdziwym świecie nie ma czasu dla ludzi. Jim jest osobą podatną na zranienia i nie wie, jak niebezpieczna jest przyjaźń z Williamem. Kiedy przyznaje się, że bierze antydepresanty, William już wie, kto będzie jego nową ofiarą. Deklaruje pomoc Jimowi w rzuceniu narkotyków, zaś reszta grupy zostaje odepchnięta. Co zaczęło się przyjacielską radą, plącze się coraz bardziej. Mo i Eva uświadamiają sobie, jak śmiertelną grę prowadzi William, ale koła są w ruchu. Jim wkracza na ścieżkę samodestrukcji, gotowy do czynów nie do pomyślenia. Kiedy Mo, Eva i Emily starają się ocalić Jima, William rozpoczyna zabawę w kotka   ścigającego przez Internet myszkę, zamykając ich systemy i odcinając od swojej ofiary. Fantazje spotyka rzeczywistość, gdy William oraz Jim stoją twarzą w twarz w metrze podczas godziny szczytu. Bez bezpieczeństwa wirtualnego świata, wszystko staje się prawdziwe. Rozpoczyna się wyścig z czasem, by ocalić Jima. Ale zegar tyka... a my boimy się, że ktoś musi zginąć.   ... odepchnięta. Co zaczęło się przyjacielską radą, plącze się coraz bardziej. Mo i Eva uświadamiają sobie, jak śmiertelną grę prowadzi William, ale koła są w ruchu. Jim wkracza na ścieżkę samodestrukcji, gotowy do czynów nie do pomyślenia. Kiedy Mo, Eva i Emily starają się ocalić Jima, William rozpoczyna zabawę w kotka   ścigającego przez Internet myszkę, zamykając ich systemy i odcinając od swojej ofiary. Fantazje spotyka rzeczywistość, gdy William oraz Jim stoją twarzą w twarz w metrze podczas godziny szczytu. Bez bezpieczeństwa wirtualnego świata, wszystko staje się prawdziwe. Rozpoczyna się wyścig z czasem, by ocalić Jima. Ale zegar tyka... a my boimy się, że ktoś musi zginąć.
-    

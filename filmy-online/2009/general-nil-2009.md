@@ -1,9 +1,5 @@
+Generał Nil 2009 
+=============
+[![Generał Nil 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/general-nil-2009)
 
-        Generał Nil 2009 
-        =============
-        
-        [![Generał Nil 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/general-nil-2009)
-        
-        
  Historia generała Augusta Emila Fieldorfa (pseudonim „Nil”), który, jako dowódca Dywersji AK kierował najważniejszymi akcjami w okupowanej Warszawie w czasie II Wojny Światowej . Dowodził m.in. zamachem na kata Warszawy, generała SS Franza Kutscherę. Niemcy bali się go jak ognia. Generał August Emil Fieldorf, pseudonim „Nil”, był dowódcą Kierownictwa Dywersji AK oraz zastępcą dowódcy Armii Krajowej podczas okupacji niemieckiej, stał także na czele organizacji NIE, przygotowanej do czynnego sprzeciwu wobec powojennego okupanta sowieckiego. Po wojnie i zesłaniu na Syberię, Fieldorf zmuszony jest podjąć grę z Urzędem Bezpieczeństwa. W filmie ukazano brawurowe sceny słynnej akcji AK, w której zlikwidowano dowódcę SS – Franza Kutscherę, jak również z wielką dozą realizmu pokazano okrutne metody przesłuchań i wymuszania zeznań na więźniach Urzędu Bezpieczeństwa.  ... przygotowanej do czynnego sprzeciwu wobec powojennego okupanta sowieckiego. Po wojnie i zesłaniu na Syberię, Fieldorf zmuszony jest podjąć grę z Urzędem Bezpieczeństwa. W filmie ukazano brawurowe sceny słynnej akcji AK, w której zlikwidowano dowódcę SS – Franza Kutscherę, jak również z wielką dozą realizmu pokazano okrutne metody przesłuchań i wymuszania zeznań na więźniach Urzędu Bezpieczeństwa.
-    

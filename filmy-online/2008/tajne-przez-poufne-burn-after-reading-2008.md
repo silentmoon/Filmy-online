@@ -1,9 +1,5 @@
+Tajne przez poufne / Burn After Reading 2008 
+=============
+[![Tajne przez poufne / Burn After Reading 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tajne-przez-poufne-burn-after-reading-2008)
 
-        Tajne przez poufne / Burn After Reading 2008 
-        =============
-        
-        [![Tajne przez poufne / Burn After Reading 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tajne-przez-poufne-burn-after-reading-2008)
-        
-        
  Osbourne Cox (John Malkovich) jest tajnym agentem CIA starającym się nie stracić zajęcia. Nie dość, że jego praca i małżeństwo zmierzają ku niechybnej katastrofie, to ma w dodatku problemy z alkoholem. Harry Pfarrer (George Clooney) jest szeryfem w ministerstwie skarbu, ale nie może sobie poradzić ze swoją próżnością. Do jego licznych hobby, zaliczają się między innymi: internetowe randki za plecami żony, konstruowanie zabawek erotycznych według własnych pomysłów, nie wspominając o sypianiu z nieszczęśliwą żoną Osbourna. Kiedy Ozzie zostaje wyrzucony z pracy, postanawia opisać wszystkie poufne działania CIA, nie zdając sobie sprawy z tego, jak niewiele wie. Szkic wspomnień trafia jednak do kolejnej z kochanek Harry’ego, szalonej pracownicy siłowni Litzke (Frances McDormand) i jej głupkowatego kolegi Chada Feldheimera (Brad Pitt). Przekonani, że posiadają ściśle tajne informacje uznają, że to znakomita okazja na zarobienie pokaźnej sumy pieniędzy i przekazują te informacje prosto do Rosjan. Kwestie miłosne i te wagi państwowej splątują się ze sobą w niedorzecznej historii, w której nikt nie wie komu może zaufać.  ... wspominając o sypianiu z nieszczęśliwą żoną Osbourna. Kiedy Ozzie zostaje wyrzucony z pracy, postanawia opisać wszystkie poufne działania CIA, nie zdając sobie sprawy z tego, jak niewiele wie. Szkic wspomnień trafia jednak do kolejnej z kochanek Harry’ego, szalonej pracownicy siłowni Litzke (Frances McDormand) i jej głupkowatego kolegi Chada Feldheimera (Brad Pitt). Przekonani, że posiadają ściśle tajne informacje uznają, że to znakomita okazja na zarobienie pokaźnej sumy pieniędzy i przekazują te informacje prosto do Rosjan. Kwestie miłosne i te wagi państwowej splątują się ze sobą w niedorzecznej historii, w której nikt nie wie komu może zaufać.
-    

@@ -1,9 +1,5 @@
+Przynęta / L'Appât 1995 
+=============
+[![Przynęta / L'Appât 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przyneta-l-appt-1995)
 
-        Przynęta / L'Appât 1995 
-        =============
-        
-        [![Przynęta / L'Appât 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przyneta-l-appt-1995)
-        
-        
  Trójka nastolatków, dziewczyna i dwóch chłopaków - Natalie jest asystentką w sklepie odzieżowym gdzie pracując marzy o tym by być modelką, a Eric i Bruno to dwaj jej wielbiciele namiętnie oglądający 'Człowieka z blizną' z Alem Pacino. Chłopaki podkochują się w Natalie i płacą jej za półnagie tańce w ich mieszkaniu. Z zimną krwią zabijają wskazanych przez Natalie klientów, aby ich potem obrabować z pieniędzy, biżuterii itp.. Mordują głupio, nieostrożnie a szczytem głupoty i bezmyślności jest wpadka Natalie. Zostaje zatrzymana przez policję z kradzioną biżuterią. Film szokuje brutalizmem, głupotą i okrucieństwem. Ofiary umierają długo, cierpiąc, krzycząc, próbując się ratować. Film wyjątkowo trudny i wymagający silnych nerwów z powodu swojego naturalizmu i okrucieństwa....   ... głupoty i bezmyślności jest wpadka Natalie. Zostaje zatrzymana przez policję z kradzioną biżuterią. Film szokuje brutalizmem, głupotą i okrucieństwem. Ofiary umierają długo, cierpiąc, krzycząc, próbując się ratować. Film wyjątkowo trudny i wymagający silnych nerwów z powodu swojego naturalizmu i okrucieństwa....
-    

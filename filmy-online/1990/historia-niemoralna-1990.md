@@ -1,9 +1,5 @@
+Historia niemoralna 1990 
+=============
+[![Historia niemoralna 1990 ](http://vidos.pl/images/player.gif)](http://vidos.pl/historia-niemoralna-1990)
 
-        Historia niemoralna 1990 
-        =============
-        
-        [![Historia niemoralna 1990 ](http://vidos.pl/images/player.gif)](http://vidos.pl/historia-niemoralna-1990)
-        
-        
  Montażysta Jurek pracuje nad materiałami do filmu 'Historia niemoralna', którego bohaterką jest aktorka Ewa. Przez cały czas trwania projekcji montażysta i reżyserka komentują poszczególne sceny i zmieniają pointy niektórych. Z tych rozmów możemy się zorientować, że film jest nieomal biograficzna opowieść o prywatnym życiu aktorki grającej Ewę. Ewa wraca z zagranicy. Zdobyła jedną z ważnych nagród na festiwalu filmowym. Przybiera pozy gwiazdy. Z lotniska jedzie do studia tv, gdzie odmawia zagrania w spektaklu, z powodu zbyt niskiego jej zdaniem wynagrodzenia. Umiera ojciec Ewy. Macocha zabrała mercedesa, obiecanego Ewie przez ojca. Ewa ukradkiem zabiera kluczyki do samochodu, po drodze pije wódkę, i mocno wstawiona wraca do Warszawy. W stolicy spotykają ją niepowodzenia. Unika jej reżyserka Magda, z którą nakręciła wiele filmów. Znajduje sobie nowego kochanka, pracuje nad własnym recitalem piosenkarskim. Usuwa ciążę. Dostaje propozycję zagrania w 'Królu Ubu', ale próby są ustawicznymi kłótniami z reżyserem. Jej recital odnosi sukces, ale nie gra w teatrze ze względu na konfliktowość. Ewa przeżywa ostry kryzys nerwowy, usiłuje popełnić samobójstwo. Ratuje ją sąsiadka. (za www.filmpolski.pl)   ... gdzie odmawia zagrania w spektaklu, z powodu zbyt niskiego jej zdaniem wynagrodzenia. Umiera ojciec Ewy. Macocha zabrała mercedesa, obiecanego Ewie przez ojca. Ewa ukradkiem zabiera kluczyki do samochodu, po drodze pije wódkę, i mocno wstawiona wraca do Warszawy. W stolicy spotykają ją niepowodzenia. Unika jej reżyserka Magda, z którą nakręciła wiele filmów. Znajduje sobie nowego kochanka, pracuje nad własnym recitalem piosenkarskim. Usuwa ciążę. Dostaje propozycję zagrania w 'Królu Ubu', ale próby są ustawicznymi kłótniami z reżyserem. Jej recital odnosi sukces, ale nie gra w teatrze ze względu na konfliktowość. Ewa przeżywa ostry kryzys nerwowy, usiłuje popełnić samobójstwo. Ratuje ją sąsiadka. (za www.filmpolski.pl)
-    

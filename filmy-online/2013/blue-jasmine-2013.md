@@ -1,9 +1,5 @@
+Blue Jasmine 2013 
+=============
+[![Blue Jasmine 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/blue-jasmine-2013)
 
-        Blue Jasmine 2013 
-        =============
-        
-        [![Blue Jasmine 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/blue-jasmine-2013)
-        
-        
  Jasmine (Cate Blanchett) przywykła do wygodnej egzystencji u boku męża-biznesmena Hala (Alec Baldwin). Do świata luksusowych rezydencji i limuzyn, kolacji w najdroższych restauracjach Nowego Jorku i zakupów w butikach topowych projektantów. Jednak kiedy Hal zostaje zatrzymany pod zarzutem malwersacji, a konta małżeństwa zablokowane, jej uporządkowane życie z dnia na dzień zmienia się nie do poznania. Żeby ukoić skołatane nerwy i uniknąć kłopotliwych spotkań ze znajomymi z nowojorskiej elity, Jasmine przenosi się do San Francisco, by tymczasowo zamieszkać u swojej siostry Ginger (Sally Hawkins). Szybko popada w konflikt z Chilim (Bobby Cannavale), prostolinijnym narzeczonym siostry. Szukając mężczyzny dla siebie, postanawia przy okazji uszczęśliwić Ginger i znaleźć jej odpowiedniejszego partnera. Wkrótce siostra pozna rozrywkowego Ala (Louis C.K.), a o względy Jasmine zaczną zabiegać temperamentny lekarz (Michael Stuhlbarg) i szarmancki dyplomata Dwight (Peter Sarsgaard), zafascynowany jej urodą i arystokratycznym szykiem. Zawiłe relacje męsko-damskie staną się okazją do popisów błyskotliwego poczucia humoru Woody'ego Allena, który z właściwą sobie przenikliwością i inteligencją punktuje ludzkie słabości swoich bohaterów.  ... nowojorskiej elity, Jasmine przenosi się do San Francisco, by tymczasowo zamieszkać u swojej siostry Ginger (Sally Hawkins). Szybko popada w konflikt z Chilim (Bobby Cannavale), prostolinijnym narzeczonym siostry. Szukając mężczyzny dla siebie, postanawia przy okazji uszczęśliwić Ginger i znaleźć jej odpowiedniejszego partnera. Wkrótce siostra pozna rozrywkowego Ala (Louis C.K.), a o względy Jasmine zaczną zabiegać temperamentny lekarz (Michael Stuhlbarg) i szarmancki dyplomata Dwight (Peter Sarsgaard), zafascynowany jej urodą i arystokratycznym szykiem. Zawiłe relacje męsko-damskie staną się okazją do popisów błyskotliwego poczucia humoru Woody'ego Allena, który z właściwą sobie przenikliwością i inteligencją punktuje ludzkie słabości swoich bohaterów.
-    

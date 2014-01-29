@@ -1,9 +1,5 @@
+Miasto słońca / Ghosts of Cité Soleil 2006 
+=============
+[![Miasto słońca / Ghosts of Cité Soleil 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miasto-slonca-ghosts-of-cit-soleil-2006)
 
-        Miasto słońca / Ghosts of Cité Soleil 2006 
-        =============
-        
-        [![Miasto słońca / Ghosts of Cité Soleil 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miasto-slonca-ghosts-of-cit-soleil-2006)
-        
-        
  Haiti to kraj biedy, beznadziei i przemocy. Oddalone od Florydy w USA zaledwie o dwie godziny lotu, jest całkowicie zapomniane przez resztę świata. Slumsy Port-au-Prince stolicy kraju należą do najniebezpieczniejszych miejsc na ziemi. MIASTO SŁOŃCA rozgrywa się właśnie tutaj. Bohaterami filmu są dwaj bracia: 2Pac i Billy. Obaj są liderami 'Duchów', nieformalnej armii, utworzonej ze slumsowych gangów. Starają się wykorzystać swoją pozycję dla zapanowania nad chaosem zakazanej dzielnicy. Poznajemy ich slumsową codzienność, fascynację hip-hopem i rapem, pełną ambiwalencji braterską miłość i przyjaźń z Lele, francuską wolontariuszką. Walki gangów, porwania, burzliwe wydarzenia i namiętności mieszają się tu ze sobą w klimacie beznadziei i poszukiwania sensu. Muzyka autorstwa największej  gwiazdy sceny rapu Wyclefa Johna, to niezwykle ważny element 'MIASTA SŁOŃCA'. Struktura filmu i rytm montażu są podporządkowane muzyce. To jej dynamika i klimat kierują akcję do przodu.  ... dzielnicy. Poznajemy ich slumsową codzienność, fascynację hip-hopem i rapem, pełną ambiwalencji braterską miłość i przyjaźń z Lele, francuską wolontariuszką. Walki gangów, porwania, burzliwe wydarzenia i namiętności mieszają się tu ze sobą w klimacie beznadziei i poszukiwania sensu. Muzyka autorstwa największej  gwiazdy sceny rapu Wyclefa Johna, to niezwykle ważny element 'MIASTA SŁOŃCA'. Struktura filmu i rytm montażu są podporządkowane muzyce. To jej dynamika i klimat kierują akcję do przodu.
-    

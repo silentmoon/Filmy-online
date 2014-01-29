@@ -1,9 +1,5 @@
+Człowiek, którego nie było / The Man Who Wasn't There 2001 
+=============
+[![Człowiek, którego nie było / The Man Who Wasn't There 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czlowiek-ktorego-nie-bylo-the-man-who-wasn-t-there-2001)
 
-        Człowiek, którego nie było / The Man Who Wasn't There 2001 
-        =============
-        
-        [![Człowiek, którego nie było / The Man Who Wasn't There 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czlowiek-ktorego-nie-bylo-the-man-who-wasn-t-there-2001)
-        
-        
  Rok 1949, Ed Crane (Billy Bob Thornton) jest niezbyt rozgarniętym, mało gadatliwym fryzjerem w małym miasteczku Santa Rosa gdzieś w północnej Kalifornii. Jego żona Doris (Frances McDormand), pracuje w sklepie wielobranżowym, na co dzień preferując towarzystwo swojego szefa, Dużego Dave'a (James Gandolfini). Ed nie jest zadowolony ze swojego dotychczasowego życia. Któregoś dnia do zakładu fryzjerskiego trafia Creighton Tolliver. Kiedy Ed go strzyże, Tolliver opowiada o swoim marzeniu. Chciałby założyć sieć pralni chemicznych, ale brakuje mu na to pieniędzy. Na początek trzeba jakieś dziesięć tysięcy dolarów... Ed decyduje się zdobyć te pieniądze. Postanawia napisać anonim skierowany do Dużego Dave'a: 'Jeśli nie przyniesiesz dziesięciu tysięcy dolarów, Ed Crane dowie się, że romansujesz z jego żoną'. Dave jest zrozpaczony. Za tę kwotę chciałby otworzyć nowy sklep, ale decyduje się jednak zapłacić...   ... marzeniu. Chciałby założyć sieć pralni chemicznych, ale brakuje mu na to pieniędzy. Na początek trzeba jakieś dziesięć tysięcy dolarów... Ed decyduje się zdobyć te pieniądze. Postanawia napisać anonim skierowany do Dużego Dave'a: 'Jeśli nie przyniesiesz dziesięciu tysięcy dolarów, Ed Crane dowie się, że romansujesz z jego żoną'. Dave jest zrozpaczony. Za tę kwotę chciałby otworzyć nowy sklep, ale decyduje się jednak zapłacić...
-    

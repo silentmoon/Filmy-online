@@ -1,9 +1,5 @@
+Ocalić miasto 1976 
+=============
+[![Ocalić miasto 1976 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ocalic-miasto-1976)
 
-        Ocalić miasto 1976 
-        =============
-        
-        [![Ocalić miasto 1976 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ocalic-miasto-1976)
-        
-        
  Propagandowy film o jakoby 'genialnym manewrze Koniewa' powstał na podstawie całkowicie fałszywego mitu stworzonego przez władze PRL i ZSSR. Kłamstwem historycznym jest twierdzenie, że Kraków został przez Niemców zaminowany i miał być całkowicie zniszczony, a bohaterami ocalenia jest Armia Czerwona. 'Przemilczano natomiast skierowanie na Kraków silnych oddziałów artyleryjskich i zniszczenie lub uszkodzenie w styczniu 1945 r. przez artylerię oraz lotnictwo Armii Czerwonej około 450 krakowskich budynków, także w Śródmieściu, m.in. doszczętne zrujnowanie domów wokół Dworca Głównego. Zabrakło też ważnej informacji o zrzuceniu przez Rosjan 17 stycznia 1945 r. na Wawel, ówczesną siedzibę gubernatora, bomby lotniczej, która spadając na dziedziniec Batorego, znacznie uszkodziła katedrę wawelską i częściowo zamek. W propagandowym filmie nie mogły znaleźć się informacje o budzących przerażenie zachowaniach żołnierzy sowieckich i funkcjonariuszy NKWD, takich jak mordowanie cywilów, kradzieże, rekwirowanie mieszkań, wywózki na Wschód oraz zbiorowe gwałty na kobietach.' [źródło: Gazeta Wyborcza Kraków]  ... około 450 krakowskich budynków, także w Śródmieściu, m.in. doszczętne zrujnowanie domów wokół Dworca Głównego. Zabrakło też ważnej informacji o zrzuceniu przez Rosjan 17 stycznia 1945 r. na Wawel, ówczesną siedzibę gubernatora, bomby lotniczej, która spadając na dziedziniec Batorego, znacznie uszkodziła katedrę wawelską i częściowo zamek. W propagandowym filmie nie mogły znaleźć się informacje o budzących przerażenie zachowaniach żołnierzy sowieckich i funkcjonariuszy NKWD, takich jak mordowanie cywilów, kradzieże, rekwirowanie mieszkań, wywózki na Wschód oraz zbiorowe gwałty na kobietach.' [źródło: Gazeta Wyborcza Kraków]
-    

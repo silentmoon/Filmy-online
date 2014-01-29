@@ -1,9 +1,5 @@
+Życie za życie / The Life of David Gale 2003 
+=============
+[![Życie za życie / The Life of David Gale 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ycie-za-zycie-the-life-of-david-gale-2003)
 
-        Życie za życie / The Life of David Gale 2003 
-        =============
-        
-        [![Życie za życie / The Life of David Gale 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ycie-za-zycie-the-life-of-david-gale-2003)
-        
-        
  David Gale (Kevin Spacey), profesor uniwersytetu w Teksasie, od lat aktywnie działa na rzecz zniesienia kary śmierci. Pewnego dnia, skazany za gwałt i morderstwo, sam trafia do celi śmierci. Uznano go winnym zabójstwa bliskiej współpracowniczki i przyjaciółki, Constance Harraway (Laura Linney). Dziennikarka Bitsey Bloom (Kate Winslet) postanawia opowiedzieć jego historię. W tym celu, trzy dni przed egzekucją, spotyka się z profesorem, który udziela jej niezwykłego wywiadu. W ciągu trzech wizyt, w kolejnych retrospekcjach, powstaje skomplikowany portret skazanego: polityczne dyskusje, kontrowersyjne wykłady, seks ze studentką, oskarżenia o gwałt, alkoholizm, rozwód, rozpacz. Na kilka godzin przed egzekucją Bloom dochodzi do wniosku, że skazanie Gale'a jest skutkiem politycznej manipulacji i spisku. Przekonana o niewinności profesora, prowadzi wyścig z czasem, by udowodnić, że został on niesłusznie skazany i nie może być stracony. Jak spowodować wstrzymanie wykonania wyroku? Komu zależy na ostatecznym uciszeniu bezkompromisowego intelektualisty? Prawda okazuje się bardziej szokująca od zbrodni i kary dla rzekomego zabójcy.  ... W ciągu trzech wizyt, w kolejnych retrospekcjach, powstaje skomplikowany portret skazanego: polityczne dyskusje, kontrowersyjne wykłady, seks ze studentką, oskarżenia o gwałt, alkoholizm, rozwód, rozpacz. Na kilka godzin przed egzekucją Bloom dochodzi do wniosku, że skazanie Gale'a jest skutkiem politycznej manipulacji i spisku. Przekonana o niewinności profesora, prowadzi wyścig z czasem, by udowodnić, że został on niesłusznie skazany i nie może być stracony. Jak spowodować wstrzymanie wykonania wyroku? Komu zależy na ostatecznym uciszeniu bezkompromisowego intelektualisty? Prawda okazuje się bardziej szokująca od zbrodni i kary dla rzekomego zabójcy.
-    

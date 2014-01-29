@@ -1,9 +1,5 @@
+Anatomia / Anatomie 2000 
+=============
+[![Anatomia / Anatomie 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/anatomia-anatomie-2000)
 
-        Anatomia / Anatomie 2000 
-        =============
-        
-        [![Anatomia / Anatomie 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/anatomia-anatomie-2000)
-        
-        
  Studenci anatomii rozpoczynają nowy rok akademicki. Dwie dziewczyny z tego samego miasta wcześniej nie znające się rozpoczynają studia. Jedna jest rozważna i cierpliwa, dążąca do celu za wszelka cenę, jej odwaga mogłaby zawstydzić nie jedną osobę. Jej koleżanka jest bardzo towarzyska i  czasu spędza właśnie na zabawie niż na nauce. Wielu młodych ludzi przeżywa swe najlepsze chwile w życiu inni zaś cierpią napotykając w swym nowym otoczeniu ludzi, którzy w imię nauki zabijają innych. Pozornie niewinni studenci anatomii i ich rektorzy okazują się nieobliczalnymi psychopatami Film bardzo realistycznie przedstawia życie przyszłych lekarzy, chirurgów. Nie jest to typowy horror gdzie przez cały czas zaciskamy zęby, liczne zabawne sytuacje, gagi przeplatają się przez cały film Fabuła nie pozwoli nam się nudzić, wszystko jest przemyślane nawet sekundę po niesmacznym żarcie podskoczymy z zaskoczenia. Prawie w ogóle nie znany film w Polsce cieszył się niedawno bardzo dobra opinia na zachodzie, pomimo tego, iż nie zobaczymy w nim znanych gwiazd Hollywoodu to i tak będziemy zadowoleni z ich aktorstwa zwłaszcza Pauli Henning. Jest to kolejny przykład, iż nisko budżetowe filmy z debiutanckimi twarzami potrafią być dobre.   ... zabijają innych. Pozornie niewinni studenci anatomii i ich rektorzy okazują się nieobliczalnymi psychopatami Film bardzo realistycznie przedstawia życie przyszłych lekarzy, chirurgów. Nie jest to typowy horror gdzie przez cały czas zaciskamy zęby, liczne zabawne sytuacje, gagi przeplatają się przez cały film Fabuła nie pozwoli nam się nudzić, wszystko jest przemyślane nawet sekundę po niesmacznym żarcie podskoczymy z zaskoczenia. Prawie w ogóle nie znany film w Polsce cieszył się niedawno bardzo dobra opinia na zachodzie, pomimo tego, iż nie zobaczymy w nim znanych gwiazd Hollywoodu to i tak będziemy zadowoleni z ich aktorstwa zwłaszcza Pauli Henning. Jest to kolejny przykład, iż nisko budżetowe filmy z debiutanckimi twarzami potrafią być dobre.
-    

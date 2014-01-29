@@ -1,9 +1,5 @@
+Powrót Godzilli / Gojira ni-sen mireniamu 1999 
+=============
+[![Powrót Godzilli / Gojira ni-sen mireniamu 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/powrot-godzilli-gojira-ni-sen-mireniamu-1999)
 
-        Powrót Godzilli / Gojira ni-sen mireniamu 1999 
-        =============
-        
-        [![Powrót Godzilli / Gojira ni-sen mireniamu 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/powrot-godzilli-gojira-ni-sen-mireniamu-1999)
-        
-        
  Japoński naukowiec Shinoda stoi na czele grupy GPN - Godzilla Prediction Network (Grupa Obserwatorów Godzilli - GOG). Próbuje on odgadnąć motywy postępowania Godzilli i przewidzieć, gdzie się ona pojawi. Jego celem jest zbadanie natury potwora i ochranianie go. Tymczasem Godzilla, potężny, niezniszczalny jaszczur wychodzi z kryjówki w głębinach oceanu. Shinoda razem z nastoletnią córką Yo, która pomaga mu w pracach badawczych i z dziennikarką Yuko, która za wszelką cenę chce zrobić zdjęcie Godzilli, podąża jej śladem. Shinoda próbuje powstrzymać Katagiriego, szefa CCI (Crisis Control Intelligence) - Agencji Bezpieczeństwa Narodowego przed zniszczeniem Godzilli. Katagiri postawił sobie za cel jej zabicie, bez względu na konsekwencje. Z dna morza wynurza się też meteor, który ma 60 milionów lat i zmienia się we wrogi Ziemi statek kosmiczny. Ze statku zaś wychodzi Orga - gigantyczne, śmiertelnie niebezpieczne stworzenie. Japonia pogrąża się w panice i w chaosie. Pomóc może tylko Godzilla.   ... zrobić zdjęcie Godzilli, podąża jej śladem. Shinoda próbuje powstrzymać Katagiriego, szefa CCI (Crisis Control Intelligence) - Agencji Bezpieczeństwa Narodowego przed zniszczeniem Godzilli. Katagiri postawił sobie za cel jej zabicie, bez względu na konsekwencje. Z dna morza wynurza się też meteor, który ma 60 milionów lat i zmienia się we wrogi Ziemi statek kosmiczny. Ze statku zaś wychodzi Orga - gigantyczne, śmiertelnie niebezpieczne stworzenie. Japonia pogrąża się w panice i w chaosie. Pomóc może tylko Godzilla.
-    

@@ -1,9 +1,5 @@
+Cisza 2001 
+=============
+[![Cisza 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cisza-2001)
 
-        Cisza 2001 
-        =============
-        
-        [![Cisza 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cisza-2001)
-        
-        
  Wiosna 1978. Szymon jest małym chłopcem. Bawiąc się z kolegami podczas Lanego Poniedziałku, niechcący staje się sprawcą wypadku samochodowego, w którym giną rodzice kilkuletniej dziewczynki, Magdy. Ona sama wychodzi z katastrofy bez szwanku. To wydarzenie odciska niezatarte piętno na psychice chłopaka. Lato 2000. Szymon i Magda są już dorośli. On jest kolejarzem, ona pracuje w dużej firmie kosmetycznej. Magda (zwana także Mimi) nie pamięta wypadku sprzed ponad dwudziestu lat. Nie pamięta właściwie niczego ze swojego dzieciństwa. Jej życie upływa pomiędzy pracą a dyskotekami techno. Podczas jednej z szalonych zabaw Mimi poznaje Szymona. Przypadek? Z całą pewnością nie, Szymon bowiem przez dwadzieścia lat próbował się czegoś dowiedzieć na jej temat, dręczony poczuciem winy. Początkowo niechętnie, potem coraz bardziej zafascynowana swoim wielbicielem dziewczyna odbywa niezwykłą wyprawę w przeszłość, aby wreszcie odkryć samą siebie...   ... Nie pamięta właściwie niczego ze swojego dzieciństwa. Jej życie upływa pomiędzy pracą a dyskotekami techno. Podczas jednej z szalonych zabaw Mimi poznaje Szymona. Przypadek? Z całą pewnością nie, Szymon bowiem przez dwadzieścia lat próbował się czegoś dowiedzieć na jej temat, dręczony poczuciem winy. Początkowo niechętnie, potem coraz bardziej zafascynowana swoim wielbicielem dziewczyna odbywa niezwykłą wyprawę w przeszłość, aby wreszcie odkryć samą siebie...
-    

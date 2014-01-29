@@ -1,9 +1,5 @@
+P.S. Kocham cię / P.S. I Love You 2007 
+=============
+[![P.S. Kocham cię / P.S. I Love You 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/p-s-kocham-cie-p-s-i-love-you-2007)
 
-        P.S. Kocham cię / P.S. I Love You 2007 
-        =============
-        
-        [![P.S. Kocham cię / P.S. I Love You 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/p-s-kocham-cie-p-s-i-love-you-2007)
-        
-        
  Holly i Gerry nie musieli czekać całego życia, by znaleźć swoje bratnie dusze. Byli razem od dziecka, dokańczali swoje zdania i śmiali się nawet, gdy się kłócili. Nikt nie potrafił sobie wyobrazić ich osobno. Dopóki nie stało się coś nieoczekiwanego. Śmierć Gerry'ego niszczy Holly. Lecz w dniu jej trzydziestych urodzin, Gerry do niej wraca. Zostawił jej kilka listów, które powoli wprowadzają Holly w jej nowe życie - bez niego. Każdy liścik kończy się podpisem 'P.S. Kocham Cię'. W miarę otwierania kolejnych listów Holly jest jednocześnie szczęśliwa i zaintrygowana. Mężczyzna, który zna ją lepiej niż ktokolwiek inny, zaczyna uczyć ją, że życie toczy się dalej. Z pomocą przyjaciół oraz hałaśliwej i kochającej rodziny, Holly znów zaczyna śmiać się, płakać, śpiewać, tańczyć i staje się silniejsza niż kiedykolwiek. Zdaje sobie sprawę z tego, że życie jest po to, by żyć, ale zawsze lepiej mieć anioła, który cię strzeże.  ... Cię'. W miarę otwierania kolejnych listów Holly jest jednocześnie szczęśliwa i zaintrygowana. Mężczyzna, który zna ją lepiej niż ktokolwiek inny, zaczyna uczyć ją, że życie toczy się dalej. Z pomocą przyjaciół oraz hałaśliwej i kochającej rodziny, Holly znów zaczyna śmiać się, płakać, śpiewać, tańczyć i staje się silniejsza niż kiedykolwiek. Zdaje sobie sprawę z tego, że życie jest po to, by żyć, ale zawsze lepiej mieć anioła, który cię strzeże.
-    

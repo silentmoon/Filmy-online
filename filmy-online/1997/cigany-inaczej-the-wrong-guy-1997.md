@@ -1,9 +1,5 @@
+Ścigany inaczej / The Wrong guy 1997 
+=============
+[![Ścigany inaczej / The Wrong guy 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cigany-inaczej-the-wrong-guy-1997)
 
-        Ścigany inaczej / The Wrong guy 1997 
-        =============
-        
-        [![Ścigany inaczej / The Wrong guy 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cigany-inaczej-the-wrong-guy-1997)
-        
-        
  Rozkapryszony, napuszony, a jednocześnie bezużyteczny pracownik Nelson Hibbert jest przekonany, że czeka go wspaniały awans. Kiedy jednak prezes ogłasza, że promocję otrzymuje ktoś inny, Nelson nie wytrzymuje i publicznie urządza nieprzyjemną scenę, wyzywając i grożąc swojemu szefowi. Wściekły wchodzi do gabinetu prezesa gdzie znajduje go martwego z nożem w plecach. Nelson wpada w histerię, chwyta zakrwawiony nóż i z wrzaskiem wybiega z biura. Nelson we własnym przekonaniu jest od tej pory zbiegiem. Uważa, że nikt mu nie uwierzy, że to nie on zabił szefa. Dlatego decyduje się na ucieczkę. Nie wie, że prawdziwy zabójca został sfilmowany kamerą video kiedy dokonywał morderstwa. Przypadkowo szlak jego ucieczki pokrywa się z trasą ucieczki prawdziwego mordercy. Zabójca jest przekonany, że Nelson go śledzi. Pościgiem dowodzi opieszały detektyw Arlen. Nelson uważa, że policja jest na jego tropie. Zdesperowany, bez pieniędzy, błądzi po okolicy, aż w końcu w małym miasteczku spotyka dziewczynę o imieniu Lynn, która nieoczekiwanie wpada na pomysł jak rozwiązać jego dziwaczny problem.  ... jest od tej pory zbiegiem. Uważa, że nikt mu nie uwierzy, że to nie on zabił szefa. Dlatego decyduje się na ucieczkę. Nie wie, że prawdziwy zabójca został sfilmowany kamerą video kiedy dokonywał morderstwa. Przypadkowo szlak jego ucieczki pokrywa się z trasą ucieczki prawdziwego mordercy. Zabójca jest przekonany, że Nelson go śledzi. Pościgiem dowodzi opieszały detektyw Arlen. Nelson uważa, że policja jest na jego tropie. Zdesperowany, bez pieniędzy, błądzi po okolicy, aż w końcu w małym miasteczku spotyka dziewczynę o imieniu Lynn, która nieoczekiwanie wpada na pomysł jak rozwiązać jego dziwaczny problem.
-    

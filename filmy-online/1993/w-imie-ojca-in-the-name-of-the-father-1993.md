@@ -1,9 +1,5 @@
+W imię ojca / In the Name of the Father 1993 
+=============
+[![W imię ojca / In the Name of the Father 1993 ](http://vidos.pl/images/player.gif)](http://vidos.pl/w-imie-ojca-in-the-name-of-the-father-1993)
 
-        W imię ojca / In the Name of the Father 1993 
-        =============
-        
-        [![W imię ojca / In the Name of the Father 1993 ](http://vidos.pl/images/player.gif)](http://vidos.pl/w-imie-ojca-in-the-name-of-the-father-1993)
-        
-        
  'W imię ojca' to przejmująca opowieść o Gerrym Conlonie (Day-Lewis) - drobnym złodziejaszku w targanym zamachami bombowymi Belfaście, którego bardziej interesują puby i dobra zabawa, niż walka o niepodległość. Gerry jest całkowitym przeciwieństwem swego skrytego i cichego ojca Giuseppe (Pete Postlethwaite). Gdy Gerry popada w konflikt z IRA ojciec wysyła go do Anglii. Niestety błazeństwa Gerryego sprawiają, że nagle znajduje się w niewłaściwym miejscu, w niewłaściwym czasie. Mimo że jest niewinny, zostaje skazany na dożywocie. Także Giuseppe trafia do więzienia. Za kratami Gerry odkrywa, że pozorne słabości jego ojca maskują niezwykłą wewnętrzną siłę ducha i mądrość. Współpracując ze zdeterminowaną prawniczką (Thompson) Gerry stara się udowodnić swą niewinność, oczyścić imię ojca i wyjawić prawdę o jednej z najbardziej wstydliwych pomyłek sądowych w historii.  ... Mimo że jest niewinny, zostaje skazany na dożywocie. Także Giuseppe trafia do więzienia. Za kratami Gerry odkrywa, że pozorne słabości jego ojca maskują niezwykłą wewnętrzną siłę ducha i mądrość. Współpracując ze zdeterminowaną prawniczką (Thompson) Gerry stara się udowodnić swą niewinność, oczyścić imię ojca i wyjawić prawdę o jednej z najbardziej wstydliwych pomyłek sądowych w historii.
-    

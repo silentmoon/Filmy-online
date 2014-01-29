@@ -1,9 +1,5 @@
+Ocean's Twelve: Dogrywka / Ocean's Twelve 2004 
+=============
+[![Ocean's Twelve: Dogrywka / Ocean's Twelve 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ocean-s-twelve-dogrywka-ocean-s-twelve-2004)
 
-        Ocean's Twelve: Dogrywka / Ocean's Twelve 2004 
-        =============
-        
-        [![Ocean's Twelve: Dogrywka / Ocean's Twelve 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ocean-s-twelve-dogrywka-ocean-s-twelve-2004)
-        
-        
  Minęły trzy lata odkąd Danny Ocean (George Clooney) i jego ludzie na czele z karcianym asem Rusty Ryanem (Brad Pitt), kieszonkowcem Linusem Caldwellem (Matt Damon), specjalistą od materiałów wybuchowych Basherem Tarrem (Don Cheadle) i rozpruwaczem sejfów Frankiem Cattonem (Bernie Mac) dokonali jednego z najbardziej udanych i lukratywnych skoków w historii, pozbawiając bezwzględnego właściciela kasyn, Terry'ego Benedicta (Andy Garcia) każdego centa, przechowywanego w skarbcu jego kasyna. Po podziale 160 milionów, każdy członek ekipy Oceana próbował wieść proste, legalne życie... Co, ku zmartwieniu żony Danny'ego, Tess (Julia Roberts), okazało się niezbyt proste. Nagle ktoś łamie Zasadę Numer Jeden i wydaje bandę Benedictowi. Kończy się ich spokojne życie. Benedict chce odzyskać swoje 160 milionów plus odsetki albo... Poza tym, o czym szybko przekona się ekipa Danny'ego, Benedict nie jest jedyną wpływową osobą na świecie, która szuka Jedenastki Oceana...  ... jego kasyna. Po podziale 160 milionów, każdy członek ekipy Oceana próbował wieść proste, legalne życie... Co, ku zmartwieniu żony Danny'ego, Tess (Julia Roberts), okazało się niezbyt proste. Nagle ktoś łamie Zasadę Numer Jeden i wydaje bandę Benedictowi. Kończy się ich spokojne życie. Benedict chce odzyskać swoje 160 milionów plus odsetki albo... Poza tym, o czym szybko przekona się ekipa Danny'ego, Benedict nie jest jedyną wpływową osobą na świecie, która szuka Jedenastki Oceana...
-    

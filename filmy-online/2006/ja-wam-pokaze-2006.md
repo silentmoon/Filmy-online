@@ -1,9 +1,5 @@
+Ja wam pokażę! 2006 
+=============
+[![Ja wam pokażę! 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ja-wam-pokaze-2006)
 
-        Ja wam pokażę! 2006 
-        =============
-        
-        [![Ja wam pokażę! 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ja-wam-pokaze-2006)
-        
-        
  Ciąg dalszy przygód Judyty – bohaterki filmu i książki 'Nigdy w życiu'. Judyta (Grażyna Wolszczak) i Adam (Paweł Deląg) bardzo się kochają, jednak codzienność daje o sobie znać. Tosia (Maria Niklińska) lada dzień skończy osiemnaście lat i właśnie 'odbezpieczyła zapalnik w bombie hormonalnej', co wywołuje konflikty z Adamem. Mimo problemów Judyta i Adam planują się pobrać. Tyle, że romantyczny ślub na Seszelach też zdaje się ulatywać w niebyt: paszport Judyty stracił ważność, a w redakcji Naczelny (Mieczysław Grąbka) chce wprowadzić duże zmiany. Najgorsze jednak dopiero nadchodzi: Adam otrzymuje propozycję wyjazdu do USA na półroczne stypendium. Kiedy wyjeżdża, Judyta ogromnie tęskni, ale z zaskoczeniem spostrzega majaczącą na horyzoncie sylwetkę Eksia (Cezary Pazura). To sprawka Tosi, która wymogła na matce obietnicę, że cała rodzina spędzi wspólnie 18. urodziny dziewczyny, wypadające akurat w Wigilię. Marzeniem Tosi jest, by rodzice połączyli się ponownie. Na domiar złego Judyta zaczyna podejrzewać, że Adam w dalekich Stanach znalazł sobie pocieszycielkę...   ... ważność, a w redakcji Naczelny (Mieczysław Grąbka) chce wprowadzić duże zmiany. Najgorsze jednak dopiero nadchodzi: Adam otrzymuje propozycję wyjazdu do USA na półroczne stypendium. Kiedy wyjeżdża, Judyta ogromnie tęskni, ale z zaskoczeniem spostrzega majaczącą na horyzoncie sylwetkę Eksia (Cezary Pazura). To sprawka Tosi, która wymogła na matce obietnicę, że cała rodzina spędzi wspólnie 18. urodziny dziewczyny, wypadające akurat w Wigilię. Marzeniem Tosi jest, by rodzice połączyli się ponownie. Na domiar złego Judyta zaczyna podejrzewać, że Adam w dalekich Stanach znalazł sobie pocieszycielkę...
-    

@@ -1,9 +1,5 @@
+Zakładnik / Plennyj 2008 
+=============
+[![Zakładnik / Plennyj 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakladnik-plennyj-2008)
 
-        Zakładnik / Plennyj 2008 
-        =============
-        
-        [![Zakładnik / Plennyj 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakladnik-plennyj-2008)
-        
-        
  Konwój rosyjskich żołnierzy gubi drogę na terytorium wroga. Otaczają ich łańcuchy nieznanych czeczeńskich gór i świst kul niewidzialnych snajperów. Kompania chroni się w jednej z wsi – i tym samym wpada w pułapkę. Wokół wybuchają pociski – coraz częstsze eksplozje skutecznie odcinają drogę powrotu. Dowódca oddziału, podpułkownik Gurow, kontaktuje się z macierzystą bazą i prosi o pomoc. Ta wysyła zaprawionego w bojach Rubachina i młodego strzelca Wowkę, by złapali jakiegoś miejscowego, który zna górskie szlaki i będzie mógł przeprowadzić ludzi Gurowa w bezpieczne miejsce. Ukryci Czeczeni tylko czekają, aby unicestwić żółnierzy. Gurow chce więc posłużyć się jeńcem jako przepustką do wolności. Rubachin i Wowka urządzają w okolicznych lasach prawdziwe polowanie na czeczeńskich partyzantów. W końcu łapią młodego, rannego Czeczena, który, choć nie zna rosyjskiego, doskonale rozumie swoje zadanie. W ciągu jednego dnia musi przedostać się przez oblężony teren – każdy fałszywy krok może doprowadzić do nieszczęścia i zakończenia jego przymusowej misji. Dawni wrogowie muszą współpracować. Dramatyzm sytuacji zdaje się ich coraz bardziej zbliżać do siebie. W końcu, każdy z nich, będzie musiał dokonać wyboru.  ... miejscowego, który zna górskie szlaki i będzie mógł przeprowadzić ludzi Gurowa w bezpieczne miejsce. Ukryci Czeczeni tylko czekają, aby unicestwić żółnierzy. Gurow chce więc posłużyć się jeńcem jako przepustką do wolności. Rubachin i Wowka urządzają w okolicznych lasach prawdziwe polowanie na czeczeńskich partyzantów. W końcu łapią młodego, rannego Czeczena, który, choć nie zna rosyjskiego, doskonale rozumie swoje zadanie. W ciągu jednego dnia musi przedostać się przez oblężony teren – każdy fałszywy krok może doprowadzić do nieszczęścia i zakończenia jego przymusowej misji. Dawni wrogowie muszą współpracować. Dramatyzm sytuacji zdaje się ich coraz bardziej zbliżać do siebie. W końcu, każdy z nich, będzie musiał dokonać wyboru.
-    

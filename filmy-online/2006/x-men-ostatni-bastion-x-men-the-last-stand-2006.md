@@ -1,9 +1,5 @@
+X-Men: Ostatni bastion / X-Men: The Last Stand 2006 
+=============
+[![X-Men: Ostatni bastion / X-Men: The Last Stand 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/x-men-ostatni-bastion-x-men-the-last-stand-2006)
 
-        X-Men: Ostatni bastion / X-Men: The Last Stand 2006 
-        =============
-        
-        [![X-Men: Ostatni bastion / X-Men: The Last Stand 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/x-men-ostatni-bastion-x-men-the-last-stand-2006)
-        
-        
  Trzecia część filmowej trylogii o mutantach, posiadających nadludzkie umiejętności, jak zwykle z plejadą gwiazd. Tym razem mutanty będą usiały stanąć przed wyborem: zachować swoją unikalność i tym samym dalej żyć w izolacji, czy wyrzec się swojej mocy. Prawo wyboru daje im wynalezienie lekarstwa odwracającego proces mutowania. Dwaj przywódcy mutantów - Charles Xavier alias Profesor X (Patrick Stewart) i Eric Lensherr, czyli Magneto (Ian McKellen) prezentują odmienne poglądy na rozwiązanie tego dylematu. Magneto opuszcza swoją kryjówkę, zbiera armię i wznieca rewolucję mutantów, jakiej świat nie widział. On i jego stronnicy chcą zniszczyć lekarstwo i każdego - mutanta czy człowieka - kto pochwala jego powstawanie. Po czyjej stronie opowiedzą się Wolverine, samotnik uzbrojony w twarde jak stal pazury, potrafiąca latać i panować nad pogodą Storm czy Rouge, która umie przejąć energię każdego mutanta i wcielić się w niego...  ... na rozwiązanie tego dylematu. Magneto opuszcza swoją kryjówkę, zbiera armię i wznieca rewolucję mutantów, jakiej świat nie widział. On i jego stronnicy chcą zniszczyć lekarstwo i każdego - mutanta czy człowieka - kto pochwala jego powstawanie. Po czyjej stronie opowiedzą się Wolverine, samotnik uzbrojony w twarde jak stal pazury, potrafiąca latać i panować nad pogodą Storm czy Rouge, która umie przejąć energię każdego mutanta i wcielić się w niego...
-    

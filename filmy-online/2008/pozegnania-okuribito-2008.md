@@ -1,9 +1,5 @@
+Pożegnania / Okuribito 2008 
+=============
+[![Pożegnania / Okuribito 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pozegnania-okuribito-2008)
 
-        Pożegnania / Okuribito 2008 
-        =============
-        
-        [![Pożegnania / Okuribito 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pozegnania-okuribito-2008)
-        
-        
  Zdolny wiolonczelista Daigo Kobayashi (Masahiro Motoki) traci pracę, gdy rozwiązuje się jego orkiestra. Postanawia wraz z żoną (Ryoko Hirosue) powrócić do rodzinnego miasteczka i tam poszukać dla siebie nowej pracy i nowego życia. Odpowiada na ogłoszenie zatytułowane 'Okuribito' (ang. 'Departures') w nadziei na pracę w agencji turystycznej. Jak się jednak okazuje, jest to praca w domu pogrzebowym, Daigo zostaje tzw. 'nokanshi' (osobą, która składa ciało zmarłego do trumny). Choć całe jego otoczenie patrzy raczej niechętnie na nową pracę Daigo, on odnajduje się w nowej roli strażnika bram życia i śmierci, pośrednika i przewodnika ku zaświatom. Jednocześnie paradoksalnie uczy się odkrywać radość i piękno życia.   ... Choć całe jego otoczenie patrzy raczej niechętnie na nową pracę Daigo, on odnajduje się w nowej roli strażnika bram życia i śmierci, pośrednika i przewodnika ku zaświatom. Jednocześnie paradoksalnie uczy się odkrywać radość i piękno życia.
-    

@@ -1,9 +1,5 @@
+Green Zone 2010 
+=============
+[![Green Zone 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/green-zone-2010)
 
-        Green Zone 2010 
-        =============
-        
-        [![Green Zone 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/green-zone-2010)
-        
-        
  Matt Damon i reżyser Paul Greengrass ponownie połączyli siły w dramacie wojennym 'Green Zone', którego akcja rozgrywa się podczas pierwszych chaotycznych dni wojny w Iraku, kiedy to nikomu nie można było ufać, a każda decyzja mogła skończyć się nieprzewidywalnymi konsekwencjami. Podczas prowadzonej przez Stany Zjednoczone okupacji Bagdadu w 2003 roku, starszy chorąży Roy Miller (Damon) i zespół inspektorów wojskowych zostają wysłani w celu odnalezienia broni masowej zagłady, która jak wierzono miała być składowana na irackiej pustyni. Przemieszczając się z jednego zabezpieczonego minami miejsca – pułapki na drugie, żołnierze w trakcie poszukiwania śmiertelnych odczynników chemicznych natykają się na zawiłe próby zatajenia prawdy, które zmieniają cel ich misji. Działając wśród agentów wywiadu kierujących się sprzecznymi motywami, Miller szuka odpowiedzi, które albo zniosą reżim, albo doprowadzą do eskalacji działań wojennych w tym zapalnym rejonie. Znajduje najbardziej zawodną broń - prawdę.  ... która jak wierzono miała być składowana na irackiej pustyni. Przemieszczając się z jednego zabezpieczonego minami miejsca – pułapki na drugie, żołnierze w trakcie poszukiwania śmiertelnych odczynników chemicznych natykają się na zawiłe próby zatajenia prawdy, które zmieniają cel ich misji. Działając wśród agentów wywiadu kierujących się sprzecznymi motywami, Miller szuka odpowiedzi, które albo zniosą reżim, albo doprowadzą do eskalacji działań wojennych w tym zapalnym rejonie. Znajduje najbardziej zawodną broń - prawdę.
-    

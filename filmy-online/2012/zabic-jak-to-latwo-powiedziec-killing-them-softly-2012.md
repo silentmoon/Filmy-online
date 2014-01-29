@@ -1,9 +1,5 @@
+Zabić, jak to łatwo powiedzieć / Killing Them Softly 2012 
+=============
+[![Zabić, jak to łatwo powiedzieć / Killing Them Softly 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabic-jak-to-latwo-powiedziec-killing-them-softly-2012)
 
-        Zabić, jak to łatwo powiedzieć / Killing Them Softly 2012 
-        =============
-        
-        [![Zabić, jak to łatwo powiedzieć / Killing Them Softly 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabic-jak-to-latwo-powiedziec-killing-them-softly-2012)
-        
-        
  Jackie Cogan jest płatnym zabójcą. Lubi pracować szybko i bez zbędnych słów. Nie znosi spoufalać się z ofiarą: 'Nie lubię, gdy błagają o litość, wołają swoje matki, padają na kolana. Wolę zabijać delikatnie, z dystansu'. Cogan nie jest tani, ale jest najlepszy. Zostaje wynajęty, by odzyskać pieniądze skradzione podczas mafijnej gry w pokera i wymierzyć karę tym, którzy zdecydowali się na tak bezczelnie głupi skok. Przemierzając ulice Nowego Orleanu ze spokojem niesie zagładę tym, którzy na nią zasłużyli... a także tym, którzy po prostu nie mają szczęścia. Cogan jest jak śmierć we własnej osobie - nieunikniony. Nigdy nie wiesz, kiedy przyjdzie po Ciebie.  ... zagładę tym, którzy na nią zasłużyli... a także tym, którzy po prostu nie mają szczęścia. Cogan jest jak śmierć we własnej osobie - nieunikniony. Nigdy nie wiesz, kiedy przyjdzie po Ciebie.
-    

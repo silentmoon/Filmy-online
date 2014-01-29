@@ -1,9 +1,5 @@
+Sekret Enigmy 1979 
+=============
+[![Sekret Enigmy 1979 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sekret-enigmy-1979)
 
-        Sekret Enigmy 1979 
-        =============
-        
-        [![Sekret Enigmy 1979 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sekret-enigmy-1979)
-        
-        
  Autentyczna historia trzech matematyków-kryptologów zatrudnionych przez polski wywiad do rozszyfrowywania kodu hitlerowskiej maszyny 'Enigma'. Ich dzieje przed i w czasie II wojny światowej dały interesujący obraz przedstawiający ciężką pracę polskiego wywiadu. Reżyser Roman Wionczek zgromadził wspaniały zespół aktorski. Emil Karewicz jak zwykle w roli negatywnej, choć oficera polskiego, ale zdrajcy. Janusz Zakrzeński i Andrzej Szczepkowski interesujący odtworzyli postacie dowódców grupy deszyfrującej. Stanisław Zaczyk jako angielski oficer, a August Kowalczyk w roli oficera francuskiego. Zazwyczaj sympatyczny Jan Machulski tu wcielił się w postać pułkownika niemieckiego. A w tle takie gwiazdy polskiego kina lat siedemdziesiątych i osiemdziesiątych, jak Henryk Bista czy Stanisław Mikulski   ... dowódców grupy deszyfrującej. Stanisław Zaczyk jako angielski oficer, a August Kowalczyk w roli oficera francuskiego. Zazwyczaj sympatyczny Jan Machulski tu wcielił się w postać pułkownika niemieckiego. A w tle takie gwiazdy polskiego kina lat siedemdziesiątych i osiemdziesiątych, jak Henryk Bista czy Stanisław Mikulski
-    

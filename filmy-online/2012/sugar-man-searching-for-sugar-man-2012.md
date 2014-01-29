@@ -1,9 +1,5 @@
+Sugar Man / Searching for Sugar Man 2012 
+=============
+[![Sugar Man / Searching for Sugar Man 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sugar-man-searching-for-sugar-man-2012)
 
-        Sugar Man / Searching for Sugar Man 2012 
-        =============
-        
-        [![Sugar Man / Searching for Sugar Man 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sugar-man-searching-for-sugar-man-2012)
-        
-        
  Uniwersalna i zaskakująca opowieść o potędze przypadku i roli szczęścia w ludzkim życiu. Ten trzymający w napięciu film przedstawia niewiarygodną, pełną niespodzianek, a do tego prawdziwą historię życia Sixto Rodrigueza, piosenkarza, któremu wróżono karierę większą niż Bobowi Dylanowi, a o którym... nikt nie słyszał. Pod koniec lat 60. w jednym z barów w Detroit dwóch uznanych producentów muzycznych usłyszało nieznanego piosenkarza o wielkim talencie. Nagrali z nim album, licząc że z miejsca stanie się gwiazdą. Jednak płyta okazała się fiaskiem: nie chciał jej kupować dosłownie nikt. Piosenkarz wkrótce zniknął bez śladu, jeśli nie liczyć plotki o jego przedziwnym samobójstwie podczas koncertu. Kilka lat później pirackie kopie jego płyty trafiły do podzielonej apartheidem Południowej Afryki. W ciągu dwóch dekad odniosły tam niewiarygodny sukces, bijąc rekordy sprzedaży Elvisa Presleya i Rolling Stonesów, choć sam piosenkarz nigdy się o tym nie dowiedział. Dwaj południowoafrykańscy fani postanowili odkryć, co naprawdę stało się z ich idolem i bohaterem. Śledztwo zaprowadziło ich do prawdy bardziej niezwykłej, niż wszystkie mity krążące wokół artysty znanego jako Rodriguez. Ten film to opowieść o jego niezwykłych losach, a także o nadziei, inspiracji i potędze muzyki.  ... licząc że z miejsca stanie się gwiazdą. Jednak płyta okazała się fiaskiem: nie chciał jej kupować dosłownie nikt. Piosenkarz wkrótce zniknął bez śladu, jeśli nie liczyć plotki o jego przedziwnym samobójstwie podczas koncertu. Kilka lat później pirackie kopie jego płyty trafiły do podzielonej apartheidem Południowej Afryki. W ciągu dwóch dekad odniosły tam niewiarygodny sukces, bijąc rekordy sprzedaży Elvisa Presleya i Rolling Stonesów, choć sam piosenkarz nigdy się o tym nie dowiedział. Dwaj południowoafrykańscy fani postanowili odkryć, co naprawdę stało się z ich idolem i bohaterem. Śledztwo zaprowadziło ich do prawdy bardziej niezwykłej, niż wszystkie mity krążące wokół artysty znanego jako Rodriguez. Ten film to opowieść o jego niezwykłych losach, a także o nadziei, inspiracji i potędze muzyki.
-    

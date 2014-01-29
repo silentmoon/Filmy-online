@@ -1,9 +1,5 @@
+Uwikłanie 2011 
+=============
+[![Uwikłanie 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uwiklanie-2011)
 
-        Uwikłanie 2011 
-        =============
-        
-        [![Uwikłanie 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uwiklanie-2011)
-        
-        
  Co musiałoby się wydarzyć, żeby w zwyczajnym człowieku obudzić zabójcę? Czy w pół-hipnotycznym transie można zabić i następnego dnia o tym nie pamiętać? Skoro jest ofiara, to gdzieś musi też być sprawca zbrodni. W ekranizacji bestsellerowego kryminału Zygmunta Miłoszewskiego tropem sprytnego mordercy podąża cyniczny komisarz Smolar (Marek Bukowski) i nieustępliwa prokurator Agata Szacka (Maja Ostaszewska). Duet jaki tworzą jest mieszanką wybuchową nie tylko ze względu na ich temperamenty, ale również z powodu łączącego ich w przeszłości romansu. Prokurator Szacka, prowadząc najtrudniejsze w swojej karierze śledztwo, dotknie historii, o których od lat krążą legendy, ale nikt nie spodziewał się, że mogą okazać się prawdą.   ... temperamenty, ale również z powodu łączącego ich w przeszłości romansu. Prokurator Szacka, prowadząc najtrudniejsze w swojej karierze śledztwo, dotknie historii, o których od lat krążą legendy, ale nikt nie spodziewał się, że mogą okazać się prawdą.
-    

@@ -1,9 +1,5 @@
+Yyyreek!!! Kosmiczna nominacja 2002 
+=============
+[![Yyyreek!!! Kosmiczna nominacja 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/yyyreek-kosmiczna-nominacja-2002)
 
-        Yyyreek!!! Kosmiczna nominacja 2002 
-        =============
-        
-        [![Yyyreek!!! Kosmiczna nominacja 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/yyyreek-kosmiczna-nominacja-2002)
-        
-        
  Kosmici z planety X mają poważny problem genetyczny, który może doprowadzić do katastrofy ich planety. Jedynym sposobem, aby jej uniknąć jest znalezienie na Ziemi człowieka, który zapobiegnie katastrofie. Po długich poszukiwaniach wybór kosmitów trafia na 'nie rzucającego' się w oczy młodego człowieka - Irka (Ireneusz Grzegorczyk), przykładnego męża i ojca. Na miejsce spotkania z nim wybierają niewielki pensjonat w górach prowadzony przez Staśka Byrcyna (Wojciech Cygan). Niestety w tym spokojnym miejscu umawiają się również przemytnicy materiałów wybuchowych. Planują nielegalną transakcję kupna dużej ilości sentexu. Za przestępcami podążają agenci Centralnego Biura Śledczego 'Spokojny' (Piotr Gulczyński) i 'Kobra' (Alicja Walczak). Kontaktów Irka z kosmitami nie daje się ukryć na długo. Stasiek Byrcyn postanawia wykorzystać to jako element kampanii reklamowej pensjonatu. Liczy na ściągnięcie turystów...   ... Niestety w tym spokojnym miejscu umawiają się również przemytnicy materiałów wybuchowych. Planują nielegalną transakcję kupna dużej ilości sentexu. Za przestępcami podążają agenci Centralnego Biura Śledczego 'Spokojny' (Piotr Gulczyński) i 'Kobra' (Alicja Walczak). Kontaktów Irka z kosmitami nie daje się ukryć na długo. Stasiek Byrcyn postanawia wykorzystać to jako element kampanii reklamowej pensjonatu. Liczy na ściągnięcie turystów...
-    

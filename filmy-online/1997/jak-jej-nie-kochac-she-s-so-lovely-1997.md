@@ -1,9 +1,5 @@
+Jak jej nie kochać / She's so lovely 1997 
+=============
+[![Jak jej nie kochać / She's so lovely 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jak-jej-nie-kochac-she-s-so-lovely-1997)
 
-        Jak jej nie kochać / She's so lovely 1997 
-        =============
-        
-        [![Jak jej nie kochać / She's so lovely 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jak-jej-nie-kochac-she-s-so-lovely-1997)
-        
-        
  'She's So Lovely' to romantyczna komedia autorstwa Johna Cassavetesa (twórcy słynnego 'Zabójstwa chińskiego maklera' czy 'Kobiety pod presją'), a wyreżyserowana przez jego syna - Nicka Cassavetesa. Szalone małżeństwo - Eddie i Maureen żyje z dnia na dzień, od imprezy do imprezy, od kłótni do kłótni. Pewnego dnia jeden z sąsiadów napada na Maureen, a krewki Eddie mści na nim się okrutnie, za co trafia na dziesięć lat za kratki. Gdy po odsiadce powraca do domu, widzi swoją żonę w ramionach dawnego rywala - Joey'a. Teraz Maureen przeżywa poważną rozterkę - uwięziona między przeszłością, a teraźniejszością, między dwoma kochającymi ją mężczyznami.  ... w ramionach dawnego rywala - Joey'a. Teraz Maureen przeżywa poważną rozterkę - uwięziona między przeszłością, a teraźniejszością, między dwoma kochającymi ją mężczyznami.
-    

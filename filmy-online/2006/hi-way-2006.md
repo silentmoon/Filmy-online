@@ -1,9 +1,5 @@
+Hi Way 2006 
+=============
+[![Hi Way 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hi-way-2006)
 
-        Hi Way 2006 
-        =============
-        
-        [![Hi Way 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hi-way-2006)
-        
-        
  Dwóch podejrzanych filmowców - reżyser Jaco i operator Pablo - jedzie z Katowic do Warszawy, by nakręcić bliżej nieokreślony materiał. Wbrew wcześniejszym, przypuszczeniom celem podróży okazuje się banalna fucha - krótki wywiad z zamożnym biznesmenem, realizowany w jego imponującej, podwarszawskiej willi. Status materialny oraz zachowanie Pana Andrzeja szybko sprowadzają niedorobionych 'filmowców' do parteru. Po serii kompromitujących wpadek opuszczają jego dom z poczuciem upokorzenia. W drodze powrotnej - dla odreagowania i poprawienia nastroju - Jaco zaczyna snuć wizję, w której to Pan Andrzej występuje wobec bohaterów w roli petenta. Małomówny dotąd Pablo podchwytuje zabawę, Jaco - nieco nadpobudliwy mitoman - rozkręca się twórczo. Stopniowo oglądamy kolejne, coraz bardziej absurdalne scenariusze, produkowane przez jego wybujałą wyobraźnię. Ostatecznie bohaterowie tracą dystans do swojej wyobraźni - jej wytwory powoli mieszają się z rzeczywistością, a wykreowane postaci zaczynają żyć własnym, niezależnym życiem. Sytuacja zdaje się całkowicie wymykać spod kontroli...  ... upokorzenia. W drodze powrotnej - dla odreagowania i poprawienia nastroju - Jaco zaczyna snuć wizję, w której to Pan Andrzej występuje wobec bohaterów w roli petenta. Małomówny dotąd Pablo podchwytuje zabawę, Jaco - nieco nadpobudliwy mitoman - rozkręca się twórczo. Stopniowo oglądamy kolejne, coraz bardziej absurdalne scenariusze, produkowane przez jego wybujałą wyobraźnię. Ostatecznie bohaterowie tracą dystans do swojej wyobraźni - jej wytwory powoli mieszają się z rzeczywistością, a wykreowane postaci zaczynają żyć własnym, niezależnym życiem. Sytuacja zdaje się całkowicie wymykać spod kontroli...
-    

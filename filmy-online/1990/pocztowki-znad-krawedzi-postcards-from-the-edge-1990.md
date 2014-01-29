@@ -1,9 +1,5 @@
+Pocztówki znad krawędzi / Postcards from the Edge 1990 
+=============
+[![Pocztówki znad krawędzi / Postcards from the Edge 1990 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pocztowki-znad-krawedzi-postcards-from-the-edge-1990)
 
-        Pocztówki znad krawędzi / Postcards from the Edge 1990 
-        =============
-        
-        [![Pocztówki znad krawędzi / Postcards from the Edge 1990 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pocztowki-znad-krawedzi-postcards-from-the-edge-1990)
-        
-        
  Zrealizowane na podstawie bestsellerowej, autobiograficznej powieści aktorki Carrie Fisher 'Pocztówki znad krawędzi' przynoszą wnikliwy, nie pozbawiony akcentów humorystyczny obraz życia hollywoodzkiej fabryki snów. W roli Suzanne Vale, obdarzonej ciętym dowcipem, wrażliwej aktorki, która marzy, by uratować swą podupadającą karierę, znakomitą kreację stworzyła wyróżniona nominacją do Oscara Meryl Streep. Jej filmową matkę zagrała Shirley MacLaine, która po mistrzowsku wcieliła się w postać dojrzałej królowej ekranu pamiętającej czasy największej świetności Hollywood. Dzięki doskonałym kreacjom Dennisa Quaida, Roba Reinera i gwiazdorskiej obsadzie ról drugoplanowych pocztówki znad krawędzi przynoszą fascynujące spojrzenie za kulisy hollywoodzkiego targowiska próżności. Mike Nichols zrealizował komedię, której nie może zabraknąć w kolekcji żadnego szanującego się miłośnika kina.  ... wcieliła się w postać dojrzałej królowej ekranu pamiętającej czasy największej świetności Hollywood. Dzięki doskonałym kreacjom Dennisa Quaida, Roba Reinera i gwiazdorskiej obsadzie ról drugoplanowych pocztówki znad krawędzi przynoszą fascynujące spojrzenie za kulisy hollywoodzkiego targowiska próżności. Mike Nichols zrealizował komedię, której nie może zabraknąć w kolekcji żadnego szanującego się miłośnika kina.
-    

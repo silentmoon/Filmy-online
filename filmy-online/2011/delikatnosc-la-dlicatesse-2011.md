@@ -1,9 +1,5 @@
+Delikatność / La délicatesse 2011 
+=============
+[![Delikatność / La délicatesse 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/delikatnosc-la-dlicatesse-2011)
 
-        Delikatność / La délicatesse 2011 
-        =============
-        
-        [![Delikatność / La délicatesse 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/delikatnosc-la-dlicatesse-2011)
-        
-        
  W życiu Nathalie (Audrey Tautou) i François (Pio Marmai) wszystko układało się jak w bajce. Byli młodzi i piękni, mieli dobrą pracę. Miłość, choć nie bez pomocy soku morelowego, poraziła ich jak grom. Ślub, pośród płatków śniegu, miał być jedynie wstępem do długiego i szczęśliwego życia. Marzenia prysły wraz z nagłą i niespodziewaną śmiercią François. Nie mogąc stawić czoła żalowi, smutkowi i gniewowi Nathalie rzuciła się w wir pracy. Minęły trzy lata i nic nie wskazywało, że w życiu dziewczyny może się coś zmienić. Pewnego dnia w biurze pojawia się łysiejący, szczerzący w uśmiechu zęby Marcus (François Damiens), Szwed ubrany w beżowy sweter po dziadku. Nathalie, nagle, bezwiednie, całuje Marcusa namiętnie w usta. To początek romantycznej i zabawnej historii, która wiele namiesza zarówno w życiu Francuzki i jak i Szweda. Łącząca ich relacja służbowa z pewnością niczego nie ułatwi.  ... czoła żalowi, smutkowi i gniewowi Nathalie rzuciła się w wir pracy. Minęły trzy lata i nic nie wskazywało, że w życiu dziewczyny może się coś zmienić. Pewnego dnia w biurze pojawia się łysiejący, szczerzący w uśmiechu zęby Marcus (François Damiens), Szwed ubrany w beżowy sweter po dziadku. Nathalie, nagle, bezwiednie, całuje Marcusa namiętnie w usta. To początek romantycznej i zabawnej historii, która wiele namiesza zarówno w życiu Francuzki i jak i Szweda. Łącząca ich relacja służbowa z pewnością niczego nie ułatwi.
-    

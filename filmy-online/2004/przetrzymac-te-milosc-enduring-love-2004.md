@@ -1,9 +1,5 @@
+Przetrzymać tę miłość / Enduring Love 2004 
+=============
+[![Przetrzymać tę miłość / Enduring Love 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przetrzymac-te-milosc-enduring-love-2004)
 
-        Przetrzymać tę miłość / Enduring Love 2004 
-        =============
-        
-        [![Przetrzymać tę miłość / Enduring Love 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przetrzymac-te-milosc-enduring-love-2004)
-        
-        
  Długo planowany przez Joe Rossa intymny oświadczynowy piknik z Claire zostaje nagle przerwany upadkiem balonu. Joe i trzej inni mężczyźni instynktownie rzucają się z pomocą uwięzionemu w balonie chłopcu. Podczas próby ratunku jeden z mężczyzn nagle umiera. Joe próbuje powrócić do swego poukładanego życia, ale jego myśli ciągle krążą wokół incydentu z balonem. Pewnego dnia otrzymuje telefon od jednego z mężczyzn, Jeda Parry'ego, który twierdzi, że podczas wypadku 'coś przeszło między nimi'. Joe traktuje jego wypowiedź jako próbę uporania się ze stresem. Jed coraz częściej pojawia się w życiu Joego, którego zaczyna przerażać każdy dzwonek telefonu. Obsesja Jeda narasta, zaczyna zagrażać związkowi Joego z Claire. Szaleństwo Jeda zmusza Joe do rozwiązania zagadki, nie tylko tego, co stało się na pikniku, lecz także miłości, wiary i wybaczenia. Oparty na powieści Iana McEwana film to thriller o tym, jak los zmienia nasze postrzeganie świata, a przypadek wpływa na nasze życie.   ... przeszło między nimi'. Joe traktuje jego wypowiedź jako próbę uporania się ze stresem. Jed coraz częściej pojawia się w życiu Joego, którego zaczyna przerażać każdy dzwonek telefonu. Obsesja Jeda narasta, zaczyna zagrażać związkowi Joego z Claire. Szaleństwo Jeda zmusza Joe do rozwiązania zagadki, nie tylko tego, co stało się na pikniku, lecz także miłości, wiary i wybaczenia. Oparty na powieści Iana McEwana film to thriller o tym, jak los zmienia nasze postrzeganie świata, a przypadek wpływa na nasze życie.
-    

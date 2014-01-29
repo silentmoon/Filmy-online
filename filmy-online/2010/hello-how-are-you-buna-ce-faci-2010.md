@@ -1,9 +1,5 @@
+Hello! How are you? / Buna! Ce faci? 2010 
+=============
+[![Hello! How are you? / Buna! Ce faci? 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hello-how-are-you-buna-ce-faci-2010)
 
-        Hello! How are you? / Buna! Ce faci? 2010 
-        =============
-        
-        [![Hello! How are you? / Buna! Ce faci? 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hello-how-are-you-buna-ce-faci-2010)
-        
-        
  Film ten stanowi przeciwieństwo ponurego naturalizmu, z którego słyną produkcje rumuńskie. 'Hallo! How are you?' Alexandru Matei to komedia romantyczna, która swoją świeżością udowadnia, że nawet te bardziej komercyjne produkcje dostarczają emocjonalnego objawienia. Ta dowcipna opowieść koncentruje się na relacji męża i żony, małżeństwa o 20-letnim stażu, przeżywającym kryzys. Bohaterowie całkowicie znudzeni sobą, z prawdziwym zaangażowaniem i rozkoszą oddają się czatom internetowym. W stosunku do siebie odczuwają jedynie frustrację. Radość życia odnajdują w internetowych flirtach. Czeka ich wielka niespodzianka, kiedy wreszcie zdecydują się spotkać z wirtualnymi znajomymi w rzeczywistości.   ... internetowym. W stosunku do siebie odczuwają jedynie frustrację. Radość życia odnajdują w internetowych flirtach. Czeka ich wielka niespodzianka, kiedy wreszcie zdecydują się spotkać z wirtualnymi znajomymi w rzeczywistości.
-    

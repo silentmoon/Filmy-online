@@ -1,9 +1,5 @@
+Jestem 2005 
+=============
+[![Jestem 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jestem-2005)
 
-        Jestem 2005 
-        =============
-        
-        [![Jestem 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jestem-2005)
-        
-        
  Opowieść o jedenastolatku, który po przypadkowej ucieczce z domu dziecka, nie szukany przez nikogo, nie oczekiwany przez matkę, u której chciał zamieszkać - zostaje sam ze sobą. Kundel nie skarży się na swój los, nie wini nikogo, tylko stara się zmierzyć z życiem na własny rachunek, mając mimo wszystko świadomość istnienia innego, lepszego świata. Być może właśnie ta świadomość daje mu siłę i nadzieję, pozwala marzyć, wierzyć i być... Nie są to, na szczęście, marzenia o życiu dostatnim, tylko o życiu pełnym. Jest dzielny, nie skarży się, nie mazgai. Czuje, że prawdziwe, dorosłe życie już się dla niego zaczęło i zdany na samego siebie musi tę próbę wytrzymać. Jest samodzielny i niezależny. I jak się wydaje, tej niezależności stara się bronić. Znajduje swój 'dom' na opuszczonej, wielkiej, starej barce. Zaprzyjaźnia się z dziewczynką mieszkającą opodal w prawdziwym i dostatnim domu. Tak dla niego, jak i dla niej, to przypadkowe spotkanie przynosi ze sobą nie tylko pierwsze zauroczenie, czy może nawet zakochanie, ale i wielkie, wspaniałe odkrycie - na świecie niekoniecznie trzeba być samotnym. Jeśli ma się szczęście, można znaleźć tych, którzy czują jak my, mają podobne dylematy, tak samo postrzegają świat…  ... życiu dostatnim, tylko o życiu pełnym. Jest dzielny, nie skarży się, nie mazgai. Czuje, że prawdziwe, dorosłe życie już się dla niego zaczęło i zdany na samego siebie musi tę próbę wytrzymać. Jest samodzielny i niezależny. I jak się wydaje, tej niezależności stara się bronić. Znajduje swój 'dom' na opuszczonej, wielkiej, starej barce. Zaprzyjaźnia się z dziewczynką mieszkającą opodal w prawdziwym i dostatnim domu. Tak dla niego, jak i dla niej, to przypadkowe spotkanie przynosi ze sobą nie tylko pierwsze zauroczenie, czy może nawet zakochanie, ale i wielkie, wspaniałe odkrycie - na świecie niekoniecznie trzeba być samotnym. Jeśli ma się szczęście, można znaleźć tych, którzy czują jak my, mają podobne dylematy, tak samo postrzegają świat…
-    

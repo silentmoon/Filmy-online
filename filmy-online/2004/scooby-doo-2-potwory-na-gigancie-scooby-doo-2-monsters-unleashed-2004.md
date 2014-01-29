@@ -1,9 +1,5 @@
+Scooby-Doo 2: Potwory na gigancie / Scooby-Doo 2: Monsters Unleashed 2004 
+=============
+[![Scooby-Doo 2: Potwory na gigancie / Scooby-Doo 2: Monsters Unleashed 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-2-potwory-na-gigancie-scooby-doo-2-monsters-unleashed-2004)
 
-        Scooby-Doo 2: Potwory na gigancie / Scooby-Doo 2: Monsters Unleashed 2004 
-        =============
-        
-        [![Scooby-Doo 2: Potwory na gigancie / Scooby-Doo 2: Monsters Unleashed 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-2-potwory-na-gigancie-scooby-doo-2-monsters-unleashed-2004)
-        
-        
  Członkowie Mystery Inc. zostają uznani w swoim mieście za bohaterów. Zostali uhonorowani przez oficjalną ceremonię w miejskim muzeum kryminologii (Coolsonian Criminology Museum). Podczas gali ma miejsce wystawa kostiumów wszystkich zdemaskowanych przez nich złoczyńców. Niestety ktoś kto żywi do Scooby'ego i jego przyjaciół wielką nienawiścią próbuje planuje zmienić wszystko. Kostium ducha Pterodaktyla zamienia się w prawdziwego potwora i terroryzuje wszystkich gości. Następnie zjawia się Zły Człowiek w Masce i zrzuca całą odpowiedzialność na naszych bohaterów. Okazuję się, że to dopiero początek. Tajemniczy łotr za pomocą machiny przywołuje do istnienia dawnych wrogów Scooby'ego i przyjaciół. Mystery Inc. Chcąc odzyskać swoją reputację, dobre imię i uratować Coolsville, Scooby-Doo i jego przyjaciele muszą stawić czoła rozwścieczonym potworom i zdemaskować Złego Człowieka w Masce.  ... Następnie zjawia się Zły Człowiek w Masce i zrzuca całą odpowiedzialność na naszych bohaterów. Okazuję się, że to dopiero początek. Tajemniczy łotr za pomocą machiny przywołuje do istnienia dawnych wrogów Scooby'ego i przyjaciół. Mystery Inc. Chcąc odzyskać swoją reputację, dobre imię i uratować Coolsville, Scooby-Doo i jego przyjaciele muszą stawić czoła rozwścieczonym potworom i zdemaskować Złego Człowieka w Masce.
-    

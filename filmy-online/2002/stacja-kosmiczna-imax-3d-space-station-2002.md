@@ -1,9 +1,5 @@
+Stacja kosmiczna (IMAX 3D) / Space Station 2002 
+=============
+[![Stacja kosmiczna (IMAX 3D) / Space Station 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stacja-kosmiczna-imax-3d-space-station-2002)
 
-        Stacja kosmiczna (IMAX 3D) / Space Station 2002 
-        =============
-        
-        [![Stacja kosmiczna (IMAX 3D) / Space Station 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stacja-kosmiczna-imax-3d-space-station-2002)
-        
-        
  Stacja Kosmiczna 3D jest opowieścią o największej zdobyczy techniki od czasu pierwszej wyprawy człowieka na Księżyc - o budowie Międzynarodowej Stacji Kosmicznej (International Space Station). Światowa misja, zorganizowana przez przedstawicieli szesnastu państw, ma przeprowadzić szereg badań, których wyniki znacznie poszerzą dotychczasowe ludzkie rozumienie praw rządzących kosmosem. Film zabiera widzów 220 mil (około 354 tysięcy metrów) nad powierzchnię Ziemi, by prawie namacalnie doświadczyli życia w przestrzeni kosmicznej, a trójwymiarowy obraz IMAX, jak żadne inne medium, odzwierciedla ogrom i wielkie emocje towarzyszące realizacji tego niezwykłego objektu powstającego w przestrzeni kosmicznej.   ... namacalnie doświadczyli życia w przestrzeni kosmicznej, a trójwymiarowy obraz IMAX, jak żadne inne medium, odzwierciedla ogrom i wielkie emocje towarzyszące realizacji tego niezwykłego objektu powstającego w przestrzeni kosmicznej.
-    

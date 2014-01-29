@@ -1,9 +1,5 @@
+Karate po polsku 1982 
+=============
+[![Karate po polsku 1982 ](http://vidos.pl/images/player.gif)](http://vidos.pl/karate-po-polsku-1982)
 
-        Karate po polsku 1982 
-        =============
-        
-        [![Karate po polsku 1982 ](http://vidos.pl/images/player.gif)](http://vidos.pl/karate-po-polsku-1982)
-        
-        
  Do sennego mazurskiego miasteczka przyjeżdżają dwaj przyjaciele plastycy - Piotr i Michał. Niedługo potem pojawia się piękna żona Piotra, Dorota. Cała trójka, jej sposób bycia, wygląd, są swego rodzaju wyzwaniem dla miejscowej grupy chuliganów, którym przewodzi Roman. Jedną z głównych postaci dramatu, który wkrótce się rozegra, będzie także krewny Romana, były kapitan AK. Piotr jest świetnym karateką, który chętnie demnostruje swoje umiejętności. Roman już niejeden raz ze swoją grupą brał udział w bójkach. Gdy więc dojdzie do konfliktu miedzy miejscowymi a przybyszami, sytuacja stanie się bardzo dramatyczna. Sam reżyser o swoim filmie mówił: 'Jest on skierowany przeciwko brakowi tolerancji, przeciwko ludziom, którzy uważają, że przemoc to jedyne rozwiązanie, a po części też przeciwko tym wszystkim, którzy uprawiają karate, kendo i inne sporty walki. Przyswajają sobie siłę i wyrachowanie wynikające z filozofii wiążącej się z tymi sportami, nie przyswajając sobie jednocześnie jej zasad (...) Gdy znajdą się w sytuacji podobnej do przedstawionej w filmie, to w sposób najbrutalniejszy, najbardziej bezwzględny wykorzystają swoje umiejętności, zapominając o filozofii, o tym czemu sport walki powinien służyć'. .   ... swoją grupą brał udział w bójkach. Gdy więc dojdzie do konfliktu miedzy miejscowymi a przybyszami, sytuacja stanie się bardzo dramatyczna. Sam reżyser o swoim filmie mówił: 'Jest on skierowany przeciwko brakowi tolerancji, przeciwko ludziom, którzy uważają, że przemoc to jedyne rozwiązanie, a po części też przeciwko tym wszystkim, którzy uprawiają karate, kendo i inne sporty walki. Przyswajają sobie siłę i wyrachowanie wynikające z filozofii wiążącej się z tymi sportami, nie przyswajając sobie jednocześnie jej zasad (...) Gdy znajdą się w sytuacji podobnej do przedstawionej w filmie, to w sposób najbrutalniejszy, najbardziej bezwzględny wykorzystają swoje umiejętności, zapominając o filozofii, o tym czemu sport walki powinien służyć'. .
-    

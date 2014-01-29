@@ -1,9 +1,5 @@
+Lektor / The Reader 2008 
+=============
+[![Lektor / The Reader 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lektor-the-reader-2008)
 
-        Lektor / The Reader 2008 
-        =============
-        
-        [![Lektor / The Reader 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lektor-the-reader-2008)
-        
-        
  Oparty na bestsellerowej powieści o tym samym tytule „Lektor”, to hipnotyzująca historia pełnej tajemnic miłości, której akcja toczy się w targanych wojną i powojennych Niemczech. Hanna (Kate Winslet) udziela pomocy Michaelowi Bergowi (David Kross), który zasłabł na ulicy, wracając ze szkoły. W ten sposób krzyżują się losy młodego wrażliwego ucznia i pięknej, choć starszej od niego kobiety, którą jest zafascynowany od pierwszej chwili. To przypadkowe spotkanie staje się początkiem namiętnego romansu, zakończonego nagłym i tajemniczym zniknięciem kobiety. Mija osiem lat. Michael jest studentem prawa i śledzi procesy nazistowskich zbrodniarzy. W tych właśnie, jakże odmiennych, okolicznościach spotyka ponownie swoją dawną kochankę. Hanna oskarżona jest o popełnienie odrażających zbrodni...   ... początkiem namiętnego romansu, zakończonego nagłym i tajemniczym zniknięciem kobiety. Mija osiem lat. Michael jest studentem prawa i śledzi procesy nazistowskich zbrodniarzy. W tych właśnie, jakże odmiennych, okolicznościach spotyka ponownie swoją dawną kochankę. Hanna oskarżona jest o popełnienie odrażających zbrodni...
-    

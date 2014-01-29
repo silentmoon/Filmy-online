@@ -1,9 +1,5 @@
+U niej w domu / Dans la maison 2012 
+=============
+[![U niej w domu / Dans la maison 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/u-niej-w-domu-dans-la-maison-2012)
 
-        U niej w domu / Dans la maison 2012 
-        =============
-        
-        [![U niej w domu / Dans la maison 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/u-niej-w-domu-dans-la-maison-2012)
-        
-        
  Życie Germaina (Fabrice Luchini), znudzonego pracą nauczyciela i niespełnionego pisarza, zmieni się, gdy pozna 16-letniego Claude'a. Chłopak postanawia wkroczyć w intymne życie rodziny szkolnego rówieśnika i opisywać wszystko co uda mu się podejrzeć w cudzym domu. Relacja nauczyciela i ucznia przeistacza się w nietypową przyjaźń. Germain nie może doczekać się kolejnych tekstów. Mężczyzna pokazuje skandaliczne opowieści Claude'a żonie i wspólnie ulegają fascynacji niezwykłym talentem chłopaka. Kolejne dni spędzone przez 16-latka z obcą rodziną prowadzą do coraz większej bliskości z atrakcyjną matką szkolnego kolegi (Emmanuelle Seigner). Podglądanie, które zaczyna ulegać wzbierającemu pożądaniu do dojrzałej kobiety wymyka się spod kontroli. Spisywana na papierze fikcja zaczyna niebezpiecznie mieszać się z rzeczywistością.  ... talentem chłopaka. Kolejne dni spędzone przez 16-latka z obcą rodziną prowadzą do coraz większej bliskości z atrakcyjną matką szkolnego kolegi (Emmanuelle Seigner). Podglądanie, które zaczyna ulegać wzbierającemu pożądaniu do dojrzałej kobiety wymyka się spod kontroli. Spisywana na papierze fikcja zaczyna niebezpiecznie mieszać się z rzeczywistością.
-    

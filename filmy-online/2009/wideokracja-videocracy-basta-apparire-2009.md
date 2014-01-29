@@ -1,9 +1,5 @@
+Wideokracja / Videocracy - Basta apparire 2009 
+=============
+[![Wideokracja / Videocracy - Basta apparire 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wideokracja-videocracy-basta-apparire-2009)
 
-        Wideokracja / Videocracy - Basta apparire 2009 
-        =============
-        
-        [![Wideokracja / Videocracy - Basta apparire 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wideokracja-videocracy-basta-apparire-2009)
-        
-        
  Zaczęło się skromnie – w 1976 roku jedna z lokalnych stacji pokazała późnym wieczorem teleturniej, w którym po każdej poprawnej odpowiedzi obecna w studio gospodyni domowa zdejmowała kolejną część swojej garderoby. Następnego dnia do stacji telewizyjnej wpłynęły skargi od miejscowych przedsiębiorców, bo większość oglądających program mężczyzn,  nazajutrz spóźniła się do pracy. Wydarzenie to pokazało przyszłość telewizji. Jej głównym przekazem stała się zabawa. A najlepszą zabawę włoskiej widowni telewizyjnej zapewniają tłumy roznegliżowanych kobiet. Najważniejsze to być zauważonym: sława i pieniądze pojawią się wkrótce automatycznie. Marzeniem włoskich dziewczyn jest zostanie „veliną” – piękną ozdobą telewizyjnych programów, której jedyne zadanie to: ładnie wyglądać. Na telewizyjne ekrany chce się także dostać robotnik Ricky Canevali. Zrobi wszystko, by zdobyć popularność. I uważa, że ma potrzebne do tego atuty – śpiewa i tańczy jak Ricky Martin, a w sztukach walki jest równie sprawny jak Jean-Claude Van Damme. O tym, kto dostanie się na wizję, decydują ludzie tacy jak Lele Mora. Lele tworzy celebrytów, na których zarabia cały przemysł. Również Fabrizio Corona, szef zespołu paparazzich, który wykorzystuje do szantażu zarejestrowane przez swoich ludzi materiały.   ... zabawę włoskiej widowni telewizyjnej zapewniają tłumy roznegliżowanych kobiet. Najważniejsze to być zauważonym: sława i pieniądze pojawią się wkrótce automatycznie. Marzeniem włoskich dziewczyn jest zostanie „veliną” – piękną ozdobą telewizyjnych programów, której jedyne zadanie to: ładnie wyglądać. Na telewizyjne ekrany chce się także dostać robotnik Ricky Canevali. Zrobi wszystko, by zdobyć popularność. I uważa, że ma potrzebne do tego atuty – śpiewa i tańczy jak Ricky Martin, a w sztukach walki jest równie sprawny jak Jean-Claude Van Damme. O tym, kto dostanie się na wizję, decydują ludzie tacy jak Lele Mora. Lele tworzy celebrytów, na których zarabia cały przemysł. Również Fabrizio Corona, szef zespołu paparazzich, który wykorzystuje do szantażu zarejestrowane przez swoich ludzi materiały.
-    

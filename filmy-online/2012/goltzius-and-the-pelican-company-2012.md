@@ -1,9 +1,5 @@
+Goltzius and the Pelican Company 2012 
+=============
+[![Goltzius and the Pelican Company 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/goltzius-and-the-pelican-company-2012)
 
-        Goltzius and the Pelican Company 2012 
-        =============
-        
-        [![Goltzius and the Pelican Company 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/goltzius-and-the-pelican-company-2012)
-        
-        
  Druga część trylogii 'Holenderscy mistrzowie', rozpoczętej portretem Rembrandta, którą ma zakończyć biografia Hieronima Boscha. XVI-wieczny malarz, rysownik i ilustrator, Hendrik Goltzius (Ramsey Nasr), usiłuje przekonać margrabię Alzacji (F. Murray Abraham) do sfinansowania drukarni, dzięki której mógłby wydać erotyczną, obrazkową wersję Starego Testamentu. Tworzy naturalistyczne inscenizacje, które ilustrują pełne erotyki biblijne przypowieści: od Adama i Ewy i narodzin seksu analnego przez perwersje seksualne, kazirodztwo po homoseksualizm. Wraz z kolejnymi występami otwarty i szczycący się wolnością słowa dwór margrabiego staje się coraz mniej tolerancyjny, szczególnie gdy okazuje się, że władcę olśniła uroda jednej z zamężnych aktorek. Wolności słowa jest coraz mniej, a dyskusje nad znaczeniem poszczególnych spektakli stają się coraz gorętsze, z wolnej wymiany myśli przekształcają się w proces inkwizycyjny. Skomplikowanym relacjom między aktorami, dworzanami i władcą towarzyszą wątki edukacyjne - poznajemy słynne obrazy na tematy biblijne i ich interpretację. To biografia daleka od politycznej poprawności.  ... narodzin seksu analnego przez perwersje seksualne, kazirodztwo po homoseksualizm. Wraz z kolejnymi występami otwarty i szczycący się wolnością słowa dwór margrabiego staje się coraz mniej tolerancyjny, szczególnie gdy okazuje się, że władcę olśniła uroda jednej z zamężnych aktorek. Wolności słowa jest coraz mniej, a dyskusje nad znaczeniem poszczególnych spektakli stają się coraz gorętsze, z wolnej wymiany myśli przekształcają się w proces inkwizycyjny. Skomplikowanym relacjom między aktorami, dworzanami i władcą towarzyszą wątki edukacyjne - poznajemy słynne obrazy na tematy biblijne i ich interpretację. To biografia daleka od politycznej poprawności.
-    

@@ -1,9 +1,5 @@
+Zabawy z bronią / Bowling for Columbine 2002 
+=============
+[![Zabawy z bronią / Bowling for Columbine 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabawy-z-bronia-bowling-for-columbine-2002)
 
-        Zabawy z bronią / Bowling for Columbine 2002 
-        =============
-        
-        [![Zabawy z bronią / Bowling for Columbine 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabawy-z-bronia-bowling-for-columbine-2002)
-        
-        
  Ogromną wartość filmu docenili nie tylko krytycy. Jest to pierwszy na świecie film dokumentalny, który odniósł również ogromny sukces komercyjny - wszędzie, gdzie był pokazywany. Tylko w Stanach Zjednoczonych 'Zabawy z bronią' obejrzało 3,5 miliona widzów. Podobnie w Europie Zachodniej film cieszył się niezwykłą popularnością - w Niemczech i we Francji obejrzało go ponad dwa miliony widzów. W 1999 w trakcie strzelaniny w Columbine High School w USA zginęło 15 osób. Czy musiało dojść do tragedii? Skąd fascynacja bronią, której ofiarami są sami Amerykanie? Czy odpowiedź o przyczyny nasilania się przemocy leży w łatwym dostępie do broni? Czy winni są politycy? Czy za ich działaniami stoi lobby związane z przemysłem zbrojeniowym? Michael Moore: 'Równie dobrze mogłem zrobić ten film dziesięć lat temu - nie jest to przecież film o Columbine, ani nawet o broni. Ameryka się nie zmieniła. Chodzi o naszą kulturę strachu i o to, jak ten strach popycha nas do przemocy, zarówno w kraju, jak i za granicą.' [opis dystrybutora]  ... musiało dojść do tragedii? Skąd fascynacja bronią, której ofiarami są sami Amerykanie? Czy odpowiedź o przyczyny nasilania się przemocy leży w łatwym dostępie do broni? Czy winni są politycy? Czy za ich działaniami stoi lobby związane z przemysłem zbrojeniowym? Michael Moore: 'Równie dobrze mogłem zrobić ten film dziesięć lat temu - nie jest to przecież film o Columbine, ani nawet o broni. Ameryka się nie zmieniła. Chodzi o naszą kulturę strachu i o to, jak ten strach popycha nas do przemocy, zarówno w kraju, jak i za granicą.' [opis dystrybutora]
-    

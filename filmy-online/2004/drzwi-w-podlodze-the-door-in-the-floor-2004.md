@@ -1,9 +1,5 @@
+Drzwi w podłodze / The Door in the Floor 2004 
+=============
+[![Drzwi w podłodze / The Door in the Floor 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/drzwi-w-podlodze-the-door-in-the-floor-2004)
 
-        Drzwi w podłodze / The Door in the Floor 2004 
-        =============
-        
-        [![Drzwi w podłodze / The Door in the Floor 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/drzwi-w-podlodze-the-door-in-the-floor-2004)
-        
-        
  'Drzwi w podłodze' to na przemian tragiczna i komiczna opowieść o poznawaniu złożoności miłości w jej najjaśniejszych jak i najciemniejszych obliczach. Na podstawie bestsellerowej powieści Johna Irvinga pt. 'Jednoroczna wdowa' powstał film będący spojrzeniem na społeczność East Hampton w Nowym Jorku. To kronika jednego, bardzo ważnego lata w życiu znanego autora książek dla dzieci - Teda Cole (Jeff Bridges) i jego pięknej żony Marion (Kim Basinger). Kiedyś byli oni wspaniałym małżeństwem, które teraz żyje w cieniu tragedii. Jej melancholia oraz jego niewierność stają na przeszkodzie polepszenia ich wzajemnych relacji. Eddie O'Hare - młody mężczyzna, którego Ted zatrudnia na lato na stanowisku swojego asystenta, staje się bezwiednie pionkiem w grze małżonków, ale też i swego rodzaju katalizatorem zmian, jakie muszą oni wprowadzić do swojego życia.   ... małżeństwem, które teraz żyje w cieniu tragedii. Jej melancholia oraz jego niewierność stają na przeszkodzie polepszenia ich wzajemnych relacji. Eddie O'Hare - młody mężczyzna, którego Ted zatrudnia na lato na stanowisku swojego asystenta, staje się bezwiednie pionkiem w grze małżonków, ale też i swego rodzaju katalizatorem zmian, jakie muszą oni wprowadzić do swojego życia.
-    

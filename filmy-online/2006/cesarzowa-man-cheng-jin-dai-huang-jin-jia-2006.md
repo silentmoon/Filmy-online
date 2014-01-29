@@ -1,9 +1,5 @@
+Cesarzowa / Man cheng jin dai huang jin jia 2006 
+=============
+[![Cesarzowa / Man cheng jin dai huang jin jia 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cesarzowa-man-cheng-jin-dai-huang-jin-jia-2006)
 
-        Cesarzowa / Man cheng jin dai huang jin jia 2006 
-        =============
-        
-        [![Cesarzowa / Man cheng jin dai huang jin jia 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cesarzowa-man-cheng-jin-dai-huang-jin-jia-2006)
-        
-        
  Akcja toczy się w X wieku naszej ery. Główną areną wydarzeń jest pałac cesarza Chin, Pinga (Yun-Fat Chow), gdzie - obok politycznych rozgrywek - równie wielkie znaczenie dla przyszłości kraju mają męsko-damskie intrygi, jakie toczą się w największej tajemnicy. Ping bowiem nie zdaje sobie sprawy, że jego druga żona, cesarzowa Phoenix (Li Gong) ma romans z jego synem z pierwszego małżeństwa - następcą tronu - księciem Wanem (Ye Liu). Ujawnienie ich związku mogłoby spowodować upadek imperatora. W tym czasie, niczego nie podejrzewający Ping musi nieustannie tropić spiskowców, mogących zagrozić jego pozycji. Wszystko rozstrzygnie się podczas nadchodzącego Święta Kwiatów...   ... upadek imperatora. W tym czasie, niczego nie podejrzewający Ping musi nieustannie tropić spiskowców, mogących zagrozić jego pozycji. Wszystko rozstrzygnie się podczas nadchodzącego Święta Kwiatów...
-    

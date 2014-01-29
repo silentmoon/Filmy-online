@@ -1,9 +1,5 @@
+Obcy przybywają do Kolorado / High Plains Invaders 2009 
+=============
+[![Obcy przybywają do Kolorado / High Plains Invaders 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/obcy-przybywaja-do-kolorado-high-plains-invaders-2009)
 
-        Obcy przybywają do Kolorado / High Plains Invaders 2009 
-        =============
-        
-        [![Obcy przybywają do Kolorado / High Plains Invaders 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/obcy-przybywaja-do-kolorado-high-plains-invaders-2009)
-        
-        
  W miasteczku Avaranth, w Kolorado, w 1892 roku odbywała się egzekucja Sama Danville’a (James Marsters)- weterana wojen z Indianami i przestępcy, który został skazany za okradanie pociągów i zabójstwo. Przerwała ją wizyta obcego; przybysza z innej planety, który wyglądał jak gigantyczny robak. Samowi i Rose Hilridge (Sanny Van Heteren) - kobieta rewolwerowiec, udało się go unicestwić przy pomocy dynamitu, lecz zjawiły się kolejne stwory. Te ogromne, niebezpieczne i inteligentne robaki żywiły się uranem, który był im potrzebny jako paliwo do ich statku kosmicznego i zabijały każdego, kto ośmielił się stanąć im na drodze. Miasteczko Avaranth było celem inwazji obcych z powodu złóż uranu, które się tam znajdowały. Między innymi: Rose, Jules Arning (Sebastian Knapp), który gromadził uran,  Abigail (Cindy Sampson) - była dziewczyna Sama i właściciel sklepu - Silich (Angus MacInnes) stworzyli drużynę, która przy pomocy paru lasek dynamitu i kilku rewolwerów miała pokonać armię obcych. Przywódcą tej grupy został Sam.  ... inteligentne robaki żywiły się uranem, który był im potrzebny jako paliwo do ich statku kosmicznego i zabijały każdego, kto ośmielił się stanąć im na drodze. Miasteczko Avaranth było celem inwazji obcych z powodu złóż uranu, które się tam znajdowały. Między innymi: Rose, Jules Arning (Sebastian Knapp), który gromadził uran,  Abigail (Cindy Sampson) - była dziewczyna Sama i właściciel sklepu - Silich (Angus MacInnes) stworzyli drużynę, która przy pomocy paru lasek dynamitu i kilku rewolwerów miała pokonać armię obcych. Przywódcą tej grupy został Sam.
-    

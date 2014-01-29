@@ -1,9 +1,5 @@
+To tylko seks / Friends with Benefits 2011 
+=============
+[![To tylko seks / Friends with Benefits 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/to-tylko-seks-friends-with-benefits-2011)
 
-        To tylko seks / Friends with Benefits 2011 
-        =============
-        
-        [![To tylko seks / Friends with Benefits 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/to-tylko-seks-friends-with-benefits-2011)
-        
-        
  Dylan (Justin Timberlake) i Jamie (Mila Kunis) z pewnością nie mają zamiaru się ustatkować. Jeszcze nie. Kiedy zajmująca się rekrutacją dla nowojorskiej firmy Jamie próbuje swoich umiejętności usiłując zwerbować dyrektora artystycznego z Los Angeles, Dylana, oboje szybko odkrywają, że są bratnimi duszami. Mając za sobą wiele nieudanych związków, gotowi są zrezygnować z miłości i skupić się na przyjemnościach. Kiedy więc Dylan przenosi się do Nowego Jorku, para zaczyna regularnie się spotykać, żartując z miłości, która jest wg nich mitem rozpowszechnianym przez hollywoodzkie filmy. I właśnie wtedy rozpoczynają przepysznie seksowny eksperyment,  zdecydowanie przeznaczony tylko dla dorosłych. Jako ludzie nie biorący na serio obietnic oferowanych przez komedie romantyczne, Dylan i Jamie nie powinni być zaskoczeni tym, że ich odważne posunięcie stanie się nieprzyzwoitą, pełną seksu wyprawą na niezbadane tereny, która odkryje  niż mogli się spodziewać.  ... regularnie się spotykać, żartując z miłości, która jest wg nich mitem rozpowszechnianym przez hollywoodzkie filmy. I właśnie wtedy rozpoczynają przepysznie seksowny eksperyment,  zdecydowanie przeznaczony tylko dla dorosłych. Jako ludzie nie biorący na serio obietnic oferowanych przez komedie romantyczne, Dylan i Jamie nie powinni być zaskoczeni tym, że ich odważne posunięcie stanie się nieprzyzwoitą, pełną seksu wyprawą na niezbadane tereny, która odkryje więcej niż mogli się spodziewać.
-    

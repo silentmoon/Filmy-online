@@ -1,9 +1,5 @@
+Krzyk 2 / Scream 2 1997 
+=============
+[![Krzyk 2 / Scream 2 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krzyk-2-scream-2-1997)
 
-        Krzyk 2 / Scream 2 1997 
-        =============
-        
-        [![Krzyk 2 / Scream 2 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krzyk-2-scream-2-1997)
-        
-        
  Podczas kinowej premiery filmu 'Cios' zamaskowany osobnik morduje parę nastolatków. O całej sprawie dowiaduje się mieszkająca w colleage'u Sidney Prescott, która przeżyła 2 lata temu atak dwóch psychopatów i boi się, że koszmar powóci. Żyje szczęśliwie z przyjaciółką Hallie, chłopakiem Derekiem, nieco szurniętym przyjacielem Mickey'em oraz kolegą Randy'm. Do jej colleage'u przybywają reporterka Gale Wheaters oraz porucznik Dewey - oni tak jak Sidney przeżyli atak morderców. Odkrywają, że zabójca wzoruje się na morderców z Woodsbooro. Sidney wie, że niedługo ponownie będzie musiała stawić czoło koszmarowi po tym, jak została zaatakowana przez tajemniczego osobnika.  ... Odkrywają, że zabójca wzoruje się na morderców z Woodsbooro. Sidney wie, że niedługo ponownie będzie musiała stawić czoło koszmarowi po tym, jak została zaatakowana przez tajemniczego osobnika.
-    

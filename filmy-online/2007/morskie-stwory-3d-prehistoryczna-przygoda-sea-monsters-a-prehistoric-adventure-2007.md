@@ -1,9 +1,5 @@
+Morskie Stwory 3D: Prehistoryczna przygoda / Sea Monsters: A Prehistoric Adventure 2007 
+=============
+[![Morskie Stwory 3D: Prehistoryczna przygoda / Sea Monsters: A Prehistoric Adventure 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/morskie-stwory-3d-prehistoryczna-przygoda-sea-monsters-a-prehistoric-adventure-2007)
 
-        Morskie Stwory 3D: Prehistoryczna przygoda / Sea Monsters: A Prehistoric Adventure 2007 
-        =============
-        
-        [![Morskie Stwory 3D: Prehistoryczna przygoda / Sea Monsters: A Prehistoric Adventure 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/morskie-stwory-3d-prehistoryczna-przygoda-sea-monsters-a-prehistoric-adventure-2007)
-        
-        
  Wielkoekranowy film Morskie Stwory: Prehistoryczna przygoda produkcji National Geographic przywraca do życia (w technice 2D jak i 3D) niezwykłe gady morskie, które żyły podczas ery dinozaurów. Osiemdziesiąt milionów lat temu, obszar środkowo-zachodniej części Ameryki pokryty był ogromnym morzem śródlądowym, gdzie wśród morskich fal rządziły kolosalne stworzenia. Te zdumiewające bestie rzucają wyzwanie naszej wyobraźni – począwszy od Styxosaurusa o żyrafiej szyi oraz morskich ptaków z uzębionymi dziobami, a skończywszy na T-Rexie oceanów - super drapieżcy o nazwie Tylosaurus o cielsku osiągającemu do ok. 12 metrów długości. W tej niezwykłej podróży National Geographic pozwala widzom zagłębić się w jeszcze niezbadany świat „tych drugich dinozaurów”, dostarczając nowych, fascynujących faktów naukowych oraz przeniesioną na duży ekran wizję historii największych stworzeń żyjących kiedyś w oceanach.  ... ptaków z uzębionymi dziobami, a skończywszy na T-Rexie oceanów - super drapieżcy o nazwie Tylosaurus o cielsku osiągającemu do ok. 12 metrów długości. W tej niezwykłej podróży National Geographic pozwala widzom zagłębić się w jeszcze niezbadany świat „tych drugich dinozaurów”, dostarczając nowych, fascynujących faktów naukowych oraz przeniesioną na duży ekran wizję historii największych stworzeń żyjących kiedyś w oceanach.
-    

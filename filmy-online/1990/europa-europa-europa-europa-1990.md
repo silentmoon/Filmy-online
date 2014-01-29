@@ -1,9 +1,5 @@
+Europa, Europa / Europa Europa 1990 
+=============
+[![Europa, Europa / Europa Europa 1990 ](http://vidos.pl/images/player.gif)](http://vidos.pl/europa-europa-europa-europa-1990)
 
-        Europa, Europa / Europa Europa 1990 
-        =============
-        
-        [![Europa, Europa / Europa Europa 1990 ](http://vidos.pl/images/player.gif)](http://vidos.pl/europa-europa-europa-europa-1990)
-        
-        
  Perel urodził się w żydowskiej rodzinie w Saksonii. Wkrótce, uciekając wraz z rodzicami przed faszystowskimi prześladowaniami, wyemigrował wraz z rodzicami i rodzeństwem do Polski. Po jej zajęciu przez hitlerowców rodzice wysłali go wraz z bratem dalej na Wschód. W Grodnie Sally wylądował w sierocińcu. Tu dostał się pod wpływ komunistycznej indoktrynacji. Wstąpił do Komsomołu. Niebawem jednak w jego biografii dokonał się gwałtowny zwrot. Wpadł w ręce Niemców, którzy nie wiadomo jakim cudem uznali go za typ czystego...aryjczyka. Sally, chcąc przetrwać, robi wszystko, żeby ukryć prawdę i przeżyć. Mimowolnie zostaje niemieckim bohaterem wojennym, gorliwym wyznawcą nazistowskich haseł. Usynowiony przez oficera junkra, zostaje wysłany w nagrodę do elitarnej szkoły Hitlerjugend...  ... wiadomo jakim cudem uznali go za typ czystego...aryjczyka. Sally, chcąc przetrwać, robi wszystko, żeby ukryć prawdę i przeżyć. Mimowolnie zostaje niemieckim bohaterem wojennym, gorliwym wyznawcą nazistowskich haseł. Usynowiony przez oficera junkra, zostaje wysłany w nagrodę do elitarnej szkoły Hitlerjugend...
-    

@@ -1,9 +1,5 @@
+Żyła sobie baba / Zhila-byla odna baba 2011 
+=============
+[![Żyła sobie baba / Zhila-byla odna baba 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/yla-sobie-baba-zhila-byla-odna-baba-2011)
 
-        Żyła sobie baba / Zhila-byla odna baba 2011 
-        =============
-        
-        [![Żyła sobie baba / Zhila-byla odna baba 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/yla-sobie-baba-zhila-byla-odna-baba-2011)
-        
-        
  'Żyła sobie baba' to epicki film o historii Rosji. Spotykamy się w nim z niespotykaną bezwzględnością i bestialstwem rewolucjonistów używających sobie na 'babie'. Gwałt nie zna granic, nie ma granic cierpienie. Ubrany w tajemnicę film ukazuje klatka po klatce pasmo krwawych przeżyć. Zło w filmie nie ma końca, skacze bohaterom do gardła nie pozostawiając żadnych złudzeń. Lata 1909–1921 - rosyjska wioska przeżywa ciężkie chwile: wojnę światową, rewolucję, wojnę ojczyźnianą. Film opowiada historię 'Baby', zupełnie przeciętnej, wiejskiej dziewczyny. Przez pryzmat jej życia i miłości zostają ukazane losy państwa i krwawe karty historii. Poprzez Babę i jej zmagania poznajemy również skomplikowane relacje międzyludzkie panujące w wiosce, niepisane reguły, które definiują tę społeczność. Naczelną zasadą nie jest przyzwoitość, lecz ślepe posłuszeństwo tradycji i nie wybieganie przed szereg. A Baba łamie regułę za regułą. Nie jest to wynikiem jej złej woli, raczej tej nieporadności czy naiwności.   ... ojczyźnianą. Film opowiada historię 'Baby', zupełnie przeciętnej, wiejskiej dziewczyny. Przez pryzmat jej życia i miłości zostają ukazane losy państwa i krwawe karty historii. Poprzez Babę i jej zmagania poznajemy również skomplikowane relacje międzyludzkie panujące w wiosce, niepisane reguły, które definiują tę społeczność. Naczelną zasadą nie jest przyzwoitość, lecz ślepe posłuszeństwo tradycji i nie wybieganie przed szereg. A Baba łamie regułę za regułą. Nie jest to wynikiem jej złej woli, raczej tej nieporadności czy naiwności.
-    

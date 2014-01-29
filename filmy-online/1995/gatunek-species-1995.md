@@ -1,9 +1,5 @@
+Gatunek / Species 1995 
+=============
+[![Gatunek / Species 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gatunek-species-1995)
 
-        Gatunek / Species 1995 
-        =============
-        
-        [![Gatunek / Species 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gatunek-species-1995)
-        
-        
  W przestrzeń kosmiczną zostaje wysłana informacja zawierającą charakterystykę wyglądu Ziemian i zapis ich kodu genetycznego. Po pewnym czasie przychodzi odpowiedź - kosmici przysyłają opis obcego łańcucha DNA wraz z sugestią, by połączono go z ludzką komórką. W tajnym ośrodku naukowym, na pustyni w stanie Utah wybitny genetyk - Xavier Fitch decyduje się na ryzykowny eksperyment. Po połączeniu trzech komórek z pozaziemską materią udaje mu się stworzyć nowy organizm. Wkrótce na świat przychodzi zdrowe dziecko. Dziewczynka otrzymuje imię Sil i mieszka w szklanej klatce. Przez cały czas jest obserwowana i początkowo nic nie wskazuje na jakiekolwiek anomalie. Jedynie na zdjęciach zarejestrowanych kamerą video można dostrzec niezwykłe zjawisko. W czasie snu z jej ciała wyrastają dziwne ostrza. Pewnego dnia dorosła już Sil uświadamia sobie, że ma zostać zlikwidowana. Wówczas ucieka z niewoli i dzięki niezwykłej wytrzymałości fizycznej pokonuje pustynię, docierając do Los Angeles. Kosmitka jest gotowa na wszystko, byle tylko zapewnić ciągłość swojego gatunku...   ... świat przychodzi zdrowe dziecko. Dziewczynka otrzymuje imię Sil i mieszka w szklanej klatce. Przez cały czas jest obserwowana i początkowo nic nie wskazuje na jakiekolwiek anomalie. Jedynie na zdjęciach zarejestrowanych kamerą video można dostrzec niezwykłe zjawisko. W czasie snu z jej ciała wyrastają dziwne ostrza. Pewnego dnia dorosła już Sil uświadamia sobie, że ma zostać zlikwidowana. Wówczas ucieka z niewoli i dzięki niezwykłej wytrzymałości fizycznej pokonuje pustynię, docierając do Los Angeles. Kosmitka jest gotowa na wszystko, byle tylko zapewnić ciągłość swojego gatunku...
-    

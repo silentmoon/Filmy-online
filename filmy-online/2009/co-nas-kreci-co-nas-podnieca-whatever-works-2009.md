@@ -1,9 +1,5 @@
+Co nas kręci, co nas podnieca / Whatever Works 2009 
+=============
+[![Co nas kręci, co nas podnieca / Whatever Works 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/co-nas-kreci-co-nas-podnieca-whatever-works-2009)
 
-        Co nas kręci, co nas podnieca / Whatever Works 2009 
-        =============
-        
-        [![Co nas kręci, co nas podnieca / Whatever Works 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/co-nas-kreci-co-nas-podnieca-whatever-works-2009)
-        
-        
  Po sukcesach ostatnich filmów, których akcja osadzona była w Europie, Woody Allen nieoczekiwanie z obrazem „Co nas kręci, co nas podnieca” powraca na ukochany Manhattan. W Cannes nowa produkcja Allena została przyjęta entuzjastycznie – publiczność nagrodziła film owacją na stojąco, w Polsce film uzyskał drugi najlepszy wynik frekwencji w historii filmów reżysera. Fabuła jak zawsze porusza tematykę relacji uczuciowych, które dla Allena są niewyczerpanym źródłemm komediowych inspiracji. Boris (Larry David), mężczyzna w sile wieku, radykalnie zmienia styl życia pod wpływem uczucia do zaledwie 20 -letniej Melodie (Evan Rachel Wood), co nie pozostaje bez wpływu na jego najbliższe otoczenie i staje się powodem wielu zabawnych perypetii.   ... m komediowych inspiracji. Boris (Larry David), mężczyzna w sile wieku, radykalnie zmienia styl życia pod wpływem uczucia do zaledwie 20 -letniej Melodie (Evan Rachel Wood), co nie pozostaje bez wpływu na jego najbliższe otoczenie i staje się powodem wielu zabawnych perypetii.
-    

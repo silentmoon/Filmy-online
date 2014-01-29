@@ -1,9 +1,5 @@
+Osaczony / Hostage 2005 
+=============
+[![Osaczony / Hostage 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/osaczony-hostage-2005)
 
-        Osaczony / Hostage 2005 
-        =============
-        
-        [![Osaczony / Hostage 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/osaczony-hostage-2005)
-        
-        
  Po przeżyciu osobistej tragedii, policyjny negocjator Jeff Talley (Bruce Willis) rezygnuje z pracy w Los Angeles i przyjmuje posadę szefa policji w sennym miasteczku Bristo Camino w hrabstwie Ventura. Jednak w pewien poniedziałkowy poranek jego spokojna egzystencja zostaje nagle zakłócona i wszystko wskazuje na to, że życie Talleya - tak zawodowe, jak i osobiste - zmieni się bezpowrotnie. Trójka nastolatków włamuje się na teren prywatnej posesji, skąd zamierza ukraść samochód. Na miejscu czeka ich jednak nieprzyjemna niespodzianka. Warta wiele milionów dolarów posiadłość okazuje się prawdziwą twierdzą. Gdy złodzieje orientują się, że nie mają żadnych szans na ucieczkę, wpadają w panikę i biorą zakładników, stawiając Talleya w sytuacji, której tak bardzo pragnął uniknąć. Policjant zmuszony jest ponownie odegrać rolę negocjatora, aby ocalić uwięzioną rodzinę. Ale to, z czym ma do czynienia, jest o wiele groźniejsze, niż przypuszczał...   ... samochód. Na miejscu czeka ich jednak nieprzyjemna niespodzianka. Warta wiele milionów dolarów posiadłość okazuje się prawdziwą twierdzą. Gdy złodzieje orientują się, że nie mają żadnych szans na ucieczkę, wpadają w panikę i biorą zakładników, stawiając Talleya w sytuacji, której tak bardzo pragnął uniknąć. Policjant zmuszony jest ponownie odegrać rolę negocjatora, aby ocalić uwięzioną rodzinę. Ale to, z czym ma do czynienia, jest o wiele groźniejsze, niż przypuszczał...
-    

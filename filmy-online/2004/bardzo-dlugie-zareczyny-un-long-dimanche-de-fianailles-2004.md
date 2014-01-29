@@ -1,9 +1,5 @@
+Bardzo długie zaręczyny / Un Long dimanche de fiançailles 2004 
+=============
+[![Bardzo długie zaręczyny / Un Long dimanche de fiançailles 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bardzo-dlugie-zareczyny-un-long-dimanche-de-fianailles-2004)
 
-        Bardzo długie zaręczyny / Un Long dimanche de fiançailles 2004 
-        =============
-        
-        [![Bardzo długie zaręczyny / Un Long dimanche de fiançailles 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bardzo-dlugie-zareczyny-un-long-dimanche-de-fianailles-2004)
-        
-        
  Książka 'A Very Long Engagement' została wydana po raz pierwszy w 1993 r. Opowieść rozpoczyna się w roku 1917 na froncie I Wojny Światowej. Pięciu francuskich żołnierzy, z rękoma związanymi za plecami zostaje pozostawionych na pewną śmierć na 'ziemi niczyjej', lini przebiegającej pomiędzy francusko-niemieckim frontem. Męźczyźni zostali skazani na smierć po tym, jak na jaw wyszło, iż planowali dezercję. Kilka dni później w okopie zostaje znalezionych pięć martwych ciał. Dwa lata później Mathilde Donnay otrzymuje tajemniczy list od umierającego mężczyzny, z którego wynika, że jej zabity rzekomo na froncie narzeczony żyje. Kobieta spotyka się z nadawcą listu - sierżantem Danielem Esperanza i od niego dowiaduje się o losie jaki rzekomo spotkał jej ukochanego (był on jednym z pięciu mężczyzn, którzy chcieli zdezerterować). Sierżant zaklina się jednak, że widział niedawno uznanego za martwego narzeczonego Mathildy. Kobieta rozpoczyna prywatne śledztwo, którego wyniki przekroczą jej najśmielsze oczekiwania...  ... lata później Mathilde Donnay otrzymuje tajemniczy list od umierającego mężczyzny, z którego wynika, że jej zabity rzekomo na froncie narzeczony żyje. Kobieta spotyka się z nadawcą listu - sierżantem Danielem Esperanza i od niego dowiaduje się o losie jaki rzekomo spotkał jej ukochanego (był on jednym z pięciu mężczyzn, którzy chcieli zdezerterować). Sierżant zaklina się jednak, że widział niedawno uznanego za martwego narzeczonego Mathildy. Kobieta rozpoczyna prywatne śledztwo, którego wyniki przekroczą jej najśmielsze oczekiwania...
-    

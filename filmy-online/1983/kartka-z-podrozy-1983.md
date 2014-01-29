@@ -1,9 +1,5 @@
+Kartka z podróży 1983 
+=============
+[![Kartka z podróży 1983 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kartka-z-podrozy-1983)
 
-        Kartka z podróży 1983 
-        =============
-        
-        [![Kartka z podróży 1983 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kartka-z-podrozy-1983)
-        
-        
  Akcja filmu toczy się w pierwszych latach II wojny światowej, za murami getta. Życie płynie tu w miarę spokojnie, hitlerowcy nie przystąpili jeszcze do 'ostatecznego rozwiązania kwestii żydowskiej'. Daje się wszakże wyczuć rosnący niepokój i lęk przed jutrem. Nie zamyka się przecież ludzi w gettach bez przyczyny. Przeczuwający zagładę Żydzi wybierają różne sposoby spędzenia ostatnich tygodni przed śmiercią. Jedni nie przyjmują do wiadomości okrutnych wyroków losu; drudzy liczą na cud; trzeci 'nadrabiają' stracone lata, szukając zapomnienia w hulankach; jeszcze inni z kolei skrupulatnie stosują się do rozporządzeń okupanta w nadziei na uratowanie życia. Do tych ostatnich należy Jakub Rosenberg, inteletualista i samotnik, którego Niemcy przeznaczyli do sprzątania ulic.   ... liczą na cud; trzeci 'nadrabiają' stracone lata, szukając zapomnienia w hulankach; jeszcze inni z kolei skrupulatnie stosują się do rozporządzeń okupanta w nadziei na uratowanie życia. Do tych ostatnich należy Jakub Rosenberg, inteletualista i samotnik, którego Niemcy przeznaczyli do sprzątania ulic.
-    

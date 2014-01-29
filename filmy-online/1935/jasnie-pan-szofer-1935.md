@@ -1,9 +1,5 @@
+Jaśnie pan szofer 1935 
+=============
+[![Jaśnie pan szofer 1935 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jasnie-pan-szofer-1935)
 
-        Jaśnie pan szofer 1935 
-        =============
-        
-        [![Jaśnie pan szofer 1935 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jasnie-pan-szofer-1935)
-        
-        
  Hrabia Karol Boratyński (Eugeniusz Bodo) wyjeżdża do Londynu. Pod jego nieobecność lokaj hrabiego (Ludwik Sempoliński), udając swego pracodawcę, prosi znanego przemysłowca, prezesa Pudłowicza (Antoni Fertner) o rękę jego pięknej córki Hanny (Ina Benita) i równocześnie o pożyczkę pewnej kwoty pieniędzy (hrabia i Pudłowicz nie znali się do tej pory osobiście). Zrujnowany Pudłowicz zgadza się, licząc na to, że dzięki ślubowi córki z pochodzącym ze starej, arystokratycznej rodziny hrabią, będzie mógł zawrzeć lukratywny interes z bankierem Szoberem (Feliks Chmurkowski). Przedstawiając w Urzędzie Stanu Cywilnego dokumenty hrabiego jako własne, lokaj zawiera ślub z Hanną a od zadowolonego ze swojej przebiegłości prezesa otrzymuje pieniądze. Po powrocie z zagranicy Boratyński dowiaduje się z prasy, że kilka dni temu odbył się jego ślub. Udaje się do Pudłowicza, żeby wyjaśnić zaistniałą sytuację ale jego szofer (Tadeusz Olsza) podsuwa mu wcześniej niezwykły pomysł...   ... rodziny hrabią, będzie mógł zawrzeć lukratywny interes z bankierem Szoberem (Feliks Chmurkowski). Przedstawiając w Urzędzie Stanu Cywilnego dokumenty hrabiego jako własne, lokaj zawiera ślub z Hanną a od zadowolonego ze swojej przebiegłości prezesa otrzymuje pieniądze. Po powrocie z zagranicy Boratyński dowiaduje się z prasy, że kilka dni temu odbył się jego ślub. Udaje się do Pudłowicza, żeby wyjaśnić zaistniałą sytuację ale jego szofer (Tadeusz Olsza) podsuwa mu wcześniej niezwykły pomysł...
-    

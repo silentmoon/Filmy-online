@@ -1,9 +1,5 @@
+Śniadanie ze Scotem / Breakfast with Scot 2007 
+=============
+[![Śniadanie ze Scotem / Breakfast with Scot 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niadanie-ze-scotem-breakfast-with-scot-2007)
 
-        Śniadanie ze Scotem / Breakfast with Scot 2007 
-        =============
-        
-        [![Śniadanie ze Scotem / Breakfast with Scot 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niadanie-ze-scotem-breakfast-with-scot-2007)
-        
-        
  Erik i Sam są szczęśliwą parą i od wielu lat prowadzą razem spokojne życie. Erik grał kiedyś zawodowo w hokeja, a teraz jest dziennikarzem sportowym. Sam pracuje jako adwokat. Brat Sama - Billy, wyjechał do Ameryki Południowej. Wkrótce po tym jego była dziewczyna zginęła z powodu przedawkowania narkotyków, zostawiając mu pod opieką 11-letniego Scota. Ponieważ z Billim nie ma kontaktu, chłopiec tymczasowo trafia pod opiekę Sama. Kiedy Scot przyjeżdża do domu Sama i Erika przywozi ze sobą mnóstwo kolorowych ciuchów i jeszcze  bransoletek. W jego walizce nie brakuje też barwnych broszek, kapeluszy, pudrów, szminek, łańcuszków i różowej szczotki do włosów z pozytywką. Sam i Eryk szybko uświadamiają sobie, że chłopiec jest gejem, lecz w przeciwieństwie do nich ma odwagę, by być sobą na przekór wszelkim stereotypom. Przyjazd Scota wywraca ich spokojne i wygodne życie do góry nogami. Najbardziej odczuwa to Erik, który nigdy nie chciał mieć dzieci. Na domiar złego Scott stawia go często w sytuacjach grożących kompromitacją dla Erika, który wciąż nie ujawnił się w pracy, ani wśród znajomych. Kiedy jednak zjawia się Billy, by zabrać ze sobą chłopca, partnerzy nie wyobrażają sobie, że mogliby go stracić.  ... przywozi ze sobą mnóstwo kolorowych ciuchów i jeszcze więcej bransoletek. W jego walizce nie brakuje też barwnych broszek, kapeluszy, pudrów, szminek, łańcuszków i różowej szczotki do włosów z pozytywką. Sam i Eryk szybko uświadamiają sobie, że chłopiec jest gejem, lecz w przeciwieństwie do nich ma odwagę, by być sobą na przekór wszelkim stereotypom. Przyjazd Scota wywraca ich spokojne i wygodne życie do góry nogami. Najbardziej odczuwa to Erik, który nigdy nie chciał mieć dzieci. Na domiar złego Scott stawia go często w sytuacjach grożących kompromitacją dla Erika, który wciąż nie ujawnił się w pracy, ani wśród znajomych. Kiedy jednak zjawia się Billy, by zabrać ze sobą chłopca, partnerzy nie wyobrażają sobie, że mogliby go stracić.
-    

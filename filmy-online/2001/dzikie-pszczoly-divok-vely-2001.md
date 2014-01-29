@@ -1,9 +1,5 @@
+Dzikie pszczoły / Divoké včely 2001 
+=============
+[![Dzikie pszczoły / Divoké včely 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dzikie-pszczoly-divok-vely-2001)
 
-        Dzikie pszczoły / Divoké včely 2001 
-        =============
-        
-        [![Dzikie pszczoły / Divoké včely 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dzikie-pszczoly-divok-vely-2001)
-        
-        
  Życie w małej wiosce położonej w północnych Morawach, z dala od wielkiego świata i jego rozlicznych konfliktów, składa się z dwóch elementów - 'nicnierobienia' i przesiadywania w barze. Po czterdziestu latach komunizmu pozostały tylko na wpół zrujnowany kościółek, opuszczone obszary rolne, 99-procentowe bezrobocie i bar. Swoją bezradność mieszkańcy wioski maskują poczuciem humoru i nadzieją na... 'wydarzenie roku', czyli - zabawę u strażaków. Kaja, syn samozwańczego mędrca wioski, jest nieśmiałym leśnikiem, któremu wpadła w oko Bożka, prowadząca w wiosce sklepik. Jednak dziewczyna skłania się raczej ku Ladzie, lokalnemu dandysowi, naśladowcy Michaela Jacksona. Kaja nie może się z nim równać. Niespodziewanie jednak do wioski powraca jego brat i rozpoczyna się zabawa u strażaków. Następnego ranka nic nie będzie już takie, jak dawniej... [opis dystrybutora]   ... wioski, jest nieśmiałym leśnikiem, któremu wpadła w oko Bożka, prowadząca w wiosce sklepik. Jednak dziewczyna skłania się raczej ku Ladzie, lokalnemu dandysowi, naśladowcy Michaela Jacksona. Kaja nie może się z nim równać. Niespodziewanie jednak do wioski powraca jego brat i rozpoczyna się zabawa u strażaków. Następnego ranka nic nie będzie już takie, jak dawniej... [opis dystrybutora]
-    

@@ -1,9 +1,5 @@
+Meduzy / Meduzot 2007 
+=============
+[![Meduzy / Meduzot 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/meduzy-meduzot-2007)
 
-        Meduzy / Meduzot 2007 
-        =============
-        
-        [![Meduzy / Meduzot 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/meduzy-meduzot-2007)
-        
-        
  Podczas własnego wesela Keren łamie nogę i nowożeńcy muszą zrezygnować z miesiąca miodowego na Karaibach, zadowalając się namiastką wakacji w drogim lecz fatalnie ulokowanym hotelu przy autostradzie w okolicach Tel Awiwu. Tajemnicza, ruda dziewczynka wychodzi z morza prosto w objęcia Batyi. Pogrążona w letargu i depresji od czasu rozstania z narzeczonym Batya, w towarzystwie dziewczynki czuje się zupełnie odmieniona, więc mimo licznych trudności postanawia się nią zaopiekować. Joy – szukająca w Tel Awiwie pracy emigrantka z Filipin, zostaje opiekunką opryskliwej starszej pani. Przypadkiem udaje jej się pojednać staruszkę ze skłóconą od lat córką. Meduzy, film składający się z kilku przeplatających się luźno wątków, jest zbiorowym portretem mieszkańców Tel Awiwu, dryfujących po powierzchni życia w poszukiwaniu miłości, pamięci lub zapomnienia.  ... zaopiekować. Joy – szukająca w Tel Awiwie pracy emigrantka z Filipin, zostaje opiekunką opryskliwej starszej pani. Przypadkiem udaje jej się pojednać staruszkę ze skłóconą od lat córką. Meduzy, film składający się z kilku przeplatających się luźno wątków, jest zbiorowym portretem mieszkańców Tel Awiwu, dryfujących po powierzchni życia w poszukiwaniu miłości, pamięci lub zapomnienia.
-    

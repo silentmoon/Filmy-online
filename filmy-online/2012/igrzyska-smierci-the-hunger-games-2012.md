@@ -1,9 +1,5 @@
+Igrzyska śmierci / The Hunger Games 2012 
+=============
+[![Igrzyska śmierci / The Hunger Games 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/igrzyska-smierci-the-hunger-games-2012)
 
-        Igrzyska śmierci / The Hunger Games 2012 
-        =============
-        
-        [![Igrzyska śmierci / The Hunger Games 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/igrzyska-smierci-the-hunger-games-2012)
-        
-        
  Katniss pochodzi z Dwunastego Dystryktu, jednego z najbiedniejszych regionów w państwie Panem. Kiedy jej młodsza siostra zostaje wylosowana do udziału w Głodowych Igrzyskach, corocznym turnieju organizowanym przez bezwzględne władze, Katniss zgłasza się, by zająć jej miejsce. Musi opuścić nie tylko rodzinę, której jest żywicielką, ale i Gale’a, który zdaje się  kimś  niż przyjacielem. Aby ich jeszcze zobaczyć, musi zwyciężyć w transmitowanych przez telewizję Igrzyskach. Przeżyć może tylko jeden uczestnik. Pochodzący z biednego dystryktu i nie szkoleni w walce Katniss i chłopak Peeta, w oczach widzów skazani są na porażkę. Igrzyska są jednak nieprzewidywalne. Między młodymi rodzi się uczucie, a odważna szesnastolatka rozpala w ludziach nadzieję na zmiany. Staje się symbolem buntu i walki z niesprawiedliwością. Jednak jeśli kiedykolwiek ma zobaczyć jeszcze rodzinny Dystrykt 12, musi dokonać rzeczy niemożliwych…   ... Przeżyć może tylko jeden uczestnik. Pochodzący z biednego dystryktu i nie szkoleni w walce Katniss i chłopak Peeta, w oczach widzów skazani są na porażkę. Igrzyska są jednak nieprzewidywalne. Między młodymi rodzi się uczucie, a odważna szesnastolatka rozpala w ludziach nadzieję na zmiany. Staje się symbolem buntu i walki z niesprawiedliwością. Jednak jeśli kiedykolwiek ma zobaczyć jeszcze rodzinny Dystrykt 12, musi dokonać rzeczy niemożliwych…
-    

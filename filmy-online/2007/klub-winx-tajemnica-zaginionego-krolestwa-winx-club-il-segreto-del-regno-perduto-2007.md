@@ -1,9 +1,5 @@
+Klub Winx - Tajemnica Zaginionego Królestwa / Winx Club - Il Segreto Del Regno Perduto 2007 
+=============
+[![Klub Winx - Tajemnica Zaginionego Królestwa / Winx Club - Il Segreto Del Regno Perduto 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/klub-winx-tajemnica-zaginionego-krolestwa-winx-club-il-segreto-del-regno-perduto-2007)
 
-        Klub Winx - Tajemnica Zaginionego Królestwa / Winx Club - Il Segreto Del Regno Perduto 2007 
-        =============
-        
-        [![Klub Winx - Tajemnica Zaginionego Królestwa / Winx Club - Il Segreto Del Regno Perduto 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/klub-winx-tajemnica-zaginionego-krolestwa-winx-club-il-segreto-del-regno-perduto-2007)
-        
-        
  Królestwo Magicznego Wymiaru pogrążyło się w mroku. Ostatni potężni czarodzieje-wojownicy oddali życie w walce ze złem i przegrali. Teraz przyszłość krainy leży w rękach młodej dziewczyny o imieniu Bloom - wróżki Smoczego Płomienia. Bloom musi rzucić wyzwanie ciemności. Wróżce Ognia jak zwykle towarzyszą nieodłączne przyjaciółki: Flora, Stella, Musa, Layla i Tecna. Dziewczęta wspólnie dzielą dni magicznej przygody, podczas których Bloom spróbuje rozwiązać tajemniczą zagadkę związaną z jej pochodzeniem, ocalić swoich rodziców i przywrócić świetność Królestwu. Z pomocą pięknym i nieustraszonym wojowniczkom przychodzą dzielni, waleczni zawodowcy - uczniowie RedFountain i wszyscy razem wpadają w wir nieprawdopodobnych wydarzeń. Przed nimi starcia, próba sił oraz niesamowite walki z odrażającymi stworami zamieszkującymi Magiczny Wymiar.  ... związaną z jej pochodzeniem, ocalić swoich rodziców i przywrócić świetność Królestwu. Z pomocą pięknym i nieustraszonym wojowniczkom przychodzą dzielni, waleczni zawodowcy - uczniowie RedFountain i wszyscy razem wpadają w wir nieprawdopodobnych wydarzeń. Przed nimi starcia, próba sił oraz niesamowite walki z odrażającymi stworami zamieszkującymi Magiczny Wymiar.
-    

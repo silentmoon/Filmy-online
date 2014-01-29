@@ -1,9 +1,5 @@
+Kop głębiej 2011 
+=============
+[![Kop głębiej 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kop-glebiej-2011)
 
-        Kop głębiej 2011 
-        =============
-        
-        [![Kop głębiej 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kop-glebiej-2011)
-        
-        
  Szukający rodzinnych korzeni leciwy Niemiec, emeryt Hugo Schmidt przyjeżdża z wnukiem do wsi na Mazurach. Dom, w którym się urodził, zamieszkuje obecnie biedna polska rodzina, przesiedleńcy zza Buga, niezbyt dbający o utrzymanie  porządku w  gospodarstwie. Nowakowie są przerażeni wizją odebrania im przez Hugo dachu nad głową. Ale zmieniają swój stosunek do Niemca, gdy ten proponuje sporą sumę pieniędzy za spełnienie 'nietypowej' prośby: chodzi o zgodę na dokonanie ekshumacji. Pod koniec wojny Hugo, zmuszony okolicznościami, zakopał w ogródku ciała swoich rodziców. Teraz, gdy sam stoi nad grobem, pragnie odnaleźć szczątki w celu dokonania ponownego – tym razem honorowego – pochówku. Polscy gospodarze ochoczo przystają na propozycję, jednak pojawia się nieprzewidziany problem. Kości już nie ma, gdyż stary Nowak robiąc porządki odnalazł je i wyrzucił do jeziora. Obawiając się utraty życiowej szansy. Nowakowie decydują się na 'pożyczenie' szczątków z pobliskiego cmentarza...  ... Pod koniec wojny Hugo, zmuszony okolicznościami, zakopał w ogródku ciała swoich rodziców. Teraz, gdy sam stoi nad grobem, pragnie odnaleźć szczątki w celu dokonania ponownego – tym razem honorowego – pochówku. Polscy gospodarze ochoczo przystają na propozycję, jednak pojawia się nieprzewidziany problem. Kości już nie ma, gdyż stary Nowak robiąc porządki odnalazł je i wyrzucił do jeziora. Obawiając się utraty życiowej szansy. Nowakowie decydują się na 'pożyczenie' szczątków z pobliskiego cmentarza...
-    

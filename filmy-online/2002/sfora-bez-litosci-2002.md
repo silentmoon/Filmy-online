@@ -1,9 +1,5 @@
+Sfora: Bez litości 2002 
+=============
+[![Sfora: Bez litości 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sfora-bez-litosci-2002)
 
-        Sfora: Bez litości 2002 
-        =============
-        
-        [![Sfora: Bez litości 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sfora-bez-litosci-2002)
-        
-        
  Kiedy Ryszard Starewicz 'Stary', szef jednej z warszawskich mafii, każe zamordować komendanta głównego policji, nie wie, że popełnia życiowy błąd. Mafioso nie ma pojęcia, że funkcjonariusz należał do 'sfory', grupy zżytych przyjaciół, którzy, będąc jeszcze dziećmi, przyrzekli sobie dozgonną przyjaźń i pomoc. Tymczasem bezkarni przestępcy przenikają do najwyższych kręgów władzy. Nieoczekiwanie, mafijne macki sięgają już nawet kadry oficerskiej policji. Trzech przyjaciół z dzieciństwa postanawia działać. Olbrycht, Nowicki i Duch wypowiadają własną, bezwzględną walkę z zabójcą kolegi. Mężczyźni zrobią wszystko, żeby sprawiedliwość dopadła bosa mafii. Olbrycht i Ducha są doświadczonymi policjantami. Działając na własną rękę, funkcjonariusze stosują czasem bardzo brutalne, ale skuteczne środki. Mężczyźni są prawdziwymi wzorami dla swoich kolegów w pracy, natomiast wśród przestępców sieją postrach i przerażenie. Nowicki, natomiast, jest młodym prokuratorem, który nie wiele może zdziałać, zaplątany w gąszczu paragrafów i przeróżnych kodeksów. Jednak dzięki pomocy starszych kolegów, znajduje luki prawne, dzięki czemu może wprowadzić swój plan w życie.  ... dzieciństwa postanawia działać. Olbrycht, Nowicki i Duch wypowiadają własną, bezwzględną walkę z zabójcą kolegi. Mężczyźni zrobią wszystko, żeby sprawiedliwość dopadła bosa mafii. Olbrycht i Ducha są doświadczonymi policjantami. Działając na własną rękę, funkcjonariusze stosują czasem bardzo brutalne, ale skuteczne środki. Mężczyźni są prawdziwymi wzorami dla swoich kolegów w pracy, natomiast wśród przestępców sieją postrach i przerażenie. Nowicki, natomiast, jest młodym prokuratorem, który nie wiele może zdziałać, zaplątany w gąszczu paragrafów i przeróżnych kodeksów. Jednak dzięki pomocy starszych kolegów, znajduje luki prawne, dzięki czemu może wprowadzić swój plan w życie.
-    

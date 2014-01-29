@@ -1,9 +1,5 @@
+Reguły kłamstwa / Pravidla lži 2006 
+=============
+[![Reguły kłamstwa / Pravidla lži 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/reguly-klamstwa-pravidla-li-2006)
 
-        Reguły kłamstwa / Pravidla lži 2006 
-        =============
-        
-        [![Reguły kłamstwa / Pravidla lži 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/reguly-klamstwa-pravidla-li-2006)
-        
-        
  Psychologiczny dramat ze środowiska grupy terapeutycznej, gdzie jedenaścioro ludzi spróbuje zerwać ze swoją przeszłością. Motto ich starań dałoby się jednak sprowadzić do nieziszczalnego pragnienia ? obym znalazł siłę zmienić to, co zmienić mogę i pogodzić się z tym, czego zmienić nie mogę; i niech potrafię te dwie rzeczy od siebie oddzielić. Większość ludzi tutaj by chętnie zapomniała o swojej przeszłości. Mają około trzydziestki, a w ich życiorysach znaleźć można wszystkie grzechy świata. Kłamali, kradli, oszukiwali, myśleli tylko o sobie, a jeden z nich nawet zabił. Na razie nikt nie wie, kto, ale prawda wyjdzie na jaw. O ile jest prawdą to, co ludzie nazywają wspomnieniami? To nie jest opowieść o kryminalistach. Każdy z nich jest tu dobrowolnie i może odejść, gdy zechce. Z własnej woli spędzą tu rok życia. Skazani na siebie nawzajem, szukają swojego lepszego ja. Punktem wyjścia dla lepszej przyszłości jest właściwa ocena własnej przeszłości. Tylko czy może człowiek w ogóle nie kłamać i przeżyć między innymi ludźmi? [opis dystrybutora]  ... grzechy świata. Kłamali, kradli, oszukiwali, myśleli tylko o sobie, a jeden z nich nawet zabił. Na razie nikt nie wie, kto, ale prawda wyjdzie na jaw. O ile jest prawdą to, co ludzie nazywają wspomnieniami? To nie jest opowieść o kryminalistach. Każdy z nich jest tu dobrowolnie i może odejść, gdy zechce. Z własnej woli spędzą tu rok życia. Skazani na siebie nawzajem, szukają swojego lepszego ja. Punktem wyjścia dla lepszej przyszłości jest właściwa ocena własnej przeszłości. Tylko czy może człowiek w ogóle nie kłamać i przeżyć między innymi ludźmi? [opis dystrybutora]
-    

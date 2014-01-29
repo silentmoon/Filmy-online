@@ -1,9 +1,5 @@
+Zemsta futrzaków / Furry Vengeance 2010 
+=============
+[![Zemsta futrzaków / Furry Vengeance 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zemsta-futrzakow-furry-vengeance-2010)
 
-        Zemsta futrzaków / Furry Vengeance 2010 
-        =============
-        
-        [![Zemsta futrzaków / Furry Vengeance 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zemsta-futrzakow-furry-vengeance-2010)
-        
-        
  Twórcy „Nocy w muzeum” i „Różowej pantery” zapraszają na doskonałą zabawę dla całej rodziny, komedię o lekkim zabarwieniu... ekologicznym. W roli głównej Brendan Fraser gwiazda trylogii Mumia oraz Podroży do wnętrza ziemi Partnerują mu Brooke Shields oraz wschodząca gwiazda Matt Prokop (High School Musical 3). Kiedy Dan wraz z rodziną przeprowadza się do zielonego Oregonu, nawet nie podejrzewa jakodziną przeprowadza się do zielonego Oregonu, nawet nie podejrzewa jak trudno przyjdzie mu żyć w zgodzie z naturą. Gdy rozpoczyna pracę nad budową dużego osiedla okazuje się, że ten teren jest już zajęty. Zamieszkujące tam zwierzęta wszystkich kształtów i rozmiarów jednoczą swe siły, by wykurzyć Dana z lasu obracając plac budowy w prawdziwe pole bitwy. Rozpocznie się nieprzerwana salwa gagów i komicznych sytuacji. Natura pokaże pazur, a dzięki skunksowi pojęcie „śmierdząca sprawa” nabierze zupełnie nowego i bardziej dosłownego znaczenia.  ... odziną przeprowadza się do zielonego Oregonu, nawet nie podejrzewa jak trudno przyjdzie mu żyć w zgodzie z naturą. Gdy rozpoczyna pracę nad budową dużego osiedla okazuje się, że ten teren jest już zajęty. Zamieszkujące tam zwierzęta wszystkich kształtów i rozmiarów jednoczą swe siły, by wykurzyć Dana z lasu obracając plac budowy w prawdziwe pole bitwy. Rozpocznie się nieprzerwana salwa gagów i komicznych sytuacji. Natura pokaże pazur, a dzięki skunksowi pojęcie „śmierdząca sprawa” nabierze zupełnie nowego i bardziej dosłownego znaczenia.
-    

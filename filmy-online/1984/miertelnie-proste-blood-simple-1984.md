@@ -1,9 +1,5 @@
+Śmiertelnie proste / Blood Simple. 1984 
+=============
+[![Śmiertelnie proste / Blood Simple. 1984 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miertelnie-proste-blood-simple-1984)
 
-        Śmiertelnie proste / Blood Simple. 1984 
-        =============
-        
-        [![Śmiertelnie proste / Blood Simple. 1984 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miertelnie-proste-blood-simple-1984)
-        
-        
  Rzecz dzieje się w małej mieścinie na teksańskiej prowincji. Zazdrosny właściciel saloonu Julian Marty (Dan Hedaya) wynajmuje prywatnego detektywa - odpychającego grubasa o nazwisku Loren Visser (M. Emmet Walsh) - by śledził jego żonę Abby (Frances McDormand). Podejrzewa, że spotyka się ona z innym mężczyzną. Detektyw dostarcza niezbite dowody zdrady. Niewierna połowica sypia z barmanem (John Getz), pracownikiem nieszczęsnego rogacza. Marty wpada w szał. Powodowanyy zazdrością i chęcią odwetu za doznane upokorzenie, proponuje detektywowi znaczną kwotę za zamordowanie pary kochanków. Visser przyjmuje zadanie. Planuje 'zbrodnię doskonałą', choć w wersji nie do końca zgodnej z oczekiwaniami zleceniodawcy. Jednak, jak to u Coenów zwykle bywa, los potrafi płatać najdziksze swawole. Plan detektywa, wskutek zbiegu okoliczności, nie układa się po jego myśli, a wiarołomna małżonka i jej kochanek wplątani zostają w śmiertelną grę w kotka i myszkę.   ... y zazdrością i chęcią odwetu za doznane upokorzenie, proponuje detektywowi znaczną kwotę za zamordowanie pary kochanków. Visser przyjmuje zadanie. Planuje 'zbrodnię doskonałą', choć w wersji nie do końca zgodnej z oczekiwaniami zleceniodawcy. Jednak, jak to u Coenów zwykle bywa, los potrafi płatać najdziksze swawole. Plan detektywa, wskutek zbiegu okoliczności, nie układa się po jego myśli, a wiarołomna małżonka i jej kochanek wplątani zostają w śmiertelną grę w kotka i myszkę.
-    

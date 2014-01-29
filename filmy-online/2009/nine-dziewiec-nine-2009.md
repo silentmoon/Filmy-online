@@ -1,9 +1,5 @@
+Nine - Dziewięć / Nine 2009 
+=============
+[![Nine - Dziewięć / Nine 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nine-dziewiec-nine-2009)
 
-        Nine - Dziewięć / Nine 2009 
-        =============
-        
-        [![Nine - Dziewięć / Nine 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nine-dziewiec-nine-2009)
-        
-        
  Reżyser najlepszego musicalu ostatniej dekady – obsypanego nagrodami „Chicago” (m.in. 6 Oscarów i 3 Złote Globy w 2003 roku), które przywróciło dawną świetność temu gatunkowi filmowemu – powraca z jeszcze bardziej imponującym zestawem gwiazd w musicalu „Dziewięć”. Guido, światowej sławy egocentryczny reżyser filmowy, próbuje uporządkować swoje życie prywatne i odzyskać utraconą wenę twórczą. W zmaganiach z problemami pomaga mu - i przeszkadza - grono kobiet jego życia: zdradzana żona Luisa, kochanka Carla, przyjaciółka Lily, dziennikarka modowa Stephanie, muza Claudia oraz duch jego matki (w tej roli jak zawsze boska Sophia Loren). „Dziewięć” to ekranizacja uhonorowanego nagrodą Tony musicalu, zainspirowanego mistrzowskim obrazem „8 i 1/2” Federico Felliniego.    ... zdradzana żona Luisa, kochanka Carla, przyjaciółka Lily, dziennikarka modowa Stephanie, muza Claudia oraz duch jego matki (w tej roli jak zawsze boska Sophia Loren). „Dziewięć” to ekranizacja uhonorowanego nagrodą Tony musicalu, zainspirowanego mistrzowskim obrazem „8 i 1/2” Federico Felliniego. 
-    

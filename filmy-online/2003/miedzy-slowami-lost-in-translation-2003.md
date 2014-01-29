@@ -1,9 +1,5 @@
+Między słowami / Lost in Translation 2003 
+=============
+[![Między słowami / Lost in Translation 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miedzy-slowami-lost-in-translation-2003)
 
-        Między słowami / Lost in Translation 2003 
-        =============
-        
-        [![Między słowami / Lost in Translation 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miedzy-slowami-lost-in-translation-2003)
-        
-        
  50-letni Amerykanin, Bob Harris (Bill Murray) przyjeżdża do Tokio. Zapomniany gwiazdor telewizyjny ma za zadanie nakręcić reklamę. Proste sceny okazują się trudne do realizacji i zdjęcia zaczynają się przedłużać. Do hotelu, w którym mieszka Bob wprowadza się małżeństwo - Charlotte (Scarlett Johansson) i John (Giovanni Ribisi). John jest fotografem i całe dnie poświęca pracy, podczas gdy jego żona nudzi się w hotelowym pokoju. Pozbawiona kontaktu z rodziną i przyjaciółmi Charlotte czuje się samotnie. Zaczyna cierpieć na bezsenność. Po kolejnej nieprzespanej nocy schodzi do baru, w którym spotyka Boba. Okazuje się, że bezsenność nie jest ich jedynym wspólnym tematem. Charlotte i Bob spędzają ze sobą coraz  czasu. Między młodą kobietą i doświadczonym mężczyzną rodzi się niezwykła przyjaźń. Ona dopiero szuka swojego miejsca w świecie, on jest na kolejnym życiowym zakręcie. Coraz bardziej się do siebie zbliżają, choć zdają sobie sprawę, że ich uczucie nie ma szans na spełnienie.   ... Charlotte czuje się samotnie. Zaczyna cierpieć na bezsenność. Po kolejnej nieprzespanej nocy schodzi do baru, w którym spotyka Boba. Okazuje się, że bezsenność nie jest ich jedynym wspólnym tematem. Charlotte i Bob spędzają ze sobą coraz więcej czasu. Między młodą kobietą i doświadczonym mężczyzną rodzi się niezwykła przyjaźń. Ona dopiero szuka swojego miejsca w świecie, on jest na kolejnym życiowym zakręcie. Coraz bardziej się do siebie zbliżają, choć zdają sobie sprawę, że ich uczucie nie ma szans na spełnienie.
-    

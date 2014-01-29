@@ -1,9 +1,5 @@
+Cesarzowa i wojownicy / Kwong saan mei yan 2008 
+=============
+[![Cesarzowa i wojownicy / Kwong saan mei yan 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cesarzowa-i-wojownicy-kwong-saan-mei-yan-2008)
 
-        Cesarzowa i wojownicy / Kwong saan mei yan 2008 
-        =============
-        
-        [![Cesarzowa i wojownicy / Kwong saan mei yan 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cesarzowa-i-wojownicy-kwong-saan-mei-yan-2008)
-        
-        
  Starożytne Chiny. Podzielony na liczne królestwa kraj zatopiony jest w nieustannej wojnie. Gdy król kraju Yan zostaje ciężko raniony, przekazuje dowodzenie i tron swemu zaufanemu generałowi. To cios dla ambitnego i mściwego siostrzeńca króla. Rozwścieczony zabija monarchę licząc na przejęcie tronu. Tymczasem ku jego zaskoczeniu generałowie obwołują następczynią córkę króla – księżniczkę Feier. Feier bierze na siebie brzemię rządów i dowodzenia armią, ale staje się też kolejnym celem podstępnego siostrzeńca. Gdy nasłani przez niego mordercy ciężko ranią księżniczkę, ratuje ją tajemniczy mnich – rycerz Duan Lanquan. Ratując jej życie, daje jej także miłość. Zbliża się jednak dzień, w którym Wielka Księżna Królestwa Yan będzie musiała wybrać między obowiązkiem wobec kraju a uczuciem. Ponadczasowa historia łącząca wspaniałe sceny bitewne z love story. 'Cesarzowa i wojownicy' to najnowsza superprodukcja Chin i Hongkongu. Film wyreżyserowany przez jednego z największych mistrzów choreografii scen bitewnych Tony CHING SIU TUNGA, to zrealizowana z epickim rozmachem epopeja rycerska z wielką miłością w tle. W rolach głównych zobaczymy tu mistrza sztuk walki Donniego Yena oraz ultrapopularną w Chinach piosenkarkę i aktorkę Kelly Chen.   ... kolejnym celem podstępnego siostrzeńca. Gdy nasłani przez niego mordercy ciężko ranią księżniczkę, ratuje ją tajemniczy mnich – rycerz Duan Lanquan. Ratując jej życie, daje jej także miłość. Zbliża się jednak dzień, w którym Wielka Księżna Królestwa Yan będzie musiała wybrać między obowiązkiem wobec kraju a uczuciem. Ponadczasowa historia łącząca wspaniałe sceny bitewne z love story. 'Cesarzowa i wojownicy' to najnowsza superprodukcja Chin i Hongkongu. Film wyreżyserowany przez jednego z największych mistrzów choreografii scen bitewnych Tony CHING SIU TUNGA, to zrealizowana z epickim rozmachem epopeja rycerska z wielką miłością w tle. W rolach głównych zobaczymy tu mistrza sztuk walki Donniego Yena oraz ultrapopularną w Chinach piosenkarkę i aktorkę Kelly Chen.
-    

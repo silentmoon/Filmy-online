@@ -1,9 +1,5 @@
+Battleship: Bitwa o Ziemię / Battleship 2012 
+=============
+[![Battleship: Bitwa o Ziemię / Battleship 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/battleship-bitwa-o-ziemie-battleship-2012)
 
-        Battleship: Bitwa o Ziemię / Battleship 2012 
-        =============
-        
-        [![Battleship: Bitwa o Ziemię / Battleship 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/battleship-bitwa-o-ziemie-battleship-2012)
-        
-        
  Alex Hooper (Taylor Kitsch) nie ma pojęcia, co zrobić ze swoim życiem. Zakochuje się w Sam (Brooklyn Decker), córce dowodzącego Flotą Pacyfiku admirała Shane'a (Liam Neeson). Postanawia pójść w ślady swojego starszego brata Stone'a (Alexander Skarsgård) i wstępuje do Marynarki Wojennej. Mija kilka lat. Do Ziemi zbliża się formacja złożona z pięciu niezidentyfikowanych obiektów. Jeden rozbija się w Chinach, a pozostałe cztery wpadają do Oceanu Spokojnego. W okolicy trwają właśnie zakrojone na szeroką skalę międzynarodowe manewry wojskowe. Admirał Shane wysyła patrol złożony z dwóch amerykańskich niszczycieli i jednego japońskiego. Na jednym z okrętów oficerem jest Alex, drugim dowodzi Stone. Po dotarciu na miejsce okazuje się, że przybysze z kosmosu nie mają przyjaznych zamiarów. Wróg podnosi barierę, oddzielając patrol od reszty floty. Japońska jednostka i niszczyciel dowodzony przez Stone'a zostają zniszczone. Z powodu śmierci kapitana i pierwszego oficera Alex jest zmuszony objąć dowodzenie na ostatnim okręcie. Musi teraz odrzucić wątpliwości, podjąć walkę z wrogiem i powstrzymać go przed ściągnięciem posiłków.   ... właśnie zakrojone na szeroką skalę międzynarodowe manewry wojskowe. Admirał Shane wysyła patrol złożony z dwóch amerykańskich niszczycieli i jednego japońskiego. Na jednym z okrętów oficerem jest Alex, drugim dowodzi Stone. Po dotarciu na miejsce okazuje się, że przybysze z kosmosu nie mają przyjaznych zamiarów. Wróg podnosi barierę, oddzielając patrol od reszty floty. Japońska jednostka i niszczyciel dowodzony przez Stone'a zostają zniszczone. Z powodu śmierci kapitana i pierwszego oficera Alex jest zmuszony objąć dowodzenie na ostatnim okręcie. Musi teraz odrzucić wątpliwości, podjąć walkę z wrogiem i powstrzymać go przed ściągnięciem posiłków.
-    

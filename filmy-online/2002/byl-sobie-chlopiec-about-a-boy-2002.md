@@ -1,9 +1,5 @@
+Był sobie chłopiec / About a Boy 2002 
+=============
+[![Był sobie chłopiec / About a Boy 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/byl-sobie-chlopiec-about-a-boy-2002)
 
-        Był sobie chłopiec / About a Boy 2002 
-        =============
-        
-        [![Był sobie chłopiec / About a Boy 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/byl-sobie-chlopiec-about-a-boy-2002)
-        
-        
  Bohaterem filmu 'Był sobie chłopiec' jest 36-letni londyńczyk, Will Freeman. Will nigdy nie musiał pracować - wygodne życie zapewniają mu tantiemy za popularną kolędę, przed laty skomponowaną przez ojca. Nie mając rodziny ani kłopotów finansowych, Will umila sobie czas zakupami, telewizją i niezobowiązującymi randkami. Pewnego dnia odkrywa, jak fantastycznymi kobietami są młode matki, samotnie wychowujące dzieci. Wymyśla więc sobie fikcyjnego synka, którego musi sam wychowywać. Will sądzi, że udając odpowiedzialnego tatusia łatwiej nawiąże interesujące go znajomości. Jednak zbieg okoliczności sprawia, że zamiast atrakcyjnej trzydziestolatki w jego życie wkracza dwunastoletni Marcus - dziecko z problemami. W szkole dokuczają Marcusowi koledzy, a w domu mama wydaje się być coraz smutniejsza. Marcus uważa, że Will znajdzie na wszystko radę. Will, który zwykł starannie unikać życiowych problemów, nie zamierza zmieniać swojego beztroskiego życia na luzie, zwłaszcza, że poznaje uroczą Rachel. Czy nowa znajomość okaże się ważniejsza od przyjaźni z Marcusem?   ... wychowywać. Will sądzi, że udając odpowiedzialnego tatusia łatwiej nawiąże interesujące go znajomości. Jednak zbieg okoliczności sprawia, że zamiast atrakcyjnej trzydziestolatki w jego życie wkracza dwunastoletni Marcus - dziecko z problemami. W szkole dokuczają Marcusowi koledzy, a w domu mama wydaje się być coraz smutniejsza. Marcus uważa, że Will znajdzie na wszystko radę. Will, który zwykł starannie unikać życiowych problemów, nie zamierza zmieniać swojego beztroskiego życia na luzie, zwłaszcza, że poznaje uroczą Rachel. Czy nowa znajomość okaże się ważniejsza od przyjaźni z Marcusem?
-    

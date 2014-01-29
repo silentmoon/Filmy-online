@@ -1,9 +1,5 @@
+Przeznaczenie 1983 
+=============
+[![Przeznaczenie 1983 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przeznaczenie-1983)
 
-        Przeznaczenie 1983 
-        =============
-        
-        [![Przeznaczenie 1983 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przeznaczenie-1983)
-        
-        
  'Przeznaczenie' to biograficzny film o Kazimierzu Przerwie-Tetmajerze, czołowej postaci polskiego modernizmu, twórcy znanych erotyków i tomu opowiadań 'Na skalnym Podhalu'. Poeta żył 75 lat, ale w historii literatury zazwyczaj przemilczane jest ostatnie trzydzieści lat jego życia. W tym czasie bowiem Tetmajer cierpiał na postępującą chorobę psychiczną, będącą wynikiem zarażenia syfilisem. Jacek Koprowicz przedstawił w swoim filmie całe życie poety. Znany młody poeta Kazimierz Przerwa-Tetmajer w dniu swego ślubu, w pogoni za swym przeznaczeniem, ucieka od ołtarza. Krótki romans z tajemniczą damą kończy się napisaniem kolejnego erotyku i stwierdzeniem przez lekarza choroby wenerycznej. W górskim pensjonacie otaczany przez wielbicieli, Tetmajer poznaje młodziutką Laurę. Staje się ona jego muzą. Mimo okazywanych jej uczuć wiąże się z wiejską dziewczyną Hanną. Podczas prób dramatu 'Zawisza Czarny' chce powierzyć rolę Afrodyty tatrzańskiej statystce Marii Zając. Lekarz stwierdza u poety syfilis i nakazuje wstrzemięźliwość. Oznacza to dla poety kres inspiracji. Mijają lata. Tetmajer pisze z coraz większym trudem. Odwiedza Wyspiańskiego, również chorego na syfilis. Spotyka Laurę, teraz matkę kilkuletniej dziewczynki. Myśl o samobójstwie przerywa pojawienie się Hanny   ... Kazimierz Przerwa-Tetmajer w dniu swego ślubu, w pogoni za swym przeznaczeniem, ucieka od ołtarza. Krótki romans z tajemniczą damą kończy się napisaniem kolejnego erotyku i stwierdzeniem przez lekarza choroby wenerycznej. W górskim pensjonacie otaczany przez wielbicieli, Tetmajer poznaje młodziutką Laurę. Staje się ona jego muzą. Mimo okazywanych jej uczuć wiąże się z wiejską dziewczyną Hanną. Podczas prób dramatu 'Zawisza Czarny' chce powierzyć rolę Afrodyty tatrzańskiej statystce Marii Zając. Lekarz stwierdza u poety syfilis i nakazuje wstrzemięźliwość. Oznacza to dla poety kres inspiracji. Mijają lata. Tetmajer pisze z coraz większym trudem. Odwiedza Wyspiańskiego, również chorego na syfilis. Spotyka Laurę, teraz matkę kilkuletniej dziewczynki. Myśl o samobójstwie przerywa pojawienie się Hanny
-    

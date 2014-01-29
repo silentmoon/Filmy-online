@@ -1,9 +1,5 @@
+Angel 2007 
+=============
+[![Angel 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/angel-2007)
 
-        Angel 2007 
-        =============
-        
-        [![Angel 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/angel-2007)
-        
-        
  Anglia, początek XX wieku. Młoda kobieta - Angel Deverell marzy, aby wyjechać z malutkiej mieściny, w jakiej mieszka. Pragnie przeprowadzić się do Londynu, gdzie mogłaby prowadzić inny, ekscytujący tryb życia. W wolnych chwilach pisze liczne romanse, w których bogate, piękne dziewczyny wychodzą za mąż za niezwykle przystojnych panów. Kiedy Angel odczytuje fragment swojej pierwszej powieści zostaje wyśmiana. Jednak nie zamierza się poddać i dalej tworzy. Pewnego dnia londyński wydawca zaczyna się interesować jej powiastkami, które ukazują się, mając rzesze fanów. Deverell staje się ulubienicą ludzi, prowadzi życie o jakim marzyła - ma dużo pieniędzy, piękny duży dom i należy do śmietanki towarzyskiej. Wdaje się w romans, zakończony ślubem z malarzem Esmé, który tak naprawdę kocha tylko jej pieniądze, w rzeczywistości jest tylko hazardzistą i kobieciarzem. Niestety wszystko, co dobre szybko się kończy. Małżeństwo dla Angel nie okazuje się trafnym wyborem - wkrótce zmierza do upadku.... Film na podstawie powieści Elizabeth Taylor.   ... wydawca zaczyna się interesować jej powiastkami, które ukazują się, mając rzesze fanów. Deverell staje się ulubienicą ludzi, prowadzi życie o jakim marzyła - ma dużo pieniędzy, piękny duży dom i należy do śmietanki towarzyskiej. Wdaje się w romans, zakończony ślubem z malarzem Esmé, który tak naprawdę kocha tylko jej pieniądze, w rzeczywistości jest tylko hazardzistą i kobieciarzem. Niestety wszystko, co dobre szybko się kończy. Małżeństwo dla Angel nie okazuje się trafnym wyborem - wkrótce zmierza do upadku.... Film na podstawie powieści Elizabeth Taylor.
-    

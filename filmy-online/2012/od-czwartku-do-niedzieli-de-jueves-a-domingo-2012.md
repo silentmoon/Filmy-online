@@ -1,9 +1,5 @@
+Od czwartku do niedzieli / De Jueves a domingo 2012 
+=============
+[![Od czwartku do niedzieli / De Jueves a domingo 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/od-czwartku-do-niedzieli-de-jueves-a-domingo-2012)
 
-        Od czwartku do niedzieli / De Jueves a domingo 2012 
-        =============
-        
-        [![Od czwartku do niedzieli / De Jueves a domingo 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/od-czwartku-do-niedzieli-de-jueves-a-domingo-2012)
-        
-        
  Chilijskie 'kino drogi', opowieść o rodzinie, która wyrusza na kilkudniową wakacyjną przejażdżkę, prawdopodobnie ostatnią w ich wspólnym życiu, zapowiadającą rozstanie. Na subtelną, osobistą historię, pięknie sfilmowaną przez argentyńską gwiazdę fotografii Bárbarę Álvarez, składają się zwykłe czynności, rozmowy, codzienna bliskość, która jednak z minuty na minutę staje się coraz bardziej melancholijna, skazana na nieuchronny koniec. Odzwierciedleniem tego procesu jest przesuwający się za oknem, surowy chilijski krajobraz - wysuszony, prześwietlony słońcem, brunatno-piaskowy. Samochód sunie serpentynami szos, przecina szemrzące strumyki i kamienne dróżki między skałami, pokonuje pustynny płaskowyż. Otwarciu perspektywy nieustannie towarzyszy ciasnota wnętrza samochodu, w którym zderzają się niewypowiedziane uczucia dwójki rodziców, oglądanych z tylnego siedzenia przez przeczuwające kryzys dzieci, pragnące zatrzymać czas.  ... przesuwający się za oknem, surowy chilijski krajobraz - wysuszony, prześwietlony słońcem, brunatno-piaskowy. Samochód sunie serpentynami szos, przecina szemrzące strumyki i kamienne dróżki między skałami, pokonuje pustynny płaskowyż. Otwarciu perspektywy nieustannie towarzyszy ciasnota wnętrza samochodu, w którym zderzają się niewypowiedziane uczucia dwójki rodziców, oglądanych z tylnego siedzenia przez przeczuwające kryzys dzieci, pragnące zatrzymać czas.
-    

@@ -1,9 +1,5 @@
+Be Cool 2005 
+=============
+[![Be Cool 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/be-cool-2005)
 
-        Be Cool 2005 
-        =============
-        
-        [![Be Cool 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/be-cool-2005)
-        
-        
  Chili Palmer, gangster, który został producentem filmowym, wciąż tkwi w branży. I wciąż uważa się za kogoś lepszego niż jest. Jest pewny siebie, nic go nie dziwi, nigdy nie popada we frustracje. I ma swój system moralny - jeśli tylko uzna to za stosowne, korzysta z nadażającej się okazji. Gdy taka sie trafia, Chili postanawia porzucić świat kina i spróbowac swych sił w przemyśle muzycznym. Nie przewidział jednak, że kryje się w nim  niebezpieczeństw, niż w filmowym - tutaj każdy marzy o zabójczym przeboju. Lawirując między studiem nagraniowym, koncertem Aerosmith i ceremonią rozdania nagród MTV, Chili będzie musiał się zmierzyć z pełną seksu włascicielką podupadającej firmy płytowej, białym facetem który rozpaczliwie szuka akceptacji w środowisku czarnych raperów; ochroniarzem, który chce zostać aktorem; producentem muzycznym, który nie cofnie się przed niczym by osiągnąć upragniony cel; obdarzonym specyficznym poczuciem humoru reperem; przebojową młodą wokalistką a także rosyjskimi gangsterami.  ... tutaj każdy marzy o zabójczym przeboju. Lawirując między studiem nagraniowym, koncertem Aerosmith i ceremonią rozdania nagród MTV, Chili będzie musiał się zmierzyć z pełną seksu włascicielką podupadającej firmy płytowej, białym facetem który rozpaczliwie szuka akceptacji w środowisku czarnych raperów; ochroniarzem, który chce zostać aktorem; producentem muzycznym, który nie cofnie się przed niczym by osiągnąć upragniony cel; obdarzonym specyficznym poczuciem humoru reperem; przebojową młodą wokalistką a także rosyjskimi gangsterami.
-    

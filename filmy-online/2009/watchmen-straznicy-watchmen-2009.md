@@ -1,9 +1,5 @@
+Watchmen. Strażnicy / Watchmen 2009 
+=============
+[![Watchmen. Strażnicy / Watchmen 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/watchmen-straznicy-watchmen-2009)
 
-        Watchmen. Strażnicy / Watchmen 2009 
-        =============
-        
-        [![Watchmen. Strażnicy / Watchmen 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/watchmen-straznicy-watchmen-2009)
-        
-        
  Akcja 'Watchmen Strażnicy' rozgrywa się w latach 80 na Ziemi. Superbohaterowie uznani są powszechnie za banitów i nie mają żadnych praw. Jedynie niewielka ich grupa cały czas pracuje na rzecz ludzkości, ale pod ścisłą kontrolą rządu Stanów Zjednoczonych. W 1985 r. w tajemniczych okolicznościach ginie Komediant, jeden z członków grupy superbohaterów, która została rozwiązana w roku 1977. Sprawę próbuje rozwiązać Rorschach, dawny kompan, który jest przekonany, że śmierć Komedianta nie była przypadkowa. Jego podejrzenia potwierdzają się. Wkrótce kolejni superbohaterowie stają się celami zamachów. Fabuła 'Strażników' dzieje się na różnych płaszczyznach. Główny wątek opowiada o wydarzeniach z roku 1985, ale akcja cofa się do roku 1977 i do lat wcześniejszych, opowiadając historię alternatywnego świata i jego superbohaterów.  ... Komedianta nie była przypadkowa. Jego podejrzenia potwierdzają się. Wkrótce kolejni superbohaterowie stają się celami zamachów. Fabuła 'Strażników' dzieje się na różnych płaszczyznach. Główny wątek opowiada o wydarzeniach z roku 1985, ale akcja cofa się do roku 1977 i do lat wcześniejszych, opowiadając historię alternatywnego świata i jego superbohaterów.
-    

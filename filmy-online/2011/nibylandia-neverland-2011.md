@@ -1,9 +1,5 @@
+Nibylandia / Neverland 2011 
+=============
+[![Nibylandia / Neverland 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nibylandia-neverland-2011)
 
-        Nibylandia / Neverland 2011 
-        =============
-        
-        [![Nibylandia / Neverland 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nibylandia-neverland-2011)
-        
-        
  Wychowani na ulicach Londynu z początków XX wieku, osierocony Piotr i jego przyjaciele próbują przetrwać dzięki swojemu sprytowi i umiejętnościom jako kieszonkowcy. Pewnego dnia ich mentor, Jimmy Hook, zleca im kradzież bezcennego i jak niektórzy uważają, magicznego skarbu, który przenosi ich do innego świata. Nibylandia to kraina białych dżungli i legend o wiecznej młodości, gdzie nieznani przyjaciele i wrogowie, także przeniesieni w czasie, witają przybyszów zarówno z ekscytacją, jak i trwogą. Piotruś i reszta wciągnięci zostają w konflikt między bandą osiemnastowiecznych piratów dowodzoną przez żądną władzy Elizabeth Bonny a indiańskim plemieniem Kaw ze Świętym Człowiekiem na czele, które stara się uniemożliwić Bonny i jej piratom odkrycie tajemnicy duchów drzew.   ... ekscytacją, jak i trwogą. Piotruś i reszta wciągnięci zostają w konflikt między bandą osiemnastowiecznych piratów dowodzoną przez żądną władzy Elizabeth Bonny a indiańskim plemieniem Kaw ze Świętym Człowiekiem na czele, które stara się uniemożliwić Bonny i jej piratom odkrycie tajemnicy duchów drzew.
-    

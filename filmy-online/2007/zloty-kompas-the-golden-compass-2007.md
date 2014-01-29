@@ -1,9 +1,5 @@
+Złoty kompas / The Golden Compass 2007 
+=============
+[![Złoty kompas / The Golden Compass 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zloty-kompas-the-golden-compass-2007)
 
-        Złoty kompas / The Golden Compass 2007 
-        =============
-        
-        [![Złoty kompas / The Golden Compass 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zloty-kompas-the-golden-compass-2007)
-        
-        
  W samym sercu angielskiego Oksfordu dorasta osierocona przez rodziców dziewczynka imieniem Lyra. W jej świecie, równoległym do naszego, magia, nauka i teologia są ze sobą ściśle powiązane, a każdy człowiek posiada własnego towarzysza, połączonego z nim niewidzialną więzią - dajmona. Lyra wiedzie spokojne życie, aż do czasu, kiedy najbliższy jej przyjaciel, chłopiec kuchenny imieniem Roger z kolegium, w którym dziewczynka się wychowuje, zostaje porwany przez postacie zwane przez wszystkich 'grobalami' - wiele dzieci zostało przez nich uprowadzonych i nikt ich nigdy nie odnalazł. Dziewczynka wyrusza na poszukiwania, które zawiodą ją na daleką Północ. Przed wyjazdem otrzymuje niezwykłe urządzenie - czytnik symboli, tzw. 'aletheiometr', który posiada zdolność odpowiedzi na każde pytanie. Podczas swojej podróży spotyka wiele ciekawych postaci - Cyganów, pancernego niedźwiedzia Lorka, czarownice. Uprowadzone dzieci są poddawane strasznym eksperymentom, mającym związek z tajemniczym Pyłem. Lyra odegra w całej tej historii ogromną rolę, pomimo, że nie zdaje sobie z tego jeszcze sprawy.  ... przez wszystkich 'grobalami' - wiele dzieci zostało przez nich uprowadzonych i nikt ich nigdy nie odnalazł. Dziewczynka wyrusza na poszukiwania, które zawiodą ją na daleką Północ. Przed wyjazdem otrzymuje niezwykłe urządzenie - czytnik symboli, tzw. 'aletheiometr', który posiada zdolność odpowiedzi na każde pytanie. Podczas swojej podróży spotyka wiele ciekawych postaci - Cyganów, pancernego niedźwiedzia Lorka, czarownice. Uprowadzone dzieci są poddawane strasznym eksperymentom, mającym związek z tajemniczym Pyłem. Lyra odegra w całej tej historii ogromną rolę, pomimo, że nie zdaje sobie z tego jeszcze sprawy.
-    

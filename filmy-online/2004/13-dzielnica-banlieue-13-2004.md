@@ -1,9 +1,5 @@
+13 Dzielnica / Banlieue 13 2004 
+=============
+[![13 Dzielnica / Banlieue 13 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/13-dzielnica-banlieue-13-2004)
 
-        13 Dzielnica / Banlieue 13 2004 
-        =============
-        
-        [![13 Dzielnica / Banlieue 13 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/13-dzielnica-banlieue-13-2004)
-        
-        
  Akcja filmu rozgrywa się w Paryżu w roku 2013, który jest podzielony na dzielnice. Jedną z nich jest 13 Dzielnica, którą na polecenie rządu oddzielono murem od reszty miasta. Gangi są tu jedyną władzą, żadnych praw, żadnych reguł, żadnych zasad... Jedyną osobą, która próbuje utrzymać porządek w dzielnicy jest Leito ( w tej roli znakomity David Belle) walczący z gangsterami i handlarzami narkotyków. Damien (Cyril Raffaelli) znakomicie wyszkolony agent oddziału prewencji, specjalista sztuk walki dostaje do wykonania nowe zadanie. Tym razem rząd stawia go na czele najbardziej niebezpiecznej misji w jego karierze. W ciągu 24 godzin musi odzyskać bombę masowego rażenia, która została skradziona przez gang Tahy (Bibi Naceri). Odpowiedzialny za akcje musi znaleźć sprzymierzeńca. Będzie nim Leito. Poza nim, nikt nie zna 13 Dzielnicy lepiej niż on. Szybko okazuje się, że oprócz odnalezienia bomby, Leito musi odszukać i uratować Lolę (Dany Verissimo) młodszą siostrę, która również została porwana przez gang.  ... specjalista sztuk walki dostaje do wykonania nowe zadanie. Tym razem rząd stawia go na czele najbardziej niebezpiecznej misji w jego karierze. W ciągu 24 godzin musi odzyskać bombę masowego rażenia, która została skradziona przez gang Tahy (Bibi Naceri). Odpowiedzialny za akcje musi znaleźć sprzymierzeńca. Będzie nim Leito. Poza nim, nikt nie zna 13 Dzielnicy lepiej niż on. Szybko okazuje się, że oprócz odnalezienia bomby, Leito musi odszukać i uratować Lolę (Dany Verissimo) młodszą siostrę, która również została porwana przez gang.
-    

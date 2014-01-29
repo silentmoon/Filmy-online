@@ -1,9 +1,5 @@
+Kongres / The Congress 2013 
+=============
+[![Kongres / The Congress 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kongres-the-congress-2013)
 
-        Kongres / The Congress 2013 
-        =============
-        
-        [![Kongres / The Congress 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kongres-the-congress-2013)
-        
-        
  W 'Kongresie' zacierają się granice między rzeczywistością i fikcją: słynna aktorka Robin Wright, gra tu samą siebie. Mieszka z dwójką dorastających dzieci na rancho, z dala od cywilizacji, kiedy wielkie hollywoodzkie studio zwraca się do niej z niezwykłą propozycją. Wright może zostać 'zeskanowana' dzięki zaawansowanej technologii cyfrowej, osiągając w każdym kolejnym filmie wieczną młodość. Od tej pory wszystkie jej role zagra wirtualna kopia. Decyzja, którą podejmuje kobieta, by móc dysponować nieograniczonym czasem dla najbliższych, okazuje się początkiem jej podróży przez świat przyszłości, w którym potężne studia filmowe i koncerny farmaceutyczne oferują totalne formy rozrywki, manipulując ludzką świadomością. 'Kongres' to film nowatorski i odważny, pełen pomysłów ukazujących w krzywym zwierciadle świat nieograniczonych możliwości technologicznych, które już wkrótce mogą wyznaczyć granice naszej wolności i dyktować pragnienia.  ... kobieta, by móc dysponować nieograniczonym czasem dla najbliższych, okazuje się początkiem jej podróży przez świat przyszłości, w którym potężne studia filmowe i koncerny farmaceutyczne oferują totalne formy rozrywki, manipulując ludzką świadomością. 'Kongres' to film nowatorski i odważny, pełen pomysłów ukazujących w krzywym zwierciadle świat nieograniczonych możliwości technologicznych, które już wkrótce mogą wyznaczyć granice naszej wolności i dyktować pragnienia.
-    

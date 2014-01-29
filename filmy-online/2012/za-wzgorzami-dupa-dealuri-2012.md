@@ -1,9 +1,5 @@
+Za wzgórzami / Dupa dealuri 2012 
+=============
+[![Za wzgórzami / Dupa dealuri 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/za-wzgorzami-dupa-dealuri-2012)
 
-        Za wzgórzami / Dupa dealuri 2012 
-        =============
-        
-        [![Za wzgórzami / Dupa dealuri 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/za-wzgorzami-dupa-dealuri-2012)
-        
-        
  Voichita (Cosmina Stratan) jest mniszką w żeńskim klasztorze usytuowanym na wzgórzach małego miasteczka. Czas mija jej na codziennych obowiązkach i modlitwie. Pewnego dnia do tej sielankowej krainy przybywa Alina (Cristina Flutur), przyjaciółka z sierocińca. Jej pojawienie się powoduje spore zamieszanie w życiu codziennym społeczności. Alina próbuje namówić Voichitę do powrotu do życia świeckiego i wyjazdu do Niemiec. Targana wątpliwościami mniszka zwraca się do Boga o radę. Próby namówienia Voichity do wyjazdu powodują u Aliny wystąpienie objawów epilepsji, która omylnie zostaje wzięta przez księdza za stan opętania. Księdzu (Valeriu Andriuta) nie pozostaje więc nic innego, jak spróbować zaradzić temu zdarzeniu w sposób tradycyjny dla chrześcijaństwa.   ... Próby namówienia Voichity do wyjazdu powodują u Aliny wystąpienie objawów epilepsji, która omylnie zostaje wzięta przez księdza za stan opętania. Księdzu (Valeriu Andriuta) nie pozostaje więc nic innego, jak spróbować zaradzić temu zdarzeniu w sposób tradycyjny dla chrześcijaństwa.
-    

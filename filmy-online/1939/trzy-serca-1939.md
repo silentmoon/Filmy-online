@@ -1,9 +1,5 @@
+Trzy serca 1939 
+=============
+[![Trzy serca 1939 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trzy-serca-1939)
 
-        Trzy serca 1939 
-        =============
-        
-        [![Trzy serca 1939 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trzy-serca-1939)
-        
-        
  W majątku Prudy panuje wielka radość. Hrabina Tyniecka ( Leokadia Pancewiczowa) została szczęśliwą mamą Goga (Aleksander Żabczyński), stan zdrowia nie pozwala jej jednak samodzielnie karmić maleństwa. Ponieważ w tym samym czasie Michalina (Zofia Lindorf), żona lokaja Aleksandra Zudry (Tadeusz Białoszczyński) również powiła chłopca, zostaje mamką panicza. Gdy okazuje się, że życie małego Maciusia, synka Zudrów jest zagrożone, Michalina postanawia zamienić dzieci, które są do siebie łudząco podobne. Gogo, Maciuś, który wrócił do zdrowia oraz ich rówieśnica Kasia, córka przedwcześnie zmarłej przyjaciółki hrabiny, wychowują się razem, spędzając czas na wspólnych zabawach. Niebawem Gogo wyjeżdża za granicę do szkoły. Po wieloletniej nieobecności wraca do majątku, zakochuje się w pięknej Kasi (Elżbieta Barszczewska) i niedługo odbywa się ich ślub. W tym czasie umiera Michalina, wyznając na łożu śmierci całą prawdę o zamianie dzieci. Maciek odzyskuje tytuł i majątek a Gogo, który wszystko traci, wyjeżdża z Kasią, która w tej trudnej chwili go nie opuszcza, do Warszawy. Jest to czas ciężkiej próby dla całej trójki...   ... siebie łudząco podobne. Gogo, Maciuś, który wrócił do zdrowia oraz ich rówieśnica Kasia, córka przedwcześnie zmarłej przyjaciółki hrabiny, wychowują się razem, spędzając czas na wspólnych zabawach. Niebawem Gogo wyjeżdża za granicę do szkoły. Po wieloletniej nieobecności wraca do majątku, zakochuje się w pięknej Kasi (Elżbieta Barszczewska) i niedługo odbywa się ich ślub. W tym czasie umiera Michalina, wyznając na łożu śmierci całą prawdę o zamianie dzieci. Maciek odzyskuje tytuł i majątek a Gogo, który wszystko traci, wyjeżdża z Kasią, która w tej trudnej chwili go nie opuszcza, do Warszawy. Jest to czas ciężkiej próby dla całej trójki...
-    

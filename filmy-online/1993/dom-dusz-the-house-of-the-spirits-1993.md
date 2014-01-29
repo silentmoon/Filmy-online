@@ -1,9 +1,5 @@
+Dom dusz / The House of the Spirits 1993 
+=============
+[![Dom dusz / The House of the Spirits 1993 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dom-dusz-the-house-of-the-spirits-1993)
 
-        Dom dusz / The House of the Spirits 1993 
-        =============
-        
-        [![Dom dusz / The House of the Spirits 1993 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dom-dusz-the-house-of-the-spirits-1993)
-        
-        
  Wielowątkowa historia rozpoczynająca się opowieścią o ubogim właścicielu plantacji Estebanie, posiadającym wielkie ambicje i pragnienie zrealizowania wszystkich swoich marzeń, którego cały świat nagle legnie w gruzach w wyniku tragicznej śmierci narzeczonej. Po pewnym czasie Esteban poślubia jej młodszą siostrę Clarę, posiadającą niezwykły dar przepowiadania przyszłości. Z ich związku rodzi się dziewczynka - Blanca. Mijają lata, w czasie których Esteban zmienia się w okrutnego człowieka, który karierę polityczną i zdobywanie bogactwa przedkłada nad najbliższą rodzinę, od której się powoli oddala. Esteban popada również w konflikt z Blanką, sprzeciwiając się jej związkowi z ubogim rewolucjonistą Pedrem Trzecim. Uporządkowany świat Estebana zaczyna się gwałtownie rozpadać kiedy komuniści przejmują kontrolę nad rządem w Chile. Jest to początek koszmaru dla jego rodziny, gdzyż Blanca dostaje się do więzienia, w którym oficerowie starają się wyciągnąć od niej informacje na temat Pedra Trzeciego, który związał się z komunistami. Przyjdzie czas, kiedy Esteban zrozumie wszystkie swoje winy, starając się uwolnić Blankę i odzyskać to, co w swoim życiu po drodze utracił...  ... okrutnego człowieka, który karierę polityczną i zdobywanie bogactwa przedkłada nad najbliższą rodzinę, od której się powoli oddala. Esteban popada również w konflikt z Blanką, sprzeciwiając się jej związkowi z ubogim rewolucjonistą Pedrem Trzecim. Uporządkowany świat Estebana zaczyna się gwałtownie rozpadać kiedy komuniści przejmują kontrolę nad rządem w Chile. Jest to początek koszmaru dla jego rodziny, gdzyż Blanca dostaje się do więzienia, w którym oficerowie starają się wyciągnąć od niej informacje na temat Pedra Trzeciego, który związał się z komunistami. Przyjdzie czas, kiedy Esteban zrozumie wszystkie swoje winy, starając się uwolnić Blankę i odzyskać to, co w swoim życiu po drodze utracił...
-    

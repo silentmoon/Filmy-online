@@ -1,9 +1,5 @@
+Pytając o miłość / Ask the Dust 2006 
+=============
+[![Pytając o miłość / Ask the Dust 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pytajac-o-milosc-ask-the-dust-2006)
 
-        Pytając o miłość / Ask the Dust 2006 
-        =============
-        
-        [![Pytając o miłość / Ask the Dust 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pytajac-o-milosc-ask-the-dust-2006)
-        
-        
  Colin Farrell wciela się w rolę nadwrażliwego artysty, Arturo Bandiniego, bezskutecznie próbującego napisać powieść swojego życia. Czas wypełnia mu włóczenie się po ulicach, przesiadywanie w podejrzanych spelunkach... a także użeranie się z wiecznie pijanym kolegą z hotelowego pokoju - Hellfrickiem (Donald Sutherland). Wymarzona sława nie przychodzi, a pieniądze znikają bezpowrotnie. Z garścią ostatnich drobniaków, Arturo wybiera się do baru. Poznaje tam meksykańską kelnerkę Camillę López (Salma Hayek), która przyjechała do Ameryki, aby bogato wyjść za mąż. Tak właśnie rozpoczyna się ten - pełen miłości, obsesji i nienawiści - toksyczny związek.  ... Camillę López (Salma Hayek), która przyjechała do Ameryki, aby bogato wyjść za mąż. Tak właśnie rozpoczyna się ten - pełen miłości, obsesji i nienawiści - toksyczny związek.
-    

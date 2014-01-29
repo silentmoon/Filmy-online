@@ -1,9 +1,5 @@
+Epoka lodowcowa 2: Odwilż / Ice Age 2: The Meltdown 2006 
+=============
+[![Epoka lodowcowa 2: Odwilż / Ice Age 2: The Meltdown 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/epoka-lodowcowa-2-odwilz-ice-age-2-the-meltdown-2006)
 
-        Epoka lodowcowa 2: Odwilż / Ice Age 2: The Meltdown 2006 
-        =============
-        
-        [![Epoka lodowcowa 2: Odwilż / Ice Age 2: The Meltdown 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/epoka-lodowcowa-2-odwilz-ice-age-2-the-meltdown-2006)
-        
-        
  Epoka lodowcowa dobiega końca. Gruba pokrywa lodowa topnieje, zagrażając zwierzętom, które mieszkają w dolinie. Sęp daje im wskazówkę: jeśli nie chcą utonąć w wodzie ze stopniałego lodowca, muszą udać się na drugą stronę doliny, gdzie czeka na nich ratunek - łódź, do której zmieszczą się wszystkie. Chcąc nie chcąc zwierzaki wyruszają na pielgrzymkę. Wśród nich są znani z pierwszej części filmu mamut Maniek, leniwiec Sid i tygrys szablozębny Diego. Tylko szalony Wiewiór zostaje, za wszelką cenę chcąc 'upolować' orzeszka. W filmie nie zabraknie nowych bohaterów. Wśród nich na pierwszy plan wysuwa się mamucica Ela i wyjątkowo dokuczliwe oposy: Zdzich i Edek.  ... zostaje, za wszelką cenę chcąc 'upolować' orzeszka. W filmie nie zabraknie nowych bohaterów. Wśród nich na pierwszy plan wysuwa się mamucica Ela i wyjątkowo dokuczliwe oposy: Zdzich i Edek.
-    

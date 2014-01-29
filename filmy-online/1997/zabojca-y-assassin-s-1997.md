@@ -1,9 +1,5 @@
+Zabójca(y) / Assassin(s) 1997 
+=============
+[![Zabójca(y) / Assassin(s) 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabojca-y-assassin-s-1997)
 
-        Zabójca(y) / Assassin(s) 1997 
-        =============
-        
-        [![Zabójca(y) / Assassin(s) 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabojca-y-assassin-s-1997)
-        
-        
  Film opowiada historię Maxa, 30-letniego młodego faceta żyjącego z drobnych kradzieży i włamań. Robi to łamiąc zasady włamywaczy, ponieważ włamuje się do swoich sąsiadów na ulicy i do pobliskich sklepów. Podczas jednej z takich akcji przypadkiem jest świadkiem wyroku śmierci wykonywanego przez profesjonalnego zabójcę. Niepozorny, starszy i siwiejący brodacz - monsieur Wagner okazuje się jednak sprytniejszy i odkrywa, że miał świadka swojej pracy. Odnajduje on Maxa, zdobywa sprytnie zaufanie matki i zamiast likwidować postanawia wprowadzić go w 'zawód' zabójcy. Robi to na przypadkowo wybranym sąsiedzie Maxa - wykonanie wyroku na jęczącym i krwawiącym staruszku jest jednak trudnym zadaniem. Ma też być dla niego swoistym chrztem zawodowym. Nowy adept ponurego fachu przez przypadek wciąga jeszcze Mahdiego - nastoletniego złodziejaszka do nowych zleceń .... Dobry, łamiący schematy film o znaczeniu śmierci, o beznadziei, o samozagładzie. Zachęcam, ale tylko widzów o mocnych nerwach.  ... sprytnie zaufanie matki i zamiast likwidować postanawia wprowadzić go w 'zawód' zabójcy. Robi to na przypadkowo wybranym sąsiedzie Maxa - wykonanie wyroku na jęczącym i krwawiącym staruszku jest jednak trudnym zadaniem. Ma też być dla niego swoistym chrztem zawodowym. Nowy adept ponurego fachu przez przypadek wciąga jeszcze Mahdiego - nastoletniego złodziejaszka do nowych zleceń .... Dobry, łamiący schematy film o znaczeniu śmierci, o beznadziei, o samozagładzie. Zachęcam, ale tylko widzów o mocnych nerwach.
-    

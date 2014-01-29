@@ -1,9 +1,5 @@
+Fair Game 2010 
+=============
+[![Fair Game 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fair-game-2010)
 
-        Fair Game 2010 
-        =============
-        
-        [![Fair Game 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fair-game-2010)
-        
-        
  Film „Fair Game” to dramat oparty na biografii Valerie Plame Wilson (Naomi Watts), byłej tajnej agentki CIA. W lipcu 2003 roku mąż Valerie, ambasador Joseph Wilson, na łamach New York Times oskarżył administrację prezydenta George'a W. Busha o manipulowanie i okłamywanie opinii publicznej w sprawie posiadania przez Irak broni masowego rażenia. Fakt ten miał usprawiedliwić atak Stanów Zjednoczonych na Irak, mający miejsce cztery miesiące wcześniej. Konsekwencją ruchu ambasadora było ujawnienie tożsamości jego żony oraz jej powiązań z agencją, co w USA jest przestępstwem. W 2005 roku Valerie odeszła z CIA i razem z mężem złożyła sprawę do sądu z powództwa cywilnego. W wyniku procesu skazany został szef sztabu wiceprezydenta Dicka Cheneya, Lewis 'Scooter' Libby.  ... ambasadora było ujawnienie tożsamości jego żony oraz jej powiązań z agencją, co w USA jest przestępstwem. W 2005 roku Valerie odeszła z CIA i razem z mężem złożyła sprawę do sądu z powództwa cywilnego. W wyniku procesu skazany został szef sztabu wiceprezydenta Dicka Cheneya, Lewis 'Scooter' Libby.
-    

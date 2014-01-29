@@ -1,9 +1,5 @@
+O północy w Paryżu / Midnight in Paris 2011 
+=============
+[![O północy w Paryżu / Midnight in Paris 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/o-polnocy-w-paryzu-midnight-in-paris-2011)
 
-        O północy w Paryżu / Midnight in Paris 2011 
-        =============
-        
-        [![O północy w Paryżu / Midnight in Paris 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/o-polnocy-w-paryzu-midnight-in-paris-2011)
-        
-        
  W 'O północy w Paryżu' śledzimy losy niedawno zaręczonej pary. Inez (Rachel McAdams) i Gil (Owen Wilson) przybywają do światowej stolicy romansu, by zaplanować ślub. Jednak wierność zakochanych zostanie wystawiona na próbę, gdy na ich drodze pojawią się wyrafinowany znawca sztuki Paul (Michael Sheen) oraz tajemnicza i zmysłowa muza Adriana (Marion Cotillard), a po czarujących zakątkach Paryża zacznie oprowadzać ich sama Carla Bruni! W gwiazdorskiej obsadzie magicznej komedii Woody’ego Allena znajdziemy także laureatów Oscara, Adriena Brody'ego oraz Kathy Bates w rolach miłosnych doradców Gila. 'O północy w Paryżu' to nie tylko najbardziej chwalony od lat obraz mistrza oraz jeden z pierwszych faworytów do przyszłorocznych Oscarów, ale także największy przebój Allena od 25 lat. Po pokonaniu historycznego wyniku 'Vicky Cristina Barcelona', paryska fantazja miłosna reżysera pobije wkrótce kasowe rekordy, ustanowione przez klasyczne, nagrodzone przez Amerykańską Akademię Filmową komedie 'Manhattan', 'Annie Hall' i 'Hannah i jej siostry'!  ... Woody’ego Allena znajdziemy także laureatów Oscara, Adriena Brody'ego oraz Kathy Bates w rolach miłosnych doradców Gila. 'O północy w Paryżu' to nie tylko najbardziej chwalony od lat obraz mistrza oraz jeden z pierwszych faworytów do przyszłorocznych Oscarów, ale także największy przebój Allena od 25 lat. Po pokonaniu historycznego wyniku 'Vicky Cristina Barcelona', paryska fantazja miłosna reżysera pobije wkrótce kasowe rekordy, ustanowione przez klasyczne, nagrodzone przez Amerykańską Akademię Filmową komedie 'Manhattan', 'Annie Hall' i 'Hannah i jej siostry'!
-    

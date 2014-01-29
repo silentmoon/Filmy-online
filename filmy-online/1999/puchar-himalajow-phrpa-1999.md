@@ -1,9 +1,5 @@
+Puchar Himalajów / Phörpa 1999 
+=============
+[![Puchar Himalajów / Phörpa 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/puchar-himalajow-phrpa-1999)
 
-        Puchar Himalajów / Phörpa 1999 
-        =============
-        
-        [![Puchar Himalajów / Phörpa 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/puchar-himalajow-phrpa-1999)
-        
-        
  W Tybecie, okupowanym przez Chińczyków, stało się tradycją wysyłanie małych Tybetańczyków do rozrzuconych na wygnaniu tybetańskich klasztorów. Kilkunastoletni Palden i Nyima trafiają do klasztoru położonego w malowniczym zakątku Himalajów. Z dziecinną radością chłoną nauki lamy i uczą się życia. Cóż jednak, kiedy nie mają tam dostępu do ukochanego przez chłopców futbolu. A zbliżają się mistrzostwa świata. Młodzi mnisi w desperacji wymykają się do wioskowej kawiarni, kombinują i wagarują, byle tylko oglądać rozgrywki. Grozi im za to jednak wyrzucenie z klasztoru. Mądry opiekun Geko uznaje wreszcie, że woli pozwolić na oglądanie transmisji na terenie klasztoru niż na samotne wycieczki. Rozpoczyna się gorączkowe poszukiwanie anteny satelitarnej, choćby najbardziej zdezelowanego telewizora i klubowych emblematów, niezbędnych w takiej chwili. Czy dobry Budda uśmiechnie się do zwariowanych na punkcie piłki nożnej nastolatków? Historia pełna ciepłego humoru i tybetańskich mądrości ukazuje, prócz codziennego życia buddyjskich mnichów XXI wieku, niezłomną choć pozbawioną przemocy walkę narodu o utrzymanie swych tradycji i tożsamości.   ... i wagarują, byle tylko oglądać rozgrywki. Grozi im za to jednak wyrzucenie z klasztoru. Mądry opiekun Geko uznaje wreszcie, że woli pozwolić na oglądanie transmisji na terenie klasztoru niż na samotne wycieczki. Rozpoczyna się gorączkowe poszukiwanie anteny satelitarnej, choćby najbardziej zdezelowanego telewizora i klubowych emblematów, niezbędnych w takiej chwili. Czy dobry Budda uśmiechnie się do zwariowanych na punkcie piłki nożnej nastolatków? Historia pełna ciepłego humoru i tybetańskich mądrości ukazuje, prócz codziennego życia buddyjskich mnichów XXI wieku, niezłomną choć pozbawioną przemocy walkę narodu o utrzymanie swych tradycji i tożsamości.
-    

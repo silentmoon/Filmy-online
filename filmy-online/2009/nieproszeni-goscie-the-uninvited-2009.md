@@ -1,9 +1,5 @@
+Nieproszeni goście / The Uninvited 2009 
+=============
+[![Nieproszeni goście / The Uninvited 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nieproszeni-goscie-the-uninvited-2009)
 
-        Nieproszeni goście / The Uninvited 2009 
-        =============
-        
-        [![Nieproszeni goście / The Uninvited 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nieproszeni-goscie-the-uninvited-2009)
-        
-        
  W trzymającym w napięciu thrillerze “Nieproszeni goście” śmiertelna rozgrywka rozpoczyna się w momencie, kiedy Anna (Emily Browning) wraca do domu z leczenia psychiatrycznego i zaczyna odkrywać okoliczności otaczające przedwczesną i dość tajemniczą śmierć matki. Podczas gdy dziewczyna stara się poradzić sobie z traumatycznymi przeżyciami, jej ojciec (David Strathairn) zaręcza się z Rachel (Elizabeth Banks), będącą wcześniej opiekunką matki i razem już wprowadzają się do wspólnego domu. Rozpacz Anny szybko przeradza się w horror – nawiedza ją duch matki, nawołujący do pomszczenia jej nieprzypadkowej śmierci i wyciągający oskarżycielski palec w stronę Rachel.  Oczarowany Rachel ojciec pozostaje głuchy na ostrzeżenia córki, ona zaś wraz z siostrą Alex (Arielle Kebbel), stara się dotrzeć do prawdy nieco bardziej wnikliwie przyglądając się niejasnej przeszłości Rachel.  ... do wspólnego domu. Rozpacz Anny szybko przeradza się w horror – nawiedza ją duch matki, nawołujący do pomszczenia jej nieprzypadkowej śmierci i wyciągający oskarżycielski palec w stronę Rachel.  Oczarowany Rachel ojciec pozostaje głuchy na ostrzeżenia córki, ona zaś wraz z siostrą Alex (Arielle Kebbel), stara się dotrzeć do prawdy nieco bardziej wnikliwie przyglądając się niejasnej przeszłości Rachel.
-    

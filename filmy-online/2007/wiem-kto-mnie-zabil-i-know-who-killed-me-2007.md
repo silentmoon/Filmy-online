@@ -1,9 +1,5 @@
+Wiem kto mnie zabił / I Know Who Killed Me 2007 
+=============
+[![Wiem kto mnie zabił / I Know Who Killed Me 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiem-kto-mnie-zabil-i-know-who-killed-me-2007)
 
-        Wiem kto mnie zabił / I Know Who Killed Me 2007 
-        =============
-        
-        [![Wiem kto mnie zabił / I Know Who Killed Me 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiem-kto-mnie-zabil-i-know-who-killed-me-2007)
-        
-        
  Młoda dziewczyna po przetrwaniu ataku seryjnego mordercy cierpi na rozdwojenie osobowości. Z czasem najbliższym nasuwają się pytania czy jest to wynik szoku pourazowego czy może za całym wydarzeniem stoi coś . Pewnego dnia idyllicznym małym miasteczkiem wstrząsa wiadomość o uprowadzeniu młodej utalentowanej dziewczyny Aubrey Fleming (Lindsay Lohan). Sprawcą jest najprawdopodobniej seryjny morderca znany lokalnej policji i mediom z sadystycznych skłonności. Zanim dziewczynie udaje się od niego uciec jest torturowana przez wiele dni. W ciężkim szoku trafia do szpitala. Po odzyskaniu świadomości dziewczyna próbuje przekonać swoje otoczenie że nie jest osobą za którą ją uważają a prawdziwej Aubrey Fleming w dalszym ciągu grozi śmiertelne niebezpieczeństwo. [opis dystrybutora]  ... dziewczynie udaje się od niego uciec jest torturowana przez wiele dni. W ciężkim szoku trafia do szpitala. Po odzyskaniu świadomości dziewczyna próbuje przekonać swoje otoczenie że nie jest osobą za którą ją uważają a prawdziwej Aubrey Fleming w dalszym ciągu grozi śmiertelne niebezpieczeństwo. [opis dystrybutora]
-    

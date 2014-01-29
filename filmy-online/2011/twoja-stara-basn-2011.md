@@ -1,9 +1,5 @@
+Twoja stara. Baśń 2011 
+=============
+[![Twoja stara. Baśń 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/twoja-stara-basn-2011)
 
-        Twoja stara. Baśń 2011 
-        =============
-        
-        [![Twoja stara. Baśń 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/twoja-stara-basn-2011)
-        
-        
  Film skierowany do wszystkich wielbicieli parodii oraz poczucia humoru rodem z filmów Montyego Pythona! Głównym bohaterem filmu jest niejaki Gienko – skromny mazurski rybak, którego jednak bardziej interesują dziewczyny i miód pitny aniżeli rybołówstwo. Pewnego dnia bohater ten znajduje w lesie tajemniczy przedmiot, przez który wpada w poważne tarapaty – zostaje niesłusznie oskarżony o zabicie dwóch rycerzy. Ścigany przez „królewskich”, Gienko wyrusza do zamku szukać sprawiedliwości i zemsty, przeżywając (czasem ledwie o włos) po drodze wiele przygód (miedzy innymi spotkanie z Czerwonym Kapturkiem, Robin Hoodem czy walkę ze Smokiem Wawelskim). W tej komedii wszystko jest możliwe, a jej przebieg jest zupełnie nieprzewidywalny. Główny bohater przeżyje przygody, jakich nikt by sobie nie życzył. Przede wszystkim będzie musiał jednak radzić sobie sam i to naprawdę skutecznie.   ... sprawiedliwości i zemsty, przeżywając (czasem ledwie o włos) po drodze wiele przygód (miedzy innymi spotkanie z Czerwonym Kapturkiem, Robin Hoodem czy walkę ze Smokiem Wawelskim). W tej komedii wszystko jest możliwe, a jej przebieg jest zupełnie nieprzewidywalny. Główny bohater przeżyje przygody, jakich nikt by sobie nie życzył. Przede wszystkim będzie musiał jednak radzić sobie sam i to naprawdę skutecznie.
-    

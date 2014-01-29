@@ -1,9 +1,5 @@
+We mgle / V tumane 2012 
+=============
+[![We mgle / V tumane 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/we-mgle-v-tumane-2012)
 
-        We mgle / V tumane 2012 
-        =============
-        
-        [![We mgle / V tumane 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/we-mgle-v-tumane-2012)
-        
-        
  Zachodnia granica Związku Radzieckiego, 1942 r. Cały region jest okupowany przez Niemców, a lokalni partyzanci prowadzą brutalne walki odwetowe. Niedaleko od wioski, w której mieszka pracownik kolei Suszenja wraz z rodziną, dochodzi do wykolejenia pociągu. Niezwiązany z tym zdarzeniem Suszenja oraz grupa sabotażystów zostają aresztowani, ale niemiecki oficer postanawia, że nie powiesi go z pozostałymi partyzantami. Suszenja odzyskuje wolność, w okolicy szybko rozchodzą się plotki o jego rzekomej zdradzie, a zlecenie wyjścia z lasu i pomszczenia śmierci współtowarzyszy broni otrzymują partyzanci Burow i Wojtek. W czasie prowadzenia pojmanego Suszenji przez las obaj partyzanci wpadają w zasadzkę. Nieoczekiwanie Suszenja zostaje sam na sam z rannym wrogiem. Głęboko w pradawnym lesie, gdzie nie istnieją kategorie przyjaciół czy wrogów i zanika całkowicie granica między zdradą a heroizmem, los zmusza bohatera do podjęcia wyboru moralnego w niemoralnych warunkach.   ... plotki o jego rzekomej zdradzie, a zlecenie wyjścia z lasu i pomszczenia śmierci współtowarzyszy broni otrzymują partyzanci Burow i Wojtek. W czasie prowadzenia pojmanego Suszenji przez las obaj partyzanci wpadają w zasadzkę. Nieoczekiwanie Suszenja zostaje sam na sam z rannym wrogiem. Głęboko w pradawnym lesie, gdzie nie istnieją kategorie przyjaciół czy wrogów i zanika całkowicie granica między zdradą a heroizmem, los zmusza bohatera do podjęcia wyboru moralnego w niemoralnych warunkach.
-    

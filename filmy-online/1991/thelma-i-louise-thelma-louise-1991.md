@@ -1,9 +1,5 @@
+Thelma i Louise / Thelma & Louise 1991 
+=============
+[![Thelma i Louise / Thelma & Louise 1991 ](http://vidos.pl/images/player.gif)](http://vidos.pl/thelma-i-louise-thelma-louise-1991)
 
-        Thelma i Louise / Thelma & Louise 1991 
-        =============
-        
-        [![Thelma i Louise / Thelma & Louise 1991 ](http://vidos.pl/images/player.gif)](http://vidos.pl/thelma-i-louise-thelma-louise-1991)
-        
-        
  Thelma (Geena Davis) jest gospodynią domową, żoną sprzedawcy dywanów. Jej życie sprowadza się do dbania o dom i gotowania posiłków mężowi, który traktuje ją jak duże, pozbawione własnego zdania, dziecko. Louise (Susan Sarandon), kobieta dojrzała, jest kelnerką, znudzoną i sfrustrowaną codziennym powtarzaniem tych samych czynności. Od lat żyje z muzykiem Jimmym (Michael Madsen), który nie może zdecydować się na małżeństwo. Pewnego dnia obie przyjaciółki postanawiają oderwać się od codzienności i wybrać na weekend do wynajętego domku w górach. Zatrzymują się na drinka w przydrożnym barze. Tam za sprawą alkoholu, muzyki i tańców Thelma rozluźnia się. Rozbawiona wychodzi na powietrze z poznanym przed chwilą mężczyzną. Przeżywa szok, gdy ten na parkingu próbuje ją zgwałcić. Z opresji wybawia ją Louise, zabijając napastnika. Przerażone tym, co się stało, przyjaciółki uciekają w kierunku Meksyku - mitycznego celu podróży wszelkich banitów...  ... się od codzienności i wybrać na weekend do wynajętego domku w górach. Zatrzymują się na drinka w przydrożnym barze. Tam za sprawą alkoholu, muzyki i tańców Thelma rozluźnia się. Rozbawiona wychodzi na powietrze z poznanym przed chwilą mężczyzną. Przeżywa szok, gdy ten na parkingu próbuje ją zgwałcić. Z opresji wybawia ją Louise, zabijając napastnika. Przerażone tym, co się stało, przyjaciółki uciekają w kierunku Meksyku - mitycznego celu podróży wszelkich banitów...
-    

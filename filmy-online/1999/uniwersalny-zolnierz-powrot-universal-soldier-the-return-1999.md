@@ -1,9 +1,5 @@
+Uniwersalny żołnierz: Powrót / Universal Soldier: The Return 1999 
+=============
+[![Uniwersalny żołnierz: Powrót / Universal Soldier: The Return 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uniwersalny-zolnierz-powrot-universal-soldier-the-return-1999)
 
-        Uniwersalny żołnierz: Powrót / Universal Soldier: The Return 1999 
-        =============
-        
-        [![Uniwersalny żołnierz: Powrót / Universal Soldier: The Return 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uniwersalny-zolnierz-powrot-universal-soldier-the-return-1999)
-        
-        
  Luc Devereaux (Jean-Claude Van Damme), który jako jedyny ocalał z pierwszego zespołu żołnierzy-robotów, pracuje obecnie jako ekspert techniczny przy udoskonalaniu kolejnej wersji cybernetycznego żołnierza. W pewnym momencie armia odmawia finansowania dalszych prac. W sztabie zapada decyzja o zniszczeniu kierującego systemem uniwersalnych żołnierzy superkomputera S.E.T.H., ukrytego w ciele Jasona Wellsa (Michael Jai White). S.E.T.H. wypowiada posłuszeństwo ludziom i wymyka się spod kontroli. W konfrontacji z nim zwykli, nawet najlepiej przygotowani komandosi są bez szans. Cała nadzieja tkwi w Lucu. Mężczyzna decyduje się podjąć walkę z superkomputerem. Może liczyć na pomoc dwóch wspaniałych kobiet: Erin (Heidi Schanz) - reporterki piszącej na temat uniwersalnych żołnierzy oraz swojej partnerki, Maggie (Kiana Tom).  ... spod kontroli. W konfrontacji z nim zwykli, nawet najlepiej przygotowani komandosi są bez szans. Cała nadzieja tkwi w Lucu. Mężczyzna decyduje się podjąć walkę z superkomputerem. Może liczyć na pomoc dwóch wspaniałych kobiet: Erin (Heidi Schanz) - reporterki piszącej na temat uniwersalnych żołnierzy oraz swojej partnerki, Maggie (Kiana Tom).
-    

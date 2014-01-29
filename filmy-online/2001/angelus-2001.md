@@ -1,9 +1,5 @@
+Angelus 2001 
+=============
+[![Angelus 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/angelus-2001)
 
-        Angelus 2001 
-        =============
-        
-        [![Angelus 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/angelus-2001)
-        
-        
  Film jest fantazją na temat dziejów istniejącej w rzeczywistości na Śląsku tzw. janowskiej gminy okultystycznej. W latach międzywojennych w okręgu janowskim koło Katowic grupa prostych górników studiowała i praktykowała nauki tajemne, astrologię i alchemię. Janów stał się ważnym ośrodkiem wiedzy hermetycznej i ezoterycznej duchowości. Wielu członków janowskiej gminy okultystycznej zajmowało się również sztuką - utrzymujący regularne kontakty z różokrzyżowcami górnicy malowali obrazy, w których odbijał się świat ich mistycznych przeżyć. Sławę jako artysta zdobył zwłaszcza przywódca grupy, Teofil Ociepka. Po wojnie władze stalinowskie krzywo patrzyły na ezoteryczne przekonania Ślązaków, ale postanowiły propagandowo wykorzystać ich sztukę. Malarstwo Ociepki, Erwina Sówki i innych malujących okultystów zostało przedstawione jako naiwna twórczość ludowa górników - czyli awangardy klasy robotniczej. Grupa janowska znalazła się w delikatnym położeniu - pragnęła pozostać wierna swoim przekonaniom, a jednocześnie uniknąć represji. Angelus to na pół fikcyjna, na pół trzymająca się faktów opowieść o dziejach gminy janowskiej, obejmująca czas od lat 30. do połowy 50. Jądrem fabuły jest przewidywana przez Ociepkę i jego przyjaciół inwazja z Saturna oraz ofiara, którą postanawiają złożyć, aby tragedii zapobiec.   ... obrazy, w których odbijał się świat ich mistycznych przeżyć. Sławę jako artysta zdobył zwłaszcza przywódca grupy, Teofil Ociepka. Po wojnie władze stalinowskie krzywo patrzyły na ezoteryczne przekonania Ślązaków, ale postanowiły propagandowo wykorzystać ich sztukę. Malarstwo Ociepki, Erwina Sówki i innych malujących okultystów zostało przedstawione jako naiwna twórczość ludowa górników - czyli awangardy klasy robotniczej. Grupa janowska znalazła się w delikatnym położeniu - pragnęła pozostać wierna swoim przekonaniom, a jednocześnie uniknąć represji. Angelus to na pół fikcyjna, na pół trzymająca się faktów opowieść o dziejach gminy janowskiej, obejmująca czas od lat 30. do połowy 50. Jądrem fabuły jest przewidywana przez Ociepkę i jego przyjaciół inwazja z Saturna oraz ofiara, którą postanawiają złożyć, aby tragedii zapobiec.
-    

@@ -1,9 +1,5 @@
+Nie kłam, kochanie 2008 
+=============
+[![Nie kłam, kochanie 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nie-klam-kochanie-2008)
 
-        Nie kłam, kochanie 2008 
-        =============
-        
-        [![Nie kłam, kochanie 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nie-klam-kochanie-2008)
-        
-        
  'Nie kłam, kochanie' nie jest bajką. To miłosna historia, podana lekko, jednak nie pozostająca w oderwaniu od życia, w której wszelkiego rodzaju zawirowania towarzyszące jej bohaterom wypływają z sytuacji realnych. Ma pokazać, w jaki sposób kłamstwo i manipulacja może stanąć w szranki z uczciwością, prostolinijnością i naiwnością. I – kto kogo 'przechytrzy', kto wygra ten pojedynek, w którym stawką jest miłość… A co robi w naszej historii kaktus? Cóż, dziewczyna, która kocha kaktusy i mówi do nich po imieniu to chyba jedyna osoba, która potrafi w kłamcy i cyniku dostrzec coś dobrego i zmienić go… A wtedy – nawet kolczasty kaktus potrafi zakwitnąć pięknym kwiatem. W większości miłosnych historii dotąd królowały róże. W naszej – kaktusy. Też z kolcami. Ale z jakim charakterem!  ... kaktusy i mówi do nich po imieniu to chyba jedyna osoba, która potrafi w kłamcy i cyniku dostrzec coś dobrego i zmienić go… A wtedy – nawet kolczasty kaktus potrafi zakwitnąć pięknym kwiatem. W większości miłosnych historii dotąd królowały róże. W naszej – kaktusy. Też z kolcami. Ale z jakim charakterem!
-    

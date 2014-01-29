@@ -1,9 +1,5 @@
+Czarna perła 1934 
+=============
+[![Czarna perła 1934 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czarna-perla-1934)
 
-        Czarna perła 1934 
-        =============
-        
-        [![Czarna perła 1934 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czarna-perla-1934)
-        
-        
  Ciężko pobity polski marynarz Stefan Nadolski (Eugeniusz Bodo) dochodzi do zdrowia w chacie Moany (Anne Chevalier), w której obronie stanął, gdy ta została zaczepiona w tahitańskim barze. W świętej grocie miłości, głęboko ukrytej w dżungli, zakochana dziewczyna wręcza Stefanowi wianek z kwiatów, co według miejscowych zwyczajów oznacza, że ich miłość trwać będzie wiecznie. Gdy o wizycie w grocie dowiaduje się miejscowy barman (Jan Woskowski), również Polak, błaga rodaka, żeby go tam zaprowadził, w grocie bowiem ukryte są perły, które tutejsi poławiacze pereł składają w ofierze bóstwom, wierząc, że to przyniesie im szczęście. Za ich sprzedaż chce sfinansować swój powrót do ojczyzny. W drodze powrotnej z groty barman ginie, ukąszony przez jadowitego węża, skradzione przez niego perły Stefan zabiera ze sobą i wsiada na odpływający do Polski statek a wraz z nim Moana. W Gdyni Nadolski otwiera firmę transportową i wiedzie życie bogatego przedsiębiorcy. Niebawem jednak na jego drodze staje piękna Rena (Lena Żelichowska), członkini gangu, który chce zdobyć przywiezione prze niego z Tahiti perły.   ... go tam zaprowadził, w grocie bowiem ukryte są perły, które tutejsi poławiacze pereł składają w ofierze bóstwom, wierząc, że to przyniesie im szczęście. Za ich sprzedaż chce sfinansować swój powrót do ojczyzny. W drodze powrotnej z groty barman ginie, ukąszony przez jadowitego węża, skradzione przez niego perły Stefan zabiera ze sobą i wsiada na odpływający do Polski statek a wraz z nim Moana. W Gdyni Nadolski otwiera firmę transportową i wiedzie życie bogatego przedsiębiorcy. Niebawem jednak na jego drodze staje piękna Rena (Lena Żelichowska), członkini gangu, który chce zdobyć przywiezione prze niego z Tahiti perły.
-    

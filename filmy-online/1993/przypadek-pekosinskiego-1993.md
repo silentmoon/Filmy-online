@@ -1,9 +1,5 @@
+Przypadek Pekosińskiego 1993 
+=============
+[![Przypadek Pekosińskiego 1993 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przypadek-pekosinskiego-1993)
 
-        Przypadek Pekosińskiego 1993 
-        =============
-        
-        [![Przypadek Pekosińskiego 1993 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przypadek-pekosinskiego-1993)
-        
-        
  Film przedstawia prawdziwą postać o niepowtarzalnej biografii. Pekosiński żyje w Polsce, mieszka w Zamościu, ma prawdopodobnie 53 lata. Nie ma rodziny, nie wie kim jest. W tym życiu wszystko zostało skonstruowane sztucznie: i symboliczna data urodzin - dzień wybuchu drugiej wojny światowej, i nazwisko - od skrótu nazwy instytucji opiekuńczej PKOS, i miejsce urodzenia - kacet w Zwierzyńcu, skąd zza drutów przerzuciła go matka . . . Fałszywi i sztuczni okazali się przyjaciele i opiekunowie. Prawdziwe - tylko sieroctwo i garb. O młodego Bronka walczyły o siebie dwie potęgi - totalitarne państwo i Kościół Katolicki. Dorosły Pekosiński - alkoholik i degenerat sparaliżowany po wylewie krwi do mózgu, ma jednak gwiazdę przewodnią swego życia: mistrzowską grę w szachy. Upokarzany, przepędzany, zdradzany i oszukiwany, zachowuje godność, dobroć i ufność. Przez całe życie szuka matki. [filmpolski.pl]  ... opiekunowie. Prawdziwe - tylko sieroctwo i garb. O młodego Bronka walczyły o siebie dwie potęgi - totalitarne państwo i Kościół Katolicki. Dorosły Pekosiński - alkoholik i degenerat sparaliżowany po wylewie krwi do mózgu, ma jednak gwiazdę przewodnią swego życia: mistrzowską grę w szachy. Upokarzany, przepędzany, zdradzany i oszukiwany, zachowuje godność, dobroć i ufność. Przez całe życie szuka matki. [filmpolski.pl]
-    

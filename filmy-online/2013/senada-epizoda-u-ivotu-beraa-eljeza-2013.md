@@ -1,9 +1,5 @@
+Senada / Epizoda u životu berača željeza 2013 
+=============
+[![Senada / Epizoda u životu berača željeza 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/senada-epizoda-u-ivotu-beraa-eljeza-2013)
 
-        Senada / Epizoda u životu berača željeza 2013 
-        =============
-        
-        [![Senada / Epizoda u životu berača željeza 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/senada-epizoda-u-ivotu-beraa-eljeza-2013)
-        
-        
  Nazif, który chcąc pomóc swojej rodzinie, zajmuje się zbieraniem złomu, z trudem wiąże koniec z końcem. Dni upływają mu na poszukiwaniu żelastwa, w tym czasie jego partnerka Senada zajmuje się domem i dwiema małymi córeczkami. Niedługo urodzi trzecie dziecko. Po powrocie do domu po pracowitym dniu Nazif znajduje dziewczynę chorą, leżącą w łóżku. Następnego dnia pożycza samochód i zawozi ją do najbliższego szpitala. Okazuje się, że dziecko, które Senada nosi w sobie, nie żyje. W jej brzuchu znajduje się pięciomiesięczny martwy płód. Sytuacja jest krytyczna – kobieta musi natychmiast zostać przetransportowana do odległego szpitala. Senada nie ma jednak dokumentu potwierdzającego ubezpieczenie i szpital żąda od niej zapłaty w wysokości 980 bośniackich marek. Dla zbieracza złomu to prawdziwa fortuna. Pomimo błagań Nazifa szpital odmawia przeprowadzenia koniecznej operacji. Bohaterowie wracają więc do swojego miejsca zamieszkania w centralnej Bośni i Hercegowinie. Przez następnych dziesięć dni Nazif będzie robił wszystko, co w jego mocy, żeby ocalić życie Senady. Będzie zbierał złom, ale też szukał pomocy w instytucjach państwowych... W tym czasie doświadczą na własnej skórze, jak bezduszne jest współczesne społeczeństwo.  ... W jej brzuchu znajduje się pięciomiesięczny martwy płód. Sytuacja jest krytyczna – kobieta musi natychmiast zostać przetransportowana do odległego szpitala. Senada nie ma jednak dokumentu potwierdzającego ubezpieczenie i szpital żąda od niej zapłaty w wysokości 980 bośniackich marek. Dla zbieracza złomu to prawdziwa fortuna. Pomimo błagań Nazifa szpital odmawia przeprowadzenia koniecznej operacji. Bohaterowie wracają więc do swojego miejsca zamieszkania w centralnej Bośni i Hercegowinie. Przez następnych dziesięć dni Nazif będzie robił wszystko, co w jego mocy, żeby ocalić życie Senady. Będzie zbierał złom, ale też szukał pomocy w instytucjach państwowych... W tym czasie doświadczą na własnej skórze, jak bezduszne jest współczesne społeczeństwo.
-    

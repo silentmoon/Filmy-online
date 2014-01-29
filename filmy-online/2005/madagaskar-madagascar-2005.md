@@ -1,9 +1,5 @@
+Madagaskar / Madagascar 2005 
+=============
+[![Madagaskar / Madagascar 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/madagaskar-madagascar-2005)
 
-        Madagaskar / Madagascar 2005 
-        =============
-        
-        [![Madagaskar / Madagascar 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/madagaskar-madagascar-2005)
-        
-        
  Film twórców 'Shreka' i 'Shreka 2' opowiada o paczce zgranych przyjaciół: lwie - Alexie (gwieżdzie Zoo na Manhatannie), zebrze - Marty'm, hipopotamicy - Glorii i żyrafie - Melmanie (wiecznie chorym i przewrażliwionym na punkcie swego zdrowia). Ich przygody rozpoczynają się za sprawą Marty'ego, który po spotkaniu z uciekającymi z Zoo pingwinami, również postanawia wydostać się z ogrodu i odnaleźć ową mityczną dla niego 'Dzicz'. Sam uciekając z ogrodu pociąga za sobą przyjaciół, którzy chcąc go ratować, wpadają razem w niezłe tarapaty. W rezultacie władze Ogrodu Zoologicznego postanawiając wysłać uciekinierów spowrotem do ich naturalnego środowiska - Afryki. Po drodze nasi bohaterowie wypadają ze statku i dryfując wszyscy odnajdują się u brzegów egzotycznej wyspy... Tu poznają społeczeństwo śmiesznych lemurów pod wodzą zakręconego króla. Wszystko jednak komplikuje fakt, że Alex wcale nie jest zachwycony rozpoczęciem życia z dala od wygód zoo i dodatkowo budzą się w nim prawdziwe instynkty drapieżcy... Film ubarwiony wieloma śmiesznymi gagami i tekstami. Również muzyka jest doskonałym uzupełnieniem fabuły...  ... przyjaciół, którzy chcąc go ratować, wpadają razem w niezłe tarapaty. W rezultacie władze Ogrodu Zoologicznego postanawiając wysłać uciekinierów spowrotem do ich naturalnego środowiska - Afryki. Po drodze nasi bohaterowie wypadają ze statku i dryfując wszyscy odnajdują się u brzegów egzotycznej wyspy... Tu poznają społeczeństwo śmiesznych lemurów pod wodzą zakręconego króla. Wszystko jednak komplikuje fakt, że Alex wcale nie jest zachwycony rozpoczęciem życia z dala od wygód zoo i dodatkowo budzą się w nim prawdziwe instynkty drapieżcy... Film ubarwiony wieloma śmiesznymi gagami i tekstami. Również muzyka jest doskonałym uzupełnieniem fabuły...
-    

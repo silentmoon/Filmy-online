@@ -1,9 +1,5 @@
+Zabij ich wszystkich 1999 
+=============
+[![Zabij ich wszystkich 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabij-ich-wszystkich-1999)
 
-        Zabij ich wszystkich 1999 
-        =============
-        
-        [![Zabij ich wszystkich 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zabij-ich-wszystkich-1999)
-        
-        
  19-letnia Ewa przyjeżdża do miasta ogarniętego młodzieżowymi zamieszkami. Jest trzeci dzień rozruchów, które zaczęły się po zabiciu przez policjanta nastoletniego kibica. Ewa przyjechała, aby porozmawiać z bratem Krzysztofem, który od dwóch lat mieszka i pracuje w mieście. Tematem rozmowy ma być choroba ojca. Ewa nie zastaje brata. W wynajmowanym przez niego mieszkaniu spotyka dwóch jego kolegów - Marka i Grzegorza. Cała trójka wykonuje tę samą ciężką, źle płatną pracę - akwizytorów aluminiowych rur. Wyjazd Krzyśka jest ważny - chłopcy od dwóch miesięcy nie otrzymują wypłat. A tego wieczoru wizytę złoży im Janusz - właściciel mieszkania, z żądaniem wypłaty zaległego czynszu. Krzysiek wziął jedyne zlecenie. Wróci rano. Ewa postanawia zaczekać...   ... akwizytorów aluminiowych rur. Wyjazd Krzyśka jest ważny - chłopcy od dwóch miesięcy nie otrzymują wypłat. A tego wieczoru wizytę złoży im Janusz - właściciel mieszkania, z żądaniem wypłaty zaległego czynszu. Krzysiek wziął jedyne zlecenie. Wróci rano. Ewa postanawia zaczekać...
-    

@@ -1,9 +1,5 @@
+Histeria - Romantyczna historia wibratora / Hysteria 2011 
+=============
+[![Histeria - Romantyczna historia wibratora / Hysteria 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/histeria-romantyczna-historia-wibratora-hysteria-2011)
 
-        Histeria - Romantyczna historia wibratora / Hysteria 2011 
-        =============
-        
-        [![Histeria - Romantyczna historia wibratora / Hysteria 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/histeria-romantyczna-historia-wibratora-hysteria-2011)
-        
-        
  Film, którego akcja osadzona jest  w epoce wiktoriańskiej, z czołówką angielskich aktorów w obsadzie (Jonathan Pryce, Hugh Dancy, Rupert Everett, Maggie Gyllenhaal) opowiada historię młodego lekarza - idealisty, Mortimera Granville’a (Dancy), który usunięty ze szpitala za zbyt postępowe poglądy na higienę, znajduje posadę u wybitnego londyńskiego specjalisty chorób kobiecych (Pryce). Jego zadaniem jest leczyć kobiety z tytułowej histerii, stosując masaż relaksujący, doprowadzający je do „paroksyzmów skurczy”, który w efekcie przynosi im odprężenie (dziś nazwalibyśmy to orgazmem). Zakochuje się w córce swego szefa (Maggie Gyllenhaal), wyzwolonej sufrażystce i idealistce.   ... doprowadzający je do „paroksyzmów skurczy”, który w efekcie przynosi im odprężenie (dziś nazwalibyśmy to orgazmem). Zakochuje się w córce swego szefa (Maggie Gyllenhaal), wyzwolonej sufrażystce i idealistce.
-    

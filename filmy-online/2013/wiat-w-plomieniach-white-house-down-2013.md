@@ -1,9 +1,5 @@
+Świat w płomieniach / White House Down 2013 
+=============
+[![Świat w płomieniach / White House Down 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiat-w-plomieniach-white-house-down-2013)
 
-        Świat w płomieniach / White House Down 2013 
-        =============
-        
-        [![Świat w płomieniach / White House Down 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiat-w-plomieniach-white-house-down-2013)
-        
-        
  Policjant John Cale (Channing Tatum) właśnie się dowiedział, że nie dostał wymarzonej pracy w służbach specjalnych, chroniących prezydenta Jamesa Sawyera (Jamie Foxx). Nie umie przekazać tej informacji swojej córce, zamiast tego zabiera ją na wycieczkę po Białym Domu. Nieoczekiwanie siedziba prezydenta zostaje zaatakowana przez znakomicie uzbrojoną grupę paramilitarnych terrorystów. Atak wywołuje kompletny chaos, służby rządowe nie są w stanie zapewnić bezpieczeństwa głowie kraju. Tylko od umiejętności Cale'a zależy, czy ocali prezydenta i swoją córkę. Czas ucieka. Zaczyna się pojedynek o życie między jednym człowiekiem, a całą armią napastników.  ... kraju. Tylko od umiejętności Cale'a zależy, czy ocali prezydenta i swoją córkę. Czas ucieka. Zaczyna się pojedynek o życie między jednym człowiekiem, a całą armią napastników.
-    

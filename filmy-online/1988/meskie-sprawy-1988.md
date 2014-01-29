@@ -1,9 +1,5 @@
+Męskie sprawy 1988 
+=============
+[![Męskie sprawy 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/meskie-sprawy-1988)
 
-        Męskie sprawy 1988 
-        =============
-        
-        [![Męskie sprawy 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/meskie-sprawy-1988)
-        
-        
  Jest listopad 1918 roku. Do miasteczka pod Poznaniem przybywa Maks, dezerter z armii niemieckiej, kuzyn Turowskich, miejscowych właścicieli browaru, rodziny o starych tradycjach powstańczych. Głową rodu jest Józef Turowski, a najmłodsi członkowie rodziny wnuki: 10-letnia Gundzia i starszy od niej Zyga. Maks chce przedrzeć się do Poznania, ale Turowski zatrzymuje go u siebie. Młodzi chłopcy - Maks, Zyga, Pyra, Okularnik, Jasio Ministrant wierzą, że niedługo będą bić Niemców. Wypisują hasła na ścianach, konspirują. Tymczasem w mieście komitet obywatelski 'Sokoły' powołuje legalną Straż Ludową, do pilnowania porządku. Jednak chłopcy nie dają za wygraną i myślą o zdobyciu potrzebnej broni. Wigilia przebiega w napiętej atmosferze. Wydarza się tragiczny incydent. Jasio Ministrant zaczepiony przez niemieckich chłopców ginie od ciosu nożem. To wydarzenie decyduje - młodzi ruszają do walki. W Poznaniu już trwa powstanie. Przed domem Niemca dochodzi do strzelaniny. Ginie Zyga i Turowski. Wszyscy chłopcy idą do powstania, w browarze pozostaje Gundzia - jedyna spadkobierczyni oraz Maks, który będzie jej pomagał.[www.filmpolski.pl]  ... Wypisują hasła na ścianach, konspirują. Tymczasem w mieście komitet obywatelski 'Sokoły' powołuje legalną Straż Ludową, do pilnowania porządku. Jednak chłopcy nie dają za wygraną i myślą o zdobyciu potrzebnej broni. Wigilia przebiega w napiętej atmosferze. Wydarza się tragiczny incydent. Jasio Ministrant zaczepiony przez niemieckich chłopców ginie od ciosu nożem. To wydarzenie decyduje - młodzi ruszają do walki. W Poznaniu już trwa powstanie. Przed domem Niemca dochodzi do strzelaniny. Ginie Zyga i Turowski. Wszyscy chłopcy idą do powstania, w browarze pozostaje Gundzia - jedyna spadkobierczyni oraz Maks, który będzie jej pomagał.[www.filmpolski.pl]
-    

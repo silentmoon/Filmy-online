@@ -1,9 +1,5 @@
+Bejbis / The Babysitters 2007 
+=============
+[![Bejbis / The Babysitters 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bejbis-the-babysitters-2007)
 
-        Bejbis / The Babysitters 2007 
-        =============
-        
-        [![Bejbis / The Babysitters 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bejbis-the-babysitters-2007)
-        
-        
  Studia w USA kosztują 120 tysięcy dolarów. Możesz dostać stypendium, możesz pójść do armii, możesz mieć bogatych rodziców. Dla Shirley Lyner żadne z tych rozwiązań nie jest pociągające. Zaczyna od opieki nad dziećmi, ale wkrótce trochę przypadkowo trafia w ramiona jednego ze swoich klientów Michaela Beltrana. Gdy ten wynagradza ją plikiem dolarów nie wzbrania się, co  zwierza się swojej przyjaciółce Melissie. O pomyśle dowiaduje się Brenda, później Nadine. Od zarobków każdej z nich Shirley pobiera prowizję. Wkrótce „bejbis” mają własne wizytówki i papier firmowy. Shirley nieświadomie uruchamia proces, nad którym zaczyna tracić kontrolę. Na imprezie pojawiają się narkotyki, Brenda postanawia działać na własną rękę, jednemu z klientów nie wystarcza już seks... Nic nie będzie już takie jak przedtem.   ... zarobków każdej z nich Shirley pobiera prowizję. Wkrótce „bejbis” mają własne wizytówki i papier firmowy. Shirley nieświadomie uruchamia proces, nad którym zaczyna tracić kontrolę. Na imprezie pojawiają się narkotyki, Brenda postanawia działać na własną rękę, jednemu z klientów nie wystarcza już seks... Nic nie będzie już takie jak przedtem.
-    

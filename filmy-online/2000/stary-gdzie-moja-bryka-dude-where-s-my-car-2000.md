@@ -1,9 +1,5 @@
+Stary, gdzie moja bryka? / Dude, Where's My Car? 2000 
+=============
+[![Stary, gdzie moja bryka? / Dude, Where's My Car? 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stary-gdzie-moja-bryka-dude-where-s-my-car-2000)
 
-        Stary, gdzie moja bryka? / Dude, Where's My Car? 2000 
-        =============
-        
-        [![Stary, gdzie moja bryka? / Dude, Where's My Car? 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/stary-gdzie-moja-bryka-dude-where-s-my-car-2000)
-        
-        
  Poznajcie Jessego (Ashton Kutcher) i Chestera (Seann William Scott). Mają duży problem. Zeszłej nocy ostro zabalowali, bo rano nie pamiętają niczego, kompletnie niczego! - ile wypili, gdzie byli co robili, a na domiar złego - gdzie zaparkowali samochód, w którym zostawili prezenty dla swoich dziewczyn. Muszą jak najszybciej odnaleźć brykę i przeprosić dziewczyny za zdemolowanie chaty, a przede wszystkim za to, że zapomnieli o wspólnej rocznicy. Pechowi kolesie nie wiedzą nawet w co się wpakowali - w ślad za nimi ruszają wyznawcy kultu UFO, budzący niepokój faceci o nordyckich rysach i energiczne panienki w obcisłych kostiumach - wszyscy przekonani, że Chester i Jesse wiedzą, gdzie znajduje się niezwykłe urządzenie, stanowiące klucz do tajemnic wszechświata...   ... nawet w co się wpakowali - w ślad za nimi ruszają wyznawcy kultu UFO, budzący niepokój faceci o nordyckich rysach i energiczne panienki w obcisłych kostiumach - wszyscy przekonani, że Chester i Jesse wiedzą, gdzie znajduje się niezwykłe urządzenie, stanowiące klucz do tajemnic wszechświata...
-    

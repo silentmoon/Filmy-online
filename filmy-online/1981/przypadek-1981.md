@@ -1,9 +1,5 @@
+Przypadek 1981 
+=============
+[![Przypadek 1981 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przypadek-1981)
 
-        Przypadek 1981 
-        =============
-        
-        [![Przypadek 1981 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przypadek-1981)
-        
-        
  Zrealizowany w 1981 roku 'Przypadek' trafił na polskie ekrany dopiero po sześciu latach, w zupełnie innej atmosferze. Jak się wtedy okazało, film Kieślowskiego nie epatował tonem oskarżenia, przeciwnie - można w nim było spostrzec dzieło poświadczające rezygnację z politycznej doraźności. Film pokazuje trzy różne losy jednego człowieka, Witka Długosza (Bogusław Linda), trzy potencjalne życiorysy jednej osoby, zależne wyłączne od przypadku. W pierwszej sekwencji Witek usiłuje zdążyć na pociąg do Warszawy i od tego zależą jego dalsze losy. Jeśli zdąży, spotka w pociągu starego działacza komunistycznego, który wciągnie go w orbitę władzy. Jeśli potrąci na peronie sokistę, to nie tylko nie zdąży, lecz zostanie jeszcze ukarany, a przez to dołączy do opozycji politycznej. W trzecim wariancie spotyka na peronie znajomą dziewczynę, co skończy się ślubem i wyborem apolitycznej kariery naukowca. Wszystkie warianty mają finał na lotnisku Okęcie, skąd Witek ma odlecieć za granicę. Jednak strajki w kraju (lato 1980 rok) udaremniają odlot w wariancie pierwszym i drugim, w trzecim Witek odlatuje by...   ... zdążyć na pociąg do Warszawy i od tego zależą jego dalsze losy. Jeśli zdąży, spotka w pociągu starego działacza komunistycznego, który wciągnie go w orbitę władzy. Jeśli potrąci na peronie sokistę, to nie tylko nie zdąży, lecz zostanie jeszcze ukarany, a przez to dołączy do opozycji politycznej. W trzecim wariancie spotyka na peronie znajomą dziewczynę, co skończy się ślubem i wyborem apolitycznej kariery naukowca. Wszystkie warianty mają finał na lotnisku Okęcie, skąd Witek ma odlecieć za granicę. Jednak strajki w kraju (lato 1980 rok) udaremniają odlot w wariancie pierwszym i drugim, w trzecim Witek odlatuje by...
-    

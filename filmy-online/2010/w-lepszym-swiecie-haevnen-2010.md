@@ -1,9 +1,5 @@
+W lepszym świecie / Hævnen 2010 
+=============
+[![W lepszym świecie / Hævnen 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/w-lepszym-swiecie-haevnen-2010)
 
-        W lepszym świecie / Hævnen 2010 
-        =============
-        
-        [![W lepszym świecie / Hævnen 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/w-lepszym-swiecie-haevnen-2010)
-        
-        
  Christian wraca do Danii po śmierci matki. Jest pełen buntu i nie lubi ludzi, którzy dają za wygraną. Jego ojciec przegrał, pozwalając umrzeć żonie. Rodzice Eliasa są w separacji, ojciec jeździ regularnie do Afryki, gdzie w dramatycznych warunkach pracuje w szpitalu dla uchodźców. Ojciec Eliasa to mięczak – pozwolił się spoliczkować nieznajomemu mężczyźnie. Życie przytłacza, więc Christian myśli tylko o zemście. Elias, zbyt spokojny i wrażliwy, jeszcze nie ma na nią pomysłu. Kiedy chłopcy zasiądą razem w szkolnej ławie, losy obu rodzin splotą się nieodwracalnie, a dziecięca niewinność nabierze zupełnie nowego znaczenia. Przemoc, zbrodnia i kłamstwo przykryte cienką warstwą miłości to nierzadko świat, w którym przyszło żyć dorosłym. W rzeczywistości dalekiej od ideału swojego miejsca szukają również dzieci. Kiedy relacje dorosłych są napięte do granic wytrzymałości, to właśnie dzieci szukają wyjścia z psychicznej pułapki. Chcą sprawiedliwości, od której zaczynają się wojny. Susanne Bier, duńska reżyserka, przekonała do siebie polskich widzów takimi filmami jak „Tuż po weselu”, „Bracia” oraz „Otwarte serca”. 'W lepszym świecie' jest jej jedenastym filmem.   ... pomysłu. Kiedy chłopcy zasiądą razem w szkolnej ławie, losy obu rodzin splotą się nieodwracalnie, a dziecięca niewinność nabierze zupełnie nowego znaczenia. Przemoc, zbrodnia i kłamstwo przykryte cienką warstwą miłości to nierzadko świat, w którym przyszło żyć dorosłym. W rzeczywistości dalekiej od ideału swojego miejsca szukają również dzieci. Kiedy relacje dorosłych są napięte do granic wytrzymałości, to właśnie dzieci szukają wyjścia z psychicznej pułapki. Chcą sprawiedliwości, od której zaczynają się wojny. Susanne Bier, duńska reżyserka, przekonała do siebie polskich widzów takimi filmami jak „Tuż po weselu”, „Bracia” oraz „Otwarte serca”. 'W lepszym świecie' jest jej jedenastym filmem.
-    

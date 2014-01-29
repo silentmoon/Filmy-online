@@ -1,9 +1,5 @@
+Amerykańskie ciacho / Spread 2009 
+=============
+[![Amerykańskie ciacho / Spread 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/amerykanskie-ciacho-spread-2009)
 
-        Amerykańskie ciacho / Spread 2009 
-        =============
-        
-        [![Amerykańskie ciacho / Spread 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/amerykanskie-ciacho-spread-2009)
-        
-        
  Seksowna komedia z najgorętszym „ciachem” Hollywood – Ashtonem Kutcherem („Co się zdarzyło w Las Vegas”, „Efekt motyla”, „Zupełnie jak miłość”) w roli głównej. Rozbrajająco przystojny Nikki (Ashton Kutcher) uwielbia dobrą zabawę, luksusowe życie i piękne kobiety. Zwłaszcza, jeśli są bajecznie bogate. Zdobywa je szybko i zmienia, gdy tylko znudzą mu się ich luksusowe apartamenty. To jego sposób na życie. A  przy okazji - doskonały biznes. Nieodpartemu czarowi Nikkiego ulegają kolejne kobiety, a on bawi się nimi i korzysta z życia, które mu sponsorują. Pewnego dnia spotyka wyjątkową dziewczynę - Heather. Piękna nieznajoma nie jest nim jednak zainteresowana. Czy w grze uczuć, która zaczyna się między Nikkim a dziewczyną chodzi o coś  niż seks i pieniądze?  ... kolejne kobiety, a on bawi się nimi i korzysta z życia, które mu sponsorują. Pewnego dnia spotyka wyjątkową dziewczynę - Heather. Piękna nieznajoma nie jest nim jednak zainteresowana. Czy w grze uczuć, która zaczyna się między Nikkim a dziewczyną chodzi o coś więcej niż seks i pieniądze?
-    
