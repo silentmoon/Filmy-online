@@ -1,0 +1,9 @@
+
+        Czarny łabędź / Black Swan 2010 
+        =============
+        
+        [![Czarny łabędź / Black Swan 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czarny-labedz-black-swan-2010)
+        
+        
+ Nina (Natalie Portman) jest baleriną w jednym z najlepszych zepołów baletowych w Nowym Jorku. Panuje tam zimne wyrachowanie. Baletnice zrobią wszystko, by zepchnąć w dół dziewczynę, która tylko stanie o stopień wyżej niż one. Zbliża się kres kariery Beth i rozpoczyna się polowanie na jej miejsce w 'Jeziorze Łabędzim'. Główną rolą jest postać Odett, królowej łabędzi. Rola ta jest trudna, bo balerina będzie musiała grać zarówno słodkiego 'Białego Łabędzia', jak i mrocznego 'Czarnego Łabędzia'. Oczywiście Nina pretenduje do roli tego pierwszego, ale czy będzie umiała pokazać pazurki i zostać 'Czarnym Łabędziem'? Czas płynie, a Nina desperacko próbuje odnaleźć swoją ciemną stronę. Wtedy zauważa w zespole dziewczynę wyglądającą jak ona. Za każdym razem, kiedy próbuje do niej podejść, dziewczyna odwraca się. W końcu spotyka ją po próbie. Ma na imię Lilly (Mila Kunis) i wygląda jak Nina. Nie jest jednak jej wierną kopią.   ... 'Czarnego Łabędzia'. Oczywiście Nina pretenduje do roli tego pierwszego, ale czy będzie umiała pokazać pazurki i zostać 'Czarnym Łabędziem'? Czas płynie, a Nina desperacko próbuje odnaleźć swoją ciemną stronę. Wtedy zauważa w zespole dziewczynę wyglądającą jak ona. Za każdym razem, kiedy próbuje do niej podejść, dziewczyna odwraca się. W końcu spotyka ją po próbie. Ma na imię Lilly (Mila Kunis) i wygląda jak Nina. Nie jest jednak jej wierną kopią.
+    

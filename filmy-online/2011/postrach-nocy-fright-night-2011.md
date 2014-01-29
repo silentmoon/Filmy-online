@@ -1,0 +1,9 @@
+
+        Postrach nocy / Fright Night 2011 
+        =============
+        
+        [![Postrach nocy / Fright Night 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/postrach-nocy-fright-night-2011)
+        
+        
+ Życie nastoletniego Charliego Brewstera (Anton Yelchin) w końcu układa się tak jak trzeba: jest popularny i umawia się z najfajniejszą dziewczyną w szkole. Problemy pojawiają się z chwilą gdy do domu obok wprowadza się Jerry (Colin Farrell) – z pozoru świetny facet, ale jest w nim coś niepokojącego i tylko Charlie zdaje się to zauważać. Pozostali - wliczając w to matkę Charliego (Toni Collette) – nie dostrzegają odmienności nowego sąsiada. Po wnikliwych obserwacjach sąsiada nastolatek dochodzi do jedynego słusznego wniosku – Jerry jest wampirem, a Charlie na własną rękę musi pozbyć się potwora żerującego w jego dzielnicy.  ... odmienności nowego sąsiada. Po wnikliwych obserwacjach sąsiada nastolatek dochodzi do jedynego słusznego wniosku – Jerry jest wampirem, a Charlie na własną rękę musi pozbyć się potwora żerującego w jego dzielnicy.
+    

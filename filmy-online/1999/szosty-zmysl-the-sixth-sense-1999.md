@@ -1,0 +1,9 @@
+
+        Szósty zmysł / The Sixth Sense 1999 
+        =============
+        
+        [![Szósty zmysł / The Sixth Sense 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szosty-zmysl-the-sixth-sense-1999)
+        
+        
+ Do domu mieszkającego w Filadelfii psychiatry, dr. Malcolma Crowe (Bruce Willis) i jego żony Anny (Olivia Williams) włamuje się niezrównoważony psychicznie pacjent Vincent Gray (Donnie Wahlberg), który oskarża doktora o to, że nie potrafił udzielić mu pomocy. Strzela do niego, po czym odbiera sobie życie... Malcolm powoli dochodzi do siebie po zamachu na jego życie. Jego uwagę zwraca przypadek Cole'a Seara (Haley Joel Osment), ośmioletniego syna samotnie wychowywanego przez matkę, Lynn (Toni Collette). Cole jest niezwykle jak na swój wiek rozwinięty, ma obsesję na punkcie żołnierzyków i cierpi z powodu rozwodu rodziców. Ku swemu zdumieniu Malcolm odkrywa, że chłopiec posiadł tzw. 'szósty zmysł', potrafi wyobrazić sobie, co zdarzyło się w danym miejscu przed wielu laty, a także widzi i słyszy umarłych.   ... matkę, Lynn (Toni Collette). Cole jest niezwykle jak na swój wiek rozwinięty, ma obsesję na punkcie żołnierzyków i cierpi z powodu rozwodu rodziców. Ku swemu zdumieniu Malcolm odkrywa, że chłopiec posiadł tzw. 'szósty zmysł', potrafi wyobrazić sobie, co zdarzyło się w danym miejscu przed wielu laty, a także widzi i słyszy umarłych.
+    

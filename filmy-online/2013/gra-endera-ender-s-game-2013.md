@@ -1,0 +1,9 @@
+
+        Gra Endera / Ender's Game 2013 
+        =============
+        
+        [![Gra Endera / Ender's Game 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gra-endera-ender-s-game-2013)
+        
+        
+ Jest rok 2070, czterdzieści lat po nieudanej inwazji obcych zwanych Formidami. Trwają poszukiwania tych, którzy mogliby poprowadzić Ziemian do zwycięstwa na wypadek powrotu najeźdźców. Władze w sekrecie prowadzą rygorystyczny nabór dzieci i najlepsze z nich wysyłają do orbitalnej szkoły bojowej, gdzie te spędzą dzieciństwo, szkoląc się na przyszłą elitę wojenną w przestrzeni kosmicznej. Do programu szkoleń zostaje włączony młody Ender Wiggin. Chłopiec walczy o swoje człowieczeństwo, pomimo ciągłej rywalizacji z innymi dziećmi, presji, rozgrywek pomiędzy dowództwem oraz tajemniczego wpływu ze strony obcych. Nad szkoleniem Endera czuwa weteran poprzedniej wojny z obcymi, Mazer Rackham, który szczęśliwym zbiegiem okoliczności odparł wówczas atak na Ziemię. Wyczerpujące bitwy pomiędzy uczniami doprowadzają młodego geniusza na szczyt rankingów szkoły, ale prawdziwa walka odbywa się poza salą treningową - walka o życie, walka z własnymi demonami, walka o ludzkość.   ... człowieczeństwo, pomimo ciągłej rywalizacji z innymi dziećmi, presji, rozgrywek pomiędzy dowództwem oraz tajemniczego wpływu ze strony obcych. Nad szkoleniem Endera czuwa weteran poprzedniej wojny z obcymi, Mazer Rackham, który szczęśliwym zbiegiem okoliczności odparł wówczas atak na Ziemię. Wyczerpujące bitwy pomiędzy uczniami doprowadzają młodego geniusza na szczyt rankingów szkoły, ale prawdziwa walka odbywa się poza salą treningową - walka o życie, walka z własnymi demonami, walka o ludzkość.
+    

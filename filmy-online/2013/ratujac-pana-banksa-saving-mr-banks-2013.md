@@ -1,0 +1,9 @@
+
+        Ratując pana Banksa / Saving Mr. Banks 2013 
+        =============
+        
+        [![Ratując pana Banksa / Saving Mr. Banks 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ratujac-pana-banksa-saving-mr-banks-2013)
+        
+        
+ Na usilne prośby swoich córek Walt Disney obiecuje zrealizować film na podstawie ich ulubionej książki 'Mary Poppins' autorstwa P. L. Travers. Nie wie jednak, że spełnienie przyrzeczenia zajmie mu 20 lat. Aby uzyskać prawa do ekranizacji Walt musi stawić czoła zgryźliwej, bezkompromisowej pisarce, która nie zamierza patrzeć, jak jej ukochana niania-czarodziejka jest masakrowana w trybach hollywoodzkiej machiny. Jednak w miarę spadku sprzedaży książki i pogarszania się sytuacji finansowej, Travers godzi się pojechać do Los Angeles, aby wysłuchać planów adaptacji. Na te dwa krótkie tygodnie w 1961 Walt Disney wytacza najcięższą artylerię. Uzbrojony w oszałamiające storyboardy i radosne piosenki braci Sherman Walt przypuszcza frontalny atak na P.L. Travers, jednak rozeźlona autorka nie ugina się pod presją. Wkrótce potem filmowiec bezradnie obserwuje, jak prawa do książki zaczynają wymykać mu się z ręki...   ... sytuacji finansowej, Travers godzi się pojechać do Los Angeles, aby wysłuchać planów adaptacji. Na te dwa krótkie tygodnie w 1961 Walt Disney wytacza najcięższą artylerię. Uzbrojony w oszałamiające storyboardy i radosne piosenki braci Sherman Walt przypuszcza frontalny atak na P.L. Travers, jednak rozeźlona autorka nie ugina się pod presją. Wkrótce potem filmowiec bezradnie obserwuje, jak prawa do książki zaczynają wymykać mu się z ręki...
+    

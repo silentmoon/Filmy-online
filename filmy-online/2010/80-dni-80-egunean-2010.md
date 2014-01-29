@@ -1,0 +1,9 @@
+
+        80 dni / 80 egunean 2010 
+        =============
+        
+        [![80 dni / 80 egunean 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/80-dni-80-egunean-2010)
+        
+        
+ Przed wielu laty Axun i Maite łączyła nastoletnia przyjaźń. Gdy los je rozdzielił, każda poszła inną drogą – Maite zrobiła karierę jako pianistka, Axun poznała swego przyszłego męża i przy jego boku wiodła spokojne życie na prowincji. Kobiety spotykają się przypadkiem w szpitalu. Ich drogi znowu zaczynają się krzyżować, wplątując bohaterki w coraz to bardziej skomplikowaną relację. Jak daleko zabrną dwie dojrzałe kobiety, które przeżywają na nowo drugą młodość? W tym szczerym, pozornie prostym, ale jednak bardzo złożonym obrazie, emocje i problemy nakładają się warstwami, raz po raz ukazując coraz to nowe spojrzenie na to, co może łączyć dwie bliskie sobie osoby. Film porusza też inne, równie ważne, a może i ważniejsze problemy, o których czasem zapominamy: blaski i cienie życia ludzi starszych. W obecnie panującym kulcie młodości zapominamy, że choć czas zmienia nasze ciała, to odczuwanie i pasje będą tkwić w nas na zawsze. Historia Axun i Maite pozostawi w nas przekonanie i głęboką refleksję o bogactwie ludzkiego serca, ale też o ważnej obecności starszych osób i ich sposobie przeżywania emocji.   ... szczerym, pozornie prostym, ale jednak bardzo złożonym obrazie, emocje i problemy nakładają się warstwami, raz po raz ukazując coraz to nowe spojrzenie na to, co może łączyć dwie bliskie sobie osoby. Film porusza też inne, równie ważne, a może i ważniejsze problemy, o których czasem zapominamy: blaski i cienie życia ludzi starszych. W obecnie panującym kulcie młodości zapominamy, że choć czas zmienia nasze ciała, to odczuwanie i pasje będą tkwić w nas na zawsze. Historia Axun i Maite pozostawi w nas przekonanie i głęboką refleksję o bogactwie ludzkiego serca, ale też o ważnej obecności starszych osób i ich sposobie przeżywania emocji.
+    

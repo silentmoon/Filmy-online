@@ -1,0 +1,9 @@
+
+        Drapacz chmur / Skyskraber 2011 
+        =============
+        
+        [![Drapacz chmur / Skyskraber 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/drapacz-chmur-skyskraber-2011)
+        
+        
+ Edith, niewidoma od urodzenia córka sklepikarza, nie tylko nie odróżnia kolorów bielizny i szminek, nie dostrzega również drwiących uśmiechów rówieśników. Ma tylko jedno marzenie – stracić dziewictwo w czasie nadchodzącej imprezy. Jon ma 17 lat i jest zakałą sennego miasteczka. Jego ojciec, Big Daddy, miał kiedyś duży zakład i rządził miastem. Jednak wypadek, do którego przyczynił się Jon, pozbawił go zarówno władzy, jak i męskości. Teraz, jako samozwańczy król eteru, sprawuje rządy przez radiowy mikrofon. Matka Jona, Vivi, z jednakowym zapałem kastruje świnie i opróżnia kolejne butelki. Jest fatalnym weterynarzem i jeszcze gorszą panią domu. Oboje uważają, że wszystkiemu winien jest Jon. Życie nabiera prawdziwych rumieńców, kiedy Jon i Edith, uzbrojeni w filmy instruktażowe z lokalnej wypożyczalni, postanawiają ukradkiem zasmakować dorosłego życia. Wszystko zmieni się jednak w chwili, w której oboje wylądują w łóżku…   ... sprawuje rządy przez radiowy mikrofon. Matka Jona, Vivi, z jednakowym zapałem kastruje świnie i opróżnia kolejne butelki. Jest fatalnym weterynarzem i jeszcze gorszą panią domu. Oboje uważają, że wszystkiemu winien jest Jon. Życie nabiera prawdziwych rumieńców, kiedy Jon i Edith, uzbrojeni w filmy instruktażowe z lokalnej wypożyczalni, postanawiają ukradkiem zasmakować dorosłego życia. Wszystko zmieni się jednak w chwili, w której oboje wylądują w łóżku…
+    

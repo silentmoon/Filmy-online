@@ -1,0 +1,9 @@
+
+        Wojownicze żółwie ninja / TMNT 2007 
+        =============
+        
+        [![Wojownicze żółwie ninja / TMNT 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wojownicze-zolwie-ninja-tmnt-2007)
+        
+        
+ Dawno, dawno temu? cztery małe żółwie: Leonardo, Donatello, Michaelangelo oraz Rafael w tajemniczy sposób urosły, a następnie zaczęły się poruszać i zachowywać jak ludzie. Podobnej przemianie uległ ich przyjaciel, szczur Splinter, który dzięki rozległej wiedzy w dziedzinie wschodnich sztuk walki, uczy żółwie jak walczyć i posługiwać się bronią. I tak stały się najsłynniejszymi Wojowniczymi Żółwiami Ninja. W pierwszym z ich udziałem filmie kinowym, będą musieli zmierzyć się z ekscentrycznym miliarderem Maximilianem Wintersem, który chce przejąć władzę nad miastem, wykorzystując kosmiczną energię. Nieustraszone żółwie zjednoczą swe siły w walce między dobrem a złem, pokonując własne słabości, wspierani przez życzliwych im ludzi: April O?Neal i Casey?a Jonesa.  ... ekscentrycznym miliarderem Maximilianem Wintersem, który chce przejąć władzę nad miastem, wykorzystując kosmiczną energię. Nieustraszone żółwie zjednoczą swe siły w walce między dobrem a złem, pokonując własne słabości, wspierani przez życzliwych im ludzi: April O?Neal i Casey?a Jonesa.
+    

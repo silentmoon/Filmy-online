@@ -1,0 +1,9 @@
+
+        Palacz zwłok / Spalovač mrtvol 1969 
+        =============
+        
+        [![Palacz zwłok / Spalovač mrtvol 1969 ](http://vidos.pl/images/player.gif)](http://vidos.pl/palacz-zwlok-spalova-mrtvol-1969)
+        
+        
+ Przejmujące studium szaleństwa, w które stopniowo popada pracownik praskiego krematorium. Karl Kopfrkingl jest szczęściarzem, bo lubi swoją pracę. Krematorium to dla niego wielki tryumf człowieczeństwa – w 75 minut kłopotliwe ludzkie zwłoki zamieniają się w wygodną garstkę prochu, a dusza – jak lubi powtarzać – ulatuje w eter. Bohater odgrywa tu rolę Charona i czuwa nad każdym aspektem procesu. Wszystko odbywa się bez znoju – czysto, higienicznie i przy łagodnych dźwiękach klasycznej muzyki. Karl lubi czystość, higienę i klasyczną muzykę. Dlatego nie przestaje się uśmiechać. (…) 'Palacz...' jest urzeczywistnioną fantazją szaleńca, który każde świństwo i każdy przeskok w myśleniu potrafi bezboleśnie włączyć w łagodny obraz samego siebie. Szaleństwo Karla to ultra-konformizm, który pozwoli mu siłą woli zamienić krew w we własnych żyłach na niemiecką, a zabijanie postrzegać w kategoriach ratowania duszy. Nawet ulubioną lekturę o filozofii Tybetu Karl potrafi bezboleśnie włączyć w nauki faszyzmu. Jest jak predator, który potrafi wtopić się w tło i czekać na dogodny moment, by zabić. (…).   ... klasycznej muzyki. Karl lubi czystość, higienę i klasyczną muzykę. Dlatego nie przestaje się uśmiechać. (…) 'Palacz...' jest urzeczywistnioną fantazją szaleńca, który każde świństwo i każdy przeskok w myśleniu potrafi bezboleśnie włączyć w łagodny obraz samego siebie. Szaleństwo Karla to ultra-konformizm, który pozwoli mu siłą woli zamienić krew w we własnych żyłach na niemiecką, a zabijanie postrzegać w kategoriach ratowania duszy. Nawet ulubioną lekturę o filozofii Tybetu Karl potrafi bezboleśnie włączyć w nauki faszyzmu. Jest jak predator, który potrafi wtopić się w tło i czekać na dogodny moment, by zabić. (…).
+    

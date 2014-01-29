@@ -1,0 +1,9 @@
+
+        Mali agenci. Wyścig z czasem 4D / Spy Kids: All the Time in the World in 4D 2011 
+        =============
+        
+        [![Mali agenci. Wyścig z czasem 4D / Spy Kids: All the Time in the World in 4D 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mali-agenci-wyscig-z-czasem-4d-spy-kids-all-the-time-in-the-world-in-4d-2011)
+        
+        
+ Uwaga! Marissa wcale (Jessica Alba) nie jest zwykłą gospodynią domową! Może i jest żoną słynnego reportera, kochającą i cierpliwą matką, ale należałoby dodać do tego jeszcze kilka szczegółów… W rzeczywistości, matkowanie Rebece (Rowan Blanchard) i Cecilowi (Mason Cook), którzy wyraźnie sobie tego nie życzą, wystawia jej cierpliwość na ciężkie próby. Ponadto jej mąż Wilbur (Joel McHale) nie grzeszy bystrością – przez lata nie zorientował się, że jego żona jest agentką specjalną w stanie spoczynku. Świat Marissy zostaje wywrócony do góry nogami, gdy maniakalny Timekeeper (Jeremy Piven) grozi przejęciem planety, a ona zostaje wezwana do działania przez szefa organizacji, w której utworzono oddział Małych Agentów. Do akcji wkraczają również Rebecca i Cecil. Tym razem muszą odłożyć kłótnie na bok i razem z macochą stworzyć zespół, który przy pomocy hiper-wymyślnych gadżetów ocali świat, a skutecznością zawstydzi nawet Jamesa Bonda.  ... specjalną w stanie spoczynku. Świat Marissy zostaje wywrócony do góry nogami, gdy maniakalny Timekeeper (Jeremy Piven) grozi przejęciem planety, a ona zostaje wezwana do działania przez szefa organizacji, w której utworzono oddział Małych Agentów. Do akcji wkraczają również Rebecca i Cecil. Tym razem muszą odłożyć kłótnie na bok i razem z macochą stworzyć zespół, który przy pomocy hiper-wymyślnych gadżetów ocali świat, a skutecznością zawstydzi nawet Jamesa Bonda.
+    

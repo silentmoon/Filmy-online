@@ -1,0 +1,9 @@
+
+        Na koniec świata 1999 
+        =============
+        
+        [![Na koniec świata 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/na-koniec-swiata-1999)
+        
+        
+ Na koniec świata to wstrząsający dramat o namiętności, miłości i szaleństwie, o skomplikowanych i niejednoznacznych związkach między bohaterami - Jadwigą (Joanna Żółkowska), jej synem Kamilem (Dariusz Toczek), wychowanicą Jadwigi a zarazem żoną Kamila - Teresą (Justyna Steczkowska), a fascynującym i demonicznym malarzem - Wiktorem (Aleksander Domogarow). Akcja filmu rozgrywa się na początku XX wieku, w egzotycznej scenerii Mandżurii. Wśród Chińczyków i Rosjan przebywa duża grupa Polaków, pracujących przy budowie kolei. Bohaterka filmu - Teresa przyjeżdża tam ze swoim świeżo poślubionym mężem Kamilem, którego nie kocha. Poznaje rosyjskiego malarza - Wiktora, który nawiązuje z Teresą romans, wciągając ją w erotyczną grę. Przelotna fascynacja młodą Polką wkrótce przekształca się w prawdziwą miłość. Tymczasem Kamil odkrywa zdradę żony, która niespodziewanie decyduje się opuścić kochanka. Wiktor szaleje z zazdrości. Tragedia jest nieunikniona.   ... grupa Polaków, pracujących przy budowie kolei. Bohaterka filmu - Teresa przyjeżdża tam ze swoim świeżo poślubionym mężem Kamilem, którego nie kocha. Poznaje rosyjskiego malarza - Wiktora, który nawiązuje z Teresą romans, wciągając ją w erotyczną grę. Przelotna fascynacja młodą Polką wkrótce przekształca się w prawdziwą miłość. Tymczasem Kamil odkrywa zdradę żony, która niespodziewanie decyduje się opuścić kochanka. Wiktor szaleje z zazdrości. Tragedia jest nieunikniona.
+    

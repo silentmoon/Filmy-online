@@ -1,0 +1,9 @@
+
+        Hannah Montana. Film / Hannah Montana: The Movie 2009 
+        =============
+        
+        [![Hannah Montana. Film / Hannah Montana: The Movie 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hannah-montana-film-hannah-montana-the-movie-2009)
+        
+        
+ Hannah Montana tym razem tylko w kinie! Przeniesiona z serialu telewizyjnego historia nastolatki (w tej roli Miley Cyrus), która na co dzień jest wzorową uczennicą, a w tajemnicy przed przyjaciółmi odnosi sukcesy jako piosenkarka Hannah Montana. Kiedy popularność Hanny rośnie, postanawia ona, za namową swojego ojca, odwiedzić rodzinne miasteczko w Tennessee. Chce spędzić tam wakacje i zastanowić się na tym, co jest dla niej najważniejsze – muzyczna kariera czy też przyjaźń i normalne życie. Początkowo nudny pobyt na wsi zamienia się jednak w przygodę, której Hanna zupełnie się nie spodziewa. Serial Hannah Montana jest jednym z najpopularniejszych programów dla dzieci na całym świecie. Natomiast Miley Cyrus wcielająca się w tytułową rolę odnosi jednocześnie ogromne sukcesy jako piosenkarka, a jej płyty bardzo szybko zdobywają złoto i platynę. Dodatkowo w polskiej wersji językowej będzie można usłyszeć Joannę Koroniewską, Kubę Wesołowskiego i Julię Hertmanowską.  ... i normalne życie. Początkowo nudny pobyt na wsi zamienia się jednak w przygodę, której Hanna zupełnie się nie spodziewa. Serial Hannah Montana jest jednym z najpopularniejszych programów dla dzieci na całym świecie. Natomiast Miley Cyrus wcielająca się w tytułową rolę odnosi jednocześnie ogromne sukcesy jako piosenkarka, a jej płyty bardzo szybko zdobywają złoto i platynę. Dodatkowo w polskiej wersji językowej będzie można usłyszeć Joannę Koroniewską, Kubę Wesołowskiego i Julię Hertmanowską.
+    

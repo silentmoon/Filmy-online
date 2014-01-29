@@ -1,0 +1,9 @@
+
+        Niepokonany Seabiscuit / Seabiscuit 2003 
+        =============
+        
+        [![Niepokonany Seabiscuit / Seabiscuit 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niepokonany-seabiscuit-seabiscuit-2003)
+        
+        
+ Rok 1938, trwa Wielki Kryzys. Trzech ludzi, których łączy miłość do koni i przegrane życie, poświęca się trenowaniu konia wyścigowego - tytułowego Seabiscuita - nieuważanego nigdy dotąd za kandydata na czempiona. Były milioner, a teraz bankrut - Charles Howard (Jeff Bridges), postarzały, cierpiący na postępujący artretyzm kowboj - Tom Smith (Chris Cooper) i dżokej, nie dość, że ciężki, to niewidzący na jedno oko – Johnny 'Red' Pollard (Tobey Maguire). Mimo ogarniającego ich zwątpienia, przezwyciężają słabości, dążąc do wspólnego celu. Tym celem jest nie tylko zwycięstwo w prestiżowych zawodach, ale także zachowanie szacunku dla samych siebie.   ... zwątpienia, przezwyciężają słabości, dążąc do wspólnego celu. Tym celem jest nie tylko zwycięstwo w prestiżowych zawodach, ale także zachowanie szacunku dla samych siebie.
+    

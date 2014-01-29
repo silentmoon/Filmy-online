@@ -1,0 +1,9 @@
+
+        Lato albo 27 straconych pocałunków / Summer 27 Missing Kisses 2000 
+        =============
+        
+        [![Lato albo 27 straconych pocałunków / Summer 27 Missing Kisses 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lato-albo-27-straconych-pocalunkow-summer-27-missing-kisses-2000)
+        
+        
+ To było lato niepodobne do innych, lato zaćmienia Słońca. Sybille obiecuje Mickey'owi 100 pocałunków przed nastaniem jesieni. Ale daje mu zaledwie 73. Oto historia rozgrywająca się w czasie pięknego, romantycznego i jednoczenie bardzo przygnębiającego lata, gdzie na wschodzie. Czternastoletnia Sybille przyjeżdża wraz ze swoją ciotką, Martą do niewielkiego, sennego miasteczka na wakacje. I wszystko zmienia się bezpowrotnie. Jej obecnoć jakby elektryzuje całe miasteczko; wszyscy zaczynają odczuwać ogromną potrzebę miłoci. Już pierwszego dnia Sybille zakochuje się w jak jeszcze nigdy przedtem: jej wybrankiem jest Aleksander, astronom, który opiekuje się starym obserwatorium i jest odrobinę samotnym wdowcem. Ma czterdzieci lat i Sybille wydaje mu się za młoda. Równie szybko zakochuje się Mickey, jego czternastoletni syn, który od razu upatrzył sobie Sybille. Ale ona nie traktuje go poważnie, a Aleksander udaje, że nie dostrzega całej sytuacji. Nie należy jednak ignorować Sybille...  ... wszyscy zaczynają odczuwać ogromną potrzebę miłoci. Już pierwszego dnia Sybille zakochuje się w jak jeszcze nigdy przedtem: jej wybrankiem jest Aleksander, astronom, który opiekuje się starym obserwatorium i jest odrobinę samotnym wdowcem. Ma czterdzieci lat i Sybille wydaje mu się za młoda. Równie szybko zakochuje się Mickey, jego czternastoletni syn, który od razu upatrzył sobie Sybille. Ale ona nie traktuje go poważnie, a Aleksander udaje, że nie dostrzega całej sytuacji. Nie należy jednak ignorować Sybille...
+    

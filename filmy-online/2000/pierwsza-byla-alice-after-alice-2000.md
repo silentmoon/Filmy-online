@@ -1,0 +1,9 @@
+
+        Pierwsza była Alice / After Alice 2000 
+        =============
+        
+        [![Pierwsza była Alice / After Alice 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pierwsza-byla-alice-after-alice-2000)
+        
+        
+ Michael 'Mick' Hayden to znudzony przez rutynę policyjny detektyw lubiący dobrze wypić, pospać i nie przepracowywać się zbytnio. Pewnego razu uderza się przypadkiem w głowę i to powoduje że zaczyna mieć wizje. Za każdym razem gdy dotknie czegoś co należało do obcej osoby, ma na jej temat wizje. W tym samym czasie seryjny zabójca o pseudonimie Jabberwocky po latach uśpienia, na nowo zaczyna swoją aktywność. Hayden spotyka pewnego dziwaka - Harvey`a, który mu sugeruje że ma nadzwyczajne zdolności odbierania przebłysków myśli i prorocze sny. Mick uważa go za dziwaka i nie słucha jego wyjaśnień. Tymczasem szefowie naciskają aby znaleźć jakiegoś podejrzanego w sprawie seryjnego mordercy. Wizje Haydena prowadzą jednak w zupełnie innym kierunku, bo ten sprzed lat morderca okazuje się być fałszywie posądzany o obecne zabójstwa. Mikowi pomaga wyjaśnić prawdę i ująć właściwego psychopatę, pani doktor Swann specjalistka ds. duchów. Czy uda się im, zanim będzie za późno?.... Taki sobie film na sobotę wieczór, z dobrą rolą Kiefera Sutherlanda.   ... nadzwyczajne zdolności odbierania przebłysków myśli i prorocze sny. Mick uważa go za dziwaka i nie słucha jego wyjaśnień. Tymczasem szefowie naciskają aby znaleźć jakiegoś podejrzanego w sprawie seryjnego mordercy. Wizje Haydena prowadzą jednak w zupełnie innym kierunku, bo ten sprzed lat morderca okazuje się być fałszywie posądzany o obecne zabójstwa. Mikowi pomaga wyjaśnić prawdę i ująć właściwego psychopatę, pani doktor Swann specjalistka ds. duchów. Czy uda się im, zanim będzie za późno?.... Taki sobie film na sobotę wieczór, z dobrą rolą Kiefera Sutherlanda.
+    

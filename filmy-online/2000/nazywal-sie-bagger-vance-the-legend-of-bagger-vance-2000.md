@@ -1,0 +1,9 @@
+
+        Nazywał się Bagger Vance / The Legend of Bagger Vance 2000 
+        =============
+        
+        [![Nazywał się Bagger Vance / The Legend of Bagger Vance 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nazywal-sie-bagger-vance-the-legend-of-bagger-vance-2000)
+        
+        
+ W czasach Wielkiego Kryzysu w Savannah rozgrywa się historia o upadłym bohaterze, utraconej miłości, gwiazdach golfa i prawdziwej magii. Opowiada ją dziś Hardy Graves, wówczas chłopiec od szukania piłek na polu golfowym. Rannulph Junuh (Matt Damon) jest gwiazdą Savannah, najbardziej obiecującym młodym golfistą, zaręczonym z prześliczną Adele Invergorden (Charlize Theron). Kiedy w Europie wybucha I wojna światowa, Rannulph jako ochotnik wyjeżdża na front. Powraca z niego jako emocjonalny wrak, bliski dna. W 1931 roku w turnieju golfowym jako miejscowy amator staje do walki z mistrzami: Walterem Hagenem i Bobby Jonesem (Joel Gretsch, Bruce McGill). Junuh byłby skazany na porażkę, gdyby nie pojawił się ktoś, kto pomógł mu powrócić do formy sprzed lat. Jest nim tajemniczy Bagger Vance (Will Smith), caddy - pomocnik gracza, który udziela mu rad pozornie związanych z grą, a w rzeczywistości odnoszących się do życia.  ... emocjonalny wrak, bliski dna. W 1931 roku w turnieju golfowym jako miejscowy amator staje do walki z mistrzami: Walterem Hagenem i Bobby Jonesem (Joel Gretsch, Bruce McGill). Junuh byłby skazany na porażkę, gdyby nie pojawił się ktoś, kto pomógł mu powrócić do formy sprzed lat. Jest nim tajemniczy Bagger Vance (Will Smith), caddy - pomocnik gracza, który udziela mu rad pozornie związanych z grą, a w rzeczywistości odnoszących się do życia.
+    

@@ -1,0 +1,9 @@
+
+        Misja / The Mission 1986 
+        =============
+        
+        [![Misja / The Mission 1986 ](http://vidos.pl/images/player.gif)](http://vidos.pl/misja-the-mission-1986)
+        
+        
+ Jezuita ojciec Gabriel (Jeremy Irons) podejmuje wyprawę w głąb południowo-amerykańskiej dżungli, gdzie buduje misje dla Indian Guarani. Niespodziewanie zyskuje sprzymierzeńca w osobie Rodriga Mendozy (Robert De Niro), nawróconego najemnika - łowcy niewolników i bratobójcy. Gdy Hiszpania sprzedaje swą kolonię Portugalii, Jezuici postanawiają bronić terytorium nad wodospadami przed portugalską agresją. W cywilizowanym świecie jest wówczas połowa osiemnastego wieku. Film pod każdym względem niezwykły. Oszczędna, a mimo to pełna ekspresji gra aktorska. Niecodzienną aurę współtworzą: naturalna sceneria dzikiej Amazonii i osobliwa muzyka Ennio Morricone. Film obsypany wieloma nagrodami m.in. Złotą Palmą w Cannes - 1986   ... każdym względem niezwykły. Oszczędna, a mimo to pełna ekspresji gra aktorska. Niecodzienną aurę współtworzą: naturalna sceneria dzikiej Amazonii i osobliwa muzyka Ennio Morricone. Film obsypany wieloma nagrodami m.in. Złotą Palmą w Cannes - 1986
+    

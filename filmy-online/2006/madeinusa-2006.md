@@ -1,0 +1,9 @@
+
+        Madeinusa 2006 
+        =============
+        
+        [![Madeinusa 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/madeinusa-2006)
+        
+        
+ Nastoletnia Madeinusa mieszka w Mananaycuna - indiańskiej wiosce ukrytej głęboko w peruwiańskich Andach. Zbliżają się najważniejsze dla Indian święta - Wielkanoc. Mieszkańcy wioski postrzegają te święta jako 'czas bez Boga'. Od Wielkiego Piątku, kiedy Jezus umiera na krzyżu, aż do Niedzieli Zmartwychwstania, każdy z mieszkańców może robić to, na co ma ochotę. Przez trzy 'święte dni' Bóg nie żyje, nic nie widzi, więc grzech nie istnieje. Rozpoczyna się orgia pijaństwa, rozwiązłości, ale i religijnej dewocji. Ojciec Madeinusy pożąda swojej pięknej córki, lecz dotychczas powstrzymywał go strach przed karą boską. Niecierpliwie czeka na początek świąt, by bezkarnie dać upust swoim żądzom. W przeddzień świąt do wioski przyjeżdża niebieskooki chłopak z Limy, którego Madeinusa bierze za swojego Zbawiciela. Gringo, nie ma pojęcia o miejscowych obyczajach, traktuje Indian z wyższością, co w zaskakującym finale opowieści okaże się dla niego zgubne.  ... rozwiązłości, ale i religijnej dewocji. Ojciec Madeinusy pożąda swojej pięknej córki, lecz dotychczas powstrzymywał go strach przed karą boską. Niecierpliwie czeka na początek świąt, by bezkarnie dać upust swoim żądzom. W przeddzień świąt do wioski przyjeżdża niebieskooki chłopak z Limy, którego Madeinusa bierze za swojego Zbawiciela. Gringo, nie ma pojęcia o miejscowych obyczajach, traktuje Indian z wyższością, co w zaskakującym finale opowieści okaże się dla niego zgubne.
+    

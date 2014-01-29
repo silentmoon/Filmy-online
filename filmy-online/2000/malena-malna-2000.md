@@ -1,0 +1,9 @@
+
+        Malena / Malèna 2000 
+        =============
+        
+        [![Malena / Malèna 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/malena-malna-2000)
+        
+        
+ Pogrążony w marzeniach o filmowym romansie, Renato Amoroso staje się sekretnym cieniem Maleny, szpiegującym każdy jej zmysłowy ruch. Wszystkie najdrobniejsze wydarzenia w jej życiu obserwuje z chłopięcą wybujałą zmysłowością. Nawet gdy jego rodzice podejmują komiczne próby oduczenia go tego 'grzesznego' i 'niezdrowego' zachowania - zabijają mu deskami okna, zabierają go do księdza egzorcysty, a następnie prostytutki - Renato kontynuuje obserwację Maleny. Widzi, jak wydarzenia w jej życiu przybierają zły obrót, jak Malena staje się wdową, a następnie obiektem długo powstrzymywanej żądzy, zazdrości i gniewu, jak staje się zarzewiem erotycznej i uczuciowej burzy, która spada na Castelcuto. Kiedy Malena zostaje upokorzona i wydziedziczona przez ojca, trafia przed sąd, traci źródło dochodów i zostaje bez grosza, Renato musi stawić czoła prowincjonalnej mentalności. I gdy wszystko wydaje się być stracone, on znajduje odwagę, by przejść do czynów i stawić czoła przeciwnościom, podejmuje ryzyko i pomaga Malenie w najbardziej nieoczekiwany sposób.   ... w jej życiu przybierają zły obrót, jak Malena staje się wdową, a następnie obiektem długo powstrzymywanej żądzy, zazdrości i gniewu, jak staje się zarzewiem erotycznej i uczuciowej burzy, która spada na Castelcuto. Kiedy Malena zostaje upokorzona i wydziedziczona przez ojca, trafia przed sąd, traci źródło dochodów i zostaje bez grosza, Renato musi stawić czoła prowincjonalnej mentalności. I gdy wszystko wydaje się być stracone, on znajduje odwagę, by przejść do czynów i stawić czoła przeciwnościom, podejmuje ryzyko i pomaga Malenie w najbardziej nieoczekiwany sposób.
+    

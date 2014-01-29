@@ -1,0 +1,9 @@
+
+        Akcja pod Arsenałem 1977 
+        =============
+        
+        [![Akcja pod Arsenałem 1977 ](http://vidos.pl/images/player.gif)](http://vidos.pl/akcja-pod-arsenalem-1977)
+        
+        
+ Tematem przewodnim filmu są wydarzenia opisane w książkach: 'Kamienie na szaniec' Aleksandra Kamińskiego i 'Akcja pod Arsenałem' Stanisława Broniewskiego. Okupacyjna Warszawa. Z gmachu 'Zachęty', przekształconego w Dom Kultury Niemieckiej, młody chłopak zrywa nocą hitlerowską flagę i zawiesza biało-czerwoną - wraz ze stojącymi na straży kolegami, Rudym i Zośką, Alek szybko ucieka rikszą. Niemcy nasilają działalność propagandową - ze specjalnej ciężarówki wyświetlają na ulicach kronikę filmową ('Wochenschau'). Chłopcom udaje się wrzucić do samochodu materiał wybuchowy i rozbić kino-wóz... Trójka przyjaciół trafia na bazar - Alek marzy o dodającej szyku skórzanej kurtce. Gdy dobijają targu (Zośka poświęca ulubionego 'pelikana'' i szalik, by zdobyć brakujące pieniądze) obok hitlerowiec katuje Żyda. Alek nie wytrzymuje - rzuca się na oprawcę i uderza, przyjaciele dokonują reszty. Ale spotka Alka reprymenda Rudego - taka spontaniczność reakcji może być niebezpieczna dla wszystkich...  ... ulicach kronikę filmową ('Wochenschau'). Chłopcom udaje się wrzucić do samochodu materiał wybuchowy i rozbić kino-wóz... Trójka przyjaciół trafia na bazar - Alek marzy o dodającej szyku skórzanej kurtce. Gdy dobijają targu (Zośka poświęca ulubionego 'pelikana'' i szalik, by zdobyć brakujące pieniądze) obok hitlerowiec katuje Żyda. Alek nie wytrzymuje - rzuca się na oprawcę i uderza, przyjaciele dokonują reszty. Ale spotka Alka reprymenda Rudego - taka spontaniczność reakcji może być niebezpieczna dla wszystkich...
+    

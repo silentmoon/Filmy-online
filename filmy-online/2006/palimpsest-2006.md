@@ -1,0 +1,9 @@
+
+        Palimpsest 2006 
+        =============
+        
+        [![Palimpsest 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/palimpsest-2006)
+        
+        
+ Bohaterem filmu jest Marek - inspektor policji, człowiek na krawędzi psychicznej dezintegracji, który usiłuje rozwikłać skomplikowaną zagadkę kryminalną. Historia opowiadana w filmie toczy się w dwóch płaszczyznach. Pierwsza, to wątek sensacyjny, stanowiący kręgosłup dla całego filmu. Wraz z rozwojem wydarzeń pojawia się druga płaszczyzna - akcja filmu przenosi się w sferę doznań psychicznych głównego bohatera. Plastyczne połączenie obrazu z dźwiękiem i muzyką wciągnie widza w najgłębsze zakamarki świadomości Marka. Widz zmierzy się z pytaniami: co jest rzeczywiste, a co fantasmagoryczne; gdzie przebiega granica pomiędzy rzeczywistością, a naszym o niej wyobrażeniem; co nadaje sens cierpieniu i co naprawdę jest w życiu najważniejsze...?   ... w najgłębsze zakamarki świadomości Marka. Widz zmierzy się z pytaniami: co jest rzeczywiste, a co fantasmagoryczne; gdzie przebiega granica pomiędzy rzeczywistością, a naszym o niej wyobrażeniem; co nadaje sens cierpieniu i co naprawdę jest w życiu najważniejsze...?
+    

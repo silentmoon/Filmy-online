@@ -1,0 +1,9 @@
+
+        Amelia Earhart / Amelia 2009 
+        =============
+        
+        [![Amelia Earhart / Amelia 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/amelia-earhart-amelia-2009)
+        
+        
+ Wizjonerka. Kochanka. Marzycielka. Silna osobowość. Legenda. Ikona. AMELIA. 'Amelia Earhart' to opowieść o niezwykłym życiu pionierki, kobiety-pilot. W rolę tytułową wcieliła się dwukrotna laureatka Oscara, Hillary Swank. Amelia Earhart była pierwszą kobietą, która przeleciała nad Atlantykiem (wpierw jako pasażerka, potem jako pilot). Zyskała ogromną sławę, stała się ulubienicą Ameryki - „boginią jasności' uwielbianą za odwagę i charyzmę. Popularność jej nie zmieniła - do końca życia kochała niebezpieczeństwo i wyzwania, nie bała się mówić tego co myślała, i realizować planów. Była inspiracją dla milionów ludzi - między innymi dla Eleonor Roosevelt (Cherry Jones), swego męża magnata prasowego, George'a P. Putnama (Richard Gere) czy wieloletniego przyjaciela i kochanka, pilota Gene'a Vidala (Ewan McGregor). Latem 1937 roku Amelia zdecydowała się bardzo odważny krok - postanowiła przelecieć samotnie dookoła świata. To jeden z najsłynniejszych lotów w historii.  ... końca życia kochała niebezpieczeństwo i wyzwania, nie bała się mówić tego co myślała, i realizować planów. Była inspiracją dla milionów ludzi - między innymi dla Eleonor Roosevelt (Cherry Jones), swego męża magnata prasowego, George'a P. Putnama (Richard Gere) czy wieloletniego przyjaciela i kochanka, pilota Gene'a Vidala (Ewan McGregor). Latem 1937 roku Amelia zdecydowała się bardzo odważny krok - postanowiła przelecieć samotnie dookoła świata. To jeden z najsłynniejszych lotów w historii.
+    

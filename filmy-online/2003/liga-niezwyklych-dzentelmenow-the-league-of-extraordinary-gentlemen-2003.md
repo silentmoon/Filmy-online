@@ -1,0 +1,9 @@
+
+        Liga niezwykłych dżentelmenów / The League of Extraordinary Gentlemen 2003 
+        =============
+        
+        [![Liga niezwykłych dżentelmenów / The League of Extraordinary Gentlemen 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/liga-niezwyklych-dzentelmenow-the-league-of-extraordinary-gentlemen-2003)
+        
+        
+ Ligę Niezwykłych Dżentelmenów tworzą bohaterowie, jakich nikt dotąd nie widział, a na jej czele stoi największy łowca i awanturnik na świecie, Allan Quatermain - odkrywca legendarnych kopalni króla Salomona. Towarzyszą mu: kapitan Nemo, wampirzyca Mina Harker, niewidzialny człowiek Rodney Skinner, amerykański agent do zadań specjalnych Tom Sawyer, nieśmiertelny Dorian Gray i nieobliczalny dr Jekyll/pan Hyde. Brytyjski wywiad, który powołał do życia Ligę, reprezentuje enigmatyczny M. Członkowie Ligi nie uznają żadnych autorytetów, są indywidualistami, których los zmusza do współdziałania. Muszą przełamać dzielące ich różnice i nauczyć się ufać sobie, bo w nich cała nadzieja świata: zamaskowany szaleniec, który każe się nazywać 'Fantomem' grozi zatopieniem Wenecji, gdzie odbywa się konferencja przywódców największych mocarstw. Członkowie Ligi wyruszają do Włoch na pokładzie Nautilusa, okrętu podwodnego kapitana Nemo. Mają dziewięć godzin, by ocalić świat...   ... enigmatyczny M. Członkowie Ligi nie uznają żadnych autorytetów, są indywidualistami, których los zmusza do współdziałania. Muszą przełamać dzielące ich różnice i nauczyć się ufać sobie, bo w nich cała nadzieja świata: zamaskowany szaleniec, który każe się nazywać 'Fantomem' grozi zatopieniem Wenecji, gdzie odbywa się konferencja przywódców największych mocarstw. Członkowie Ligi wyruszają do Włoch na pokładzie Nautilusa, okrętu podwodnego kapitana Nemo. Mają dziewięć godzin, by ocalić świat...
+    

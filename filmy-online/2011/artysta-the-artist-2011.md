@@ -1,0 +1,9 @@
+
+        Artysta / The Artist 2011 
+        =============
+        
+        [![Artysta / The Artist 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/artysta-the-artist-2011)
+        
+        
+ 'Artysta' to budzący zachwyt krytyki i miłośników kina namiętny romans i sentymentalna podróż do złotego okresu kina. Film po mistrzowsku łączy klasyczną, czarno-białą poetykę ze zrozumieniem oczekiwań nowoczesnego widza. To akcja, śmiech i łzy oraz, mimo pozorów, wycieczka do niezwykle barwnego świata. Opowieść dzieje się pod koniec lat 20. XX wieku, w czasie przełomu dźwiękowego. Koniec kina niemego był równocześnie końcem karier wielu gwiazd, będących u szczytu popularności. Czy słynny aktor George Valentin (Dujardin) podzieli los 'wielkich zapomnianych'? Czy płomienna miłość, która wybuchnie między nim a początkującą tancerką Peppy Miller (Bejo) zainspiruje go do walki o miejsce w świecie 'nowego' Hollywood i ocali przed zapomnieniem oddanej kiedyś publiczności?   ... popularności. Czy słynny aktor George Valentin (Dujardin) podzieli los 'wielkich zapomnianych'? Czy płomienna miłość, która wybuchnie między nim a początkującą tancerką Peppy Miller (Bejo) zainspiruje go do walki o miejsce w świecie 'nowego' Hollywood i ocali przed zapomnieniem oddanej kiedyś publiczności?
+    

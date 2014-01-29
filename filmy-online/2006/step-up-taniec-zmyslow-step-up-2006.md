@@ -1,0 +1,9 @@
+
+        Step Up - Taniec zmysłów / Step Up 2006 
+        =============
+        
+        [![Step Up - Taniec zmysłów / Step Up 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/step-up-taniec-zmyslow-step-up-2006)
+        
+        
+ Każdy zasługuje na szansę spełnienia swoich marzeń, ale niektórzy mają ją tylko jedną. Tyler Gage (Channing Tatum) jest buntownikiem z gorszej części Baltimore - i jedyną rzeczą jak stoi pomiędzy nim a jego niespełnionym życiem są marzenia, że pewnego dnia się stąd wyrwie. Nora (Jenna Dewan) jest wysoko postawioną tancerką baletu uczęszczającą do bardzo dobrej szkoły w Baltimore (Maryland School of the Arts) - i jedyną rzeczą stojącą na drodze do jej pewnej i wspaniałej przyszłości jest znalezienie partnera do tańca na jej pokaz końcowy. Kłopoty z prawem sprawiają, że Tyler ląduje w ramach pracy społecznej w Maryland School of the Arts. Jest tam jako ktoś obcy, niepasujący do otoczenia, dopóki jego umiejętności jako zdolnego, ulicznego tancerza nie przyciągają uwagi Nory. Teraz coś pomiędzy nimi iskrzy, na i poza sceną. Tyler zdaje sobie sprawę że ma tylko jeden występ aby udowodnić że może zajść w życiu dalej niż kiedykolwiek mógł to sobie wyobrazić.   ... przyszłości jest znalezienie partnera do tańca na jej pokaz końcowy. Kłopoty z prawem sprawiają, że Tyler ląduje w ramach pracy społecznej w Maryland School of the Arts. Jest tam jako ktoś obcy, niepasujący do otoczenia, dopóki jego umiejętności jako zdolnego, ulicznego tancerza nie przyciągają uwagi Nory. Teraz coś pomiędzy nimi iskrzy, na i poza sceną. Tyler zdaje sobie sprawę że ma tylko jeden występ aby udowodnić że może zajść w życiu dalej niż kiedykolwiek mógł to sobie wyobrazić.
+    

@@ -1,0 +1,9 @@
+
+        Charlie St. Cloud 2010 
+        =============
+        
+        [![Charlie St. Cloud 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/charlie-st-cloud-2010)
+        
+        
+ Charlie St. Cloud (Zac Efron) to młody człowiek zagubiony w melancholijnym świecie wspomnień. Prześladowany przez widmo rodzinnej tragedii, wypadku w którym zginął jego młodszy brat, zostaje zmuszony do porzucenia swych marzeń i planów. Jednak kiedy do miasta powraca jego dawna szkolna koleżanka Tess (Amanda Crew), w Charliem budzi się uczucie, którego za wszelką cenę starał się do siebie nie dopuszczać. Czy rozdarty między obietnicą złożoną swemu bratu, a miłością do Tess będzie on zdolny do wyrwania się z pułapki własnych emocji? Oparta na światowym bestsellerze głęboka opowieść o miłości i nadziei, uświetniona występem laureatki Nagrody Akademii – Kim Basinger.   ... będzie on zdolny do wyrwania się z pułapki własnych emocji? Oparta na światowym bestsellerze głęboka opowieść o miłości i nadziei, uświetniona występem laureatki Nagrody Akademii – Kim Basinger.
+    

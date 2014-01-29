@@ -1,0 +1,9 @@
+
+        Zakochany Goethe / Goethe! 2010 
+        =============
+        
+        [![Zakochany Goethe / Goethe! 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakochany-goethe-goethe-2010)
+        
+        
+ Johan Wolfgang von Goethe to jeden z najbardziej znanych pisarzy doby romantyzmu. 'Zakochany Goethe' to historia jego miłości, która zainspirowała go do napisania 'Cierpień młodego Wertera'. Młody Goethe na polecenie ojca wyjeżdża na prowincję uzupełnić prawnicze wykształcenie. Traci finansowe wsparcie dla swojej twórczości. Niespodziewanie znajduje tam... miłość. Zakochuje się w kobiecie przeznaczonej innemu mężczyźnie. Charlotte Buff staje się jego fascynacją. Żyje wyobrażeniem o ich miłości. To dla niej pisze 'I wszystko w nas było do wtóru, I każdem tchnieniem byłem Twój'. Jego uczucie jest co prawda odwzajemnione lecz  z góry skazane na klęskę.   ... wyobrażeniem o ich miłości. To dla niej pisze 'I wszystko w nas było do wtóru, I każdem tchnieniem byłem Twój'. Jego uczucie jest co prawda odwzajemnione lecz  z góry skazane na klęskę.
+    

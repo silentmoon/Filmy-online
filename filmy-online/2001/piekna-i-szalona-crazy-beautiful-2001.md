@@ -1,0 +1,9 @@
+
+        Piękna i szalona / Crazy/Beautiful 2001 
+        =============
+        
+        [![Piękna i szalona / Crazy/Beautiful 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/piekna-i-szalona-crazy-beautiful-2001)
+        
+        
+ Siedemnastoletnia Nicole Oakley mieszka w luksusowej rezydencji w Los Angeles wraz z ojcem, wpływowym kongresmanem Tomem i jego drugą żoną, Courtney. Nicole z nikim się nie liczy i notorycznie wagaruje w towarzystwie swej najlepszej przyjaciółki, Maddy. Zbieg okoliczności sprawia, że Nicole poznaje przystojnego Carlosa Nuneza, w którym zakochuje się od pierwszego wejrzenia. Carlos pochodzi z ubogiej latynoskiej rodziny, wychowywał się w nienajlepszej dzielnicy i wykazuje wybitne uzdolnienia. Z pozoru wydawać by się mogło, że nic ich nie łączy: Carlos jest rozsądnym, odpowiedzialnym młodym człowiekiem i poważnie myśli o przyszłości. Nicole zaś nie uznaje autorytetów i nieustannie buntuje się przeciwko wszystkim i wszystkiemu. On nie ma nic i z szacunkiem podchodzi do innych, ona ma wszystko i nie szanuje nikogo. Ich związkowi przeciwni są wszyscy: koledzy Nicole nie mogą ścierpieć poważnie myślącego Carlosa, którego uważają za dziwaka; rodzina z kolei Carlosa uważa, że znajomość z Nicole zrujnuje jego nadzieje na przyszłość. Czy ich miłość ma szanse przetrwać?   ... wybitne uzdolnienia. Z pozoru wydawać by się mogło, że nic ich nie łączy: Carlos jest rozsądnym, odpowiedzialnym młodym człowiekiem i poważnie myśli o przyszłości. Nicole zaś nie uznaje autorytetów i nieustannie buntuje się przeciwko wszystkim i wszystkiemu. On nie ma nic i z szacunkiem podchodzi do innych, ona ma wszystko i nie szanuje nikogo. Ich związkowi przeciwni są wszyscy: koledzy Nicole nie mogą ścierpieć poważnie myślącego Carlosa, którego uważają za dziwaka; rodzina z kolei Carlosa uważa, że znajomość z Nicole zrujnuje jego nadzieje na przyszłość. Czy ich miłość ma szanse przetrwać?
+    

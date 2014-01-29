@@ -1,0 +1,9 @@
+
+        Strażnik / The Sentinel 2006 
+        =============
+        
+        [![Strażnik / The Sentinel 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/straznik-the-sentinel-2006)
+        
+        
+ Doświadczony agent Secret Service, Pete Garrison (Michael Douglas) podejrzewa, iż pośród pracowników Białego Domu jest zdrajca. Zostaje jednak zmuszony do porzucenia śledztwa w tej sprawie, ponieważ pojawia się szantażysta, grożący ujawnieniem jego romansu z pierwszą damą Stanów Zjednoczonych - Sarą Ballentine. Wkrótce Pete zostaje oskarżony o zdradę i udział w zamachu na prezydenta. Popada w konflikt ze swoim podwładnym, agentem Davidem Breckinridgem (Kiefer Sutherland), który jest przekonany o jego winie. Oficjalnie zwolniony ze służby, Garrison ucieka i próbuje udowodnić swoją niewinność. Stara się również nie dopuścić do kolejnego zamachu na życie głowy państwa.  ... który jest przekonany o jego winie. Oficjalnie zwolniony ze służby, Garrison ucieka i próbuje udowodnić swoją niewinność. Stara się również nie dopuścić do kolejnego zamachu na życie głowy państwa.
+    

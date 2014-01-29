@@ -1,0 +1,9 @@
+
+        Mesjasz: Zemsta będzie moja / Messiah 2: Vengeance Is Mine 2002 
+        =============
+        
+        [![Mesjasz: Zemsta będzie moja / Messiah 2: Vengeance Is Mine 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mesjasz-zemsta-bedzie-moja-messiah-2-vengeance-is-mine-2002)
+        
+        
+ Londyński detektyw, Red Metcalfe tym razem poszukuje seryjnego mordercy, który wyjątkowo brutalnie i okrutnie pozbawia życia swoje ofiary. Początkowo wydaje się, że zabójstwa te nie są ze sobą w żaden sposób powiązane, jednak podczas śledztwa się okazuje, iż łączą się one ze śmiercią czterech osób, które zginęły kilka lat wcześniej. Za popełnienie tych zbrodni skazano i osadzono w zakładach karnych mężczyzn, jednak żaden z nich nie przyznał się do winy. Morderca uwierzył w ich niewinność i dokonał samosądu na prawdziwych sprawcach zbrodni sprzed lat. Nadinspektor Metcalfe próbuje schwytać seryjnego mordercę, dociec, w jaki sposób doszło do skazania niewinnych ludzi oraz ochronić policjantów, którym poszukiwany psychopata zaczął zagrażać. Scenariusz filmu powstał na podstawie powieści 'Mesjasz' Borisa Starlinga. Obraz jest też kontynuacją dramatu kryminalnego 'Mesjasz: Pierwsze ofiary' z 2001 roku.  ... ich niewinność i dokonał samosądu na prawdziwych sprawcach zbrodni sprzed lat. Nadinspektor Metcalfe próbuje schwytać seryjnego mordercę, dociec, w jaki sposób doszło do skazania niewinnych ludzi oraz ochronić policjantów, którym poszukiwany psychopata zaczął zagrażać. Scenariusz filmu powstał na podstawie powieści 'Mesjasz' Borisa Starlinga. Obraz jest też kontynuacją dramatu kryminalnego 'Mesjasz: Pierwsze ofiary' z 2001 roku.
+    

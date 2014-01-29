@@ -1,0 +1,9 @@
+
+        Frost/Nixon 2008 
+        =============
+        
+        [![Frost/Nixon 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/frost-nixon-2008)
+        
+        
+ Latem 1977 roku emitowana przez amerykańską telewizję seria wywiadów Davida Frosta z Richardem Nixonem zgromadziła przed ekranami rekordową liczbę widzów. Takiego zainteresowania programem publicystycznym nie odnotowano nigdy dotąd w historii. Ponad 45 milionów widzów przez cztery dni z rzędu gromadziło się przed ekranami telewizorów w nadziei na poznanie sposobu myślenia człowieka, który po aferze Watergate w niesławie opuszczał urząd prezydenta USA. Słowna potyczka Nixona i Frosta rozpalała umysły obywateli ciekawych tego, czy prowadzącemu program uda się przyprzeć byłego prezydenta do muru i uzyskać przyznanie się do winy za nadużycia władzy. Obaj mężczyźni zdawali sobie sprawę jak wiele mają do zyskania lub stracenia - w tej potyczce tylko jeden mógł odejść w glorii chwały. Ich legendarna telewizyjna konfrontacja na zawsze zmieniła oblicze sztuki wywiadu, jak również oblicze polityki, doprowadzając do wyznań, które zaskoczyły ludzi na całym świecie, a być może były zaskoczeniem również dla samego Nixona.   ... Frosta rozpalała umysły obywateli ciekawych tego, czy prowadzącemu program uda się przyprzeć byłego prezydenta do muru i uzyskać przyznanie się do winy za nadużycia władzy. Obaj mężczyźni zdawali sobie sprawę jak wiele mają do zyskania lub stracenia - w tej potyczce tylko jeden mógł odejść w glorii chwały. Ich legendarna telewizyjna konfrontacja na zawsze zmieniła oblicze sztuki wywiadu, jak również oblicze polityki, doprowadzając do wyznań, które zaskoczyły ludzi na całym świecie, a być może były zaskoczeniem również dla samego Nixona.
+    

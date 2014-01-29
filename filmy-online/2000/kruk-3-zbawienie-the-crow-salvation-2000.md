@@ -1,0 +1,9 @@
+
+        Kruk 3: Zbawienie / The Crow: Salvation 2000 
+        =============
+        
+        [![Kruk 3: Zbawienie / The Crow: Salvation 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kruk-3-zbawienie-the-crow-salvation-2000)
+        
+        
+ Najmłodszy człowiek, jakiego kiedykolwiek stracono na krześle elektrycznym, powraca, by pomścić śmierć swoją i swojej dziewczyny, którą zabił nieznany sprawca. Jest obdarzony nadprzyrodzonymi mocami, nie ma jednak pewności, czy uda mu się zdemaskować skorumpowanych stróżów prawa i porządku, który przejęli władzę nad jego rodzinnym miastem... Alex Corvis przysięga, że sprawcą brutalnego zabójstwa jego narzeczonej, Lauren Randall, która zginęła pięćdziesięciotrzykrotnie ugodzona nożem, jest tajemniczy mężczyzna z piętnem na ramieniu. Sąd nie daje mu wiary i skazuje na śmierć na krześle elektrycznym. Alex zmartwychwstaje i powraca na ziemię jako 'Kruk'. Obdarzony nadprzyrodzonymi mocami szukać będzie zemsty na zabójcy swej narzeczonej i skorumpowanych przedstawicielach władz, którzy posłali go na śmierć...   ... ugodzona nożem, jest tajemniczy mężczyzna z piętnem na ramieniu. Sąd nie daje mu wiary i skazuje na śmierć na krześle elektrycznym. Alex zmartwychwstaje i powraca na ziemię jako 'Kruk'. Obdarzony nadprzyrodzonymi mocami szukać będzie zemsty na zabójcy swej narzeczonej i skorumpowanych przedstawicielach władz, którzy posłali go na śmierć...
+    

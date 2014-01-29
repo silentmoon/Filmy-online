@@ -1,0 +1,9 @@
+
+        Ace Ventura: Psi detektyw / Ace Ventura: Pet Detective 1994 
+        =============
+        
+        [![Ace Ventura: Psi detektyw / Ace Ventura: Pet Detective 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ace-ventura-psi-detektyw-ace-ventura-pet-detective-1994)
+        
+        
+ Ace Ventura, psi detektyw jest miłośnikiem zwierząt i pracuje jako detektyw szukający zaginionych przedstawicieli fauny. Przebrany za dostawcę nie traktuje swej przesyłki z należytym szacunkiem przez co podpada adresatowi, tym bardziej że porywa mu pieska - uwarza że zwierzak nie jest dobrze traktowany. Mimo kłopotów z samochodem udaje mu się uciec przed rozwścieczonym mężczyzną, który nie od razu orientuje się że jego szczeniak zniknął. Ace Ventura w mieszkaniu ma mnóstwo zwierząt, ale musi je ukrywać przed właścicielem domu, który ich nie toleruje. Gdy z delfinarium w Miami ginie delfin butlonosy, Ace zostaje wynajęty jako najlepszy, najodpowiedniejszy specjalista i rozpoczyna poszukiwania. Powinien się śpieszyć, gdyż pływający ssak jest maskotką miejscowej drużyny footballowej, a zbliża się ważny mecz. Szalony detektyw poszukując tropu trafia między innymi na metalowy koncert Cannibal Corpse, ale nie zabawia tam długo. Film pełen jest wielu gagów na niewygórowanym poziomie.   ... zwierząt, ale musi je ukrywać przed właścicielem domu, który ich nie toleruje. Gdy z delfinarium w Miami ginie delfin butlonosy, Ace zostaje wynajęty jako najlepszy, najodpowiedniejszy specjalista i rozpoczyna poszukiwania. Powinien się śpieszyć, gdyż pływający ssak jest maskotką miejscowej drużyny footballowej, a zbliża się ważny mecz. Szalony detektyw poszukując tropu trafia między innymi na metalowy koncert Cannibal Corpse, ale nie zabawia tam długo. Film pełen jest wielu gagów na niewygórowanym poziomie.
+    

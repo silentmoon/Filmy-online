@@ -1,0 +1,9 @@
+
+        Bractwo / The Circle 2001 
+        =============
+        
+        [![Bractwo / The Circle 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bractwo-the-circle-2001)
+        
+        
+ Grupa uczniów Runcie High School postanawia stworzyć elitarny klub, spędzając czas na licznych zabawach. Kłopoty zaczynają się, gdy wszyscy członkowie bractwa z egzaminu dostają najwyższą ocenę. Nauczyciel Spencer Runcie podejrzewając uczniów o ściąganie postanawia dojść do prawdy. Podczas przesłuchań wszystkich, którzy dostali maksymalną ocenę pada nazwisko jednego z uczniów, Fracier'a, który natychmiast zostaje wydalony ze szkoły. Pozostali członkowie pomimo braków dowodu podejrzewają, że osobą, która wydała ich kolegę jest Marcus Faulkner. Niedługo potem zostaje znaleziony martwy. Alex Desineau, przyjaciel Marcusa z kampusu podejrzewa, że za zabójstwem stoją członkowie bractwa. Zawiadamia administrację szkoły, ale widząc brak zaangażowania ze strony dyrektora postanawia na własną rękę wyjaśnić zagadkę morderstwa.   ... podejrzewają, że osobą, która wydała ich kolegę jest Marcus Faulkner. Niedługo potem zostaje znaleziony martwy. Alex Desineau, przyjaciel Marcusa z kampusu podejrzewa, że za zabójstwem stoją członkowie bractwa. Zawiadamia administrację szkoły, ale widząc brak zaangażowania ze strony dyrektora postanawia na własną rękę wyjaśnić zagadkę morderstwa.
+    

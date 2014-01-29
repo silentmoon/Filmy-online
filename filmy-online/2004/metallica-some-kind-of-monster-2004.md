@@ -1,0 +1,9 @@
+
+        Metallica: Some Kind of Monster 2004 
+        =============
+        
+        [![Metallica: Some Kind of Monster 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/metallica-some-kind-of-monster-2004)
+        
+        
+ Metallica: Some Kind Of Monster pokazuje, jak żmudna jest praca zespołu, aby dojść do doskonałości. Ukazuje słabości i fobie ludzi, którzy wpływają na życie milionów ludzi. Łączy także zwaśnone dawniej strony, ukazuje muzyków w całkiem nowym, nie zawsze dobrym świetle. Jest on znakomitym prezentem dla fanów, jak i zwykłych obserwatorów. Okraszone potężną muzyką Metalliki, daje nam niesmowity klimat. Warto zauważyć, że oprócz samego ukazania, jak nagrywa się dzisiaj album, ukazuje również historię tej, można powiedzieć, legendy Metalu. Mamy tutaj pokazaną pustkę, jaką pozostawił po sobie pierwszy basista-Cliff Burton, jak i zastrzeżenia co do drugiego-Jasona Newsteda, oraz przesłuchania nowego gościa-Roba Trujillo. Pokazuje zwady i zatarczki członków grupy. Ich wkład i zaangażowanie. Trudne, ale i też piękne chwile. Chwile wręcz chylące się w stronę upadku kapeli, ale i takie momenty które upewniają nas: 'Tak, Metallica będzie istnieć'.  ... ukazuje również historię tej, można powiedzieć, legendy Metalu. Mamy tutaj pokazaną pustkę, jaką pozostawił po sobie pierwszy basista-Cliff Burton, jak i zastrzeżenia co do drugiego-Jasona Newsteda, oraz przesłuchania nowego gościa-Roba Trujillo. Pokazuje zwady i zatarczki członków grupy. Ich wkład i zaangażowanie. Trudne, ale i też piękne chwile. Chwile wręcz chylące się w stronę upadku kapeli, ale i takie momenty które upewniają nas: 'Tak, Metallica będzie istnieć'.
+    

@@ -1,0 +1,9 @@
+
+        Resident Evil: Retrybucja / Resident Evil: Retribution 2012 
+        =============
+        
+        [![Resident Evil: Retrybucja / Resident Evil: Retribution 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/resident-evil-retrybucja-resident-evil-retribution-2012)
+        
+        
+ Stworzony w laboratoriach Umbrelli śmiercionośny wirus T w dalszym ciągu sieje spustoszenie na planecie Ziemi, przemieniając ludzkość globu w legiony żarłocznych zombie. Umbrella złapała Chrisa (Wentworth Miller), Claire (Ali Larter) oraz K-marta (Spencer Locke). Bohaterowie muszą poradzić sobie z pasożytem Las Plagas. Ostatnim ratunkiem okazuję się niezawodna w swoich atakach Alice (Milla Jovovich), która budzi się w sercu najtajniejszej placówki operacyjnej Umbrelli. Odkrywa  ze swojej tajemniczej przeszłości. Nie mając miejsca do schronienia, Alice kontynuuję poszukiwania sprawców globalnej epidemii, od Tokio po Nowy Jork, Waszyngton i Moskwę. Podróż po całym świecie, która zakończy się niesamowitym odkryciem, zmusza ją do przemyślenia wszystkiego, co uważała dotąd za prawdę. Wspierana przez przyjaciół i nowych sojuszników, Alice musi walczyć i przetrwać wystarczająco długo, aby uciec z wrogiego świata, będącego na skraju zapomnienia.   ... Odkrywa więcej ze swojej tajemniczej przeszłości. Nie mając miejsca do schronienia, Alice kontynuuję poszukiwania sprawców globalnej epidemii, od Tokio po Nowy Jork, Waszyngton i Moskwę. Podróż po całym świecie, która zakończy się niesamowitym odkryciem, zmusza ją do przemyślenia wszystkiego, co uważała dotąd za prawdę. Wspierana przez przyjaciół i nowych sojuszników, Alice musi walczyć i przetrwać wystarczająco długo, aby uciec z wrogiego świata, będącego na skraju zapomnienia.
+    

@@ -1,0 +1,9 @@
+
+        The Visitation 2006 
+        =============
+        
+        [![The Visitation 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/the-visitation-2006)
+        
+        
+ W Antiochii, małym, spokojnym miasteczku mają miejsce nadprzyrodzone wydarzenia. Zainteresowanie wszystkich budzi pewien obcy przybysz, obdarzony zdolnością uzdrawiania wszelkich chorób. 'On nadchodzi' - w ten sposób zapowiadają go jego wysłannicy. Ale kim jest ten charyzmatyk? Czy jest prawdziwym mesjaszem, fałszywym prorokiem, czy może kimś jeszcze bardziej niebezpiecznym? Tego rodzaju kwestie i wątpliwości wkrótce podzielą lokalną społeczność, a w chwili, gdy zdarzenia w przygotowanym przez niego Namiocie Spotkań staną się bardziej tajemnicze i przerażające, wkroczy w nie były duchowy, pastor, który utracił wiarę wskutek tego, że jego żona została kilka lat wcześniej zamordowana we wstrząsający sposób. Będzie on zmuszony stanąć do konfrontacji z własnymi demonami przeszłości, a przy okazji starając się odkryć tajemnicę kilku niewyjaśnionych lokalnych sekretnych wydarzeń. Fabuła filmu jest oparta na bestsellerowej powieści Franka Perettiego. Film wyprodukowany jest przez znanego producenta Ralpha Wintera (X-Men, Fantastic Four).  ... przygotowanym przez niego Namiocie Spotkań staną się bardziej tajemnicze i przerażające, wkroczy w nie były duchowy, pastor, który utracił wiarę wskutek tego, że jego żona została kilka lat wcześniej zamordowana we wstrząsający sposób. Będzie on zmuszony stanąć do konfrontacji z własnymi demonami przeszłości, a przy okazji starając się odkryć tajemnicę kilku niewyjaśnionych lokalnych sekretnych wydarzeń. Fabuła filmu jest oparta na bestsellerowej powieści Franka Perettiego. Film wyprodukowany jest przez znanego producenta Ralpha Wintera (X-Men, Fantastic Four).
+    

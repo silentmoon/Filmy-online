@@ -1,0 +1,9 @@
+
+        Kochaj i rób co chcesz 1997 
+        =============
+        
+        [![Kochaj i rób co chcesz 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kochaj-i-rob-co-chcesz-1997)
+        
+        
+ Romantyczna wyspa i para zakochanych młodych ludzi - tak zaczyna się ta współczesna love story, pełna humoru i muzyki. Jej bohaterem jest młody, ambitny muzyk, Sławek Wiśnik (Rafał Olbrychski), absolwent konserwatorium w klasie organów. Chce wyrwać się z Kaliszewa, małej miejscowości pod Suwałkami i zrobić karierę muzyczną. Niestety nie dostaje oczekiwanego stypendium do szkoły w Heidelbergu i musi zacząć nowe życie w rodzinnym miasteczku. Jego dziewczyna, Agnieszka (Monika Kwiatkowska), planuje szybki ślub, tym bardziej, że jej ojciec, Zenon Nowak (Jerzy Trela), oferuje Sławkowi prowadzenie interesów. Jednak to nie odpowiada Sławkowi, który woli grać jako zastępca organisty, a nawet... jako muzyk disco-polo.   ... Kwiatkowska), planuje szybki ślub, tym bardziej, że jej ojciec, Zenon Nowak (Jerzy Trela), oferuje Sławkowi prowadzenie interesów. Jednak to nie odpowiada Sławkowi, który woli grać jako zastępca organisty, a nawet... jako muzyk disco-polo.
+    

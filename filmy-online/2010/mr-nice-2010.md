@@ -1,0 +1,9 @@
+
+        Mr. Nice 2010 
+        =============
+        
+        [![Mr. Nice 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mr-nice-2010)
+        
+        
+ Oparty na bestsellerowej, autobiograficznej powieści film, opowiada historię Howarda Marksa - absolwenta uniwersytetu w Oksfordzie i międzynarodowego przemytnika narkotyków na olbrzymią skalę. Autor książki, z pochodzenia Walijczyk, jest ikoną kontrkultury pokolenia dzieci kwiatów, wymienianą w jednym szeregu z takimi znakomitościami jak John Lennon czy Timothy Leary. W czasie swej, trwającej wiele lat, przestępczej działalności, Marks posługiwał się ponad czterdziestoma tożsamościami, był zarejestrowany jako agent MI-6, posiadał kontakty w mafii, CIA i kolumbijskich kartelach narkotykowych. Nigdy nie stosował przemocy. Przygodom głównego bohatera, w którego wciela się pamiętny z 'Notting Hill' współlokator Hugh Granta, Spike - Rhys Ifans, towarzyszy cały poczet barwnych typów, w tym szalony członek IRA i szmugler narkotyków James McCann (David Thewlis). W rolę żony Mr. Nice'a, Judy Marks, wciela się brytyjska gwiazda Chloë Sevigny. Film to obowiązkowa pozycja dla miłośników brytyjskiego humoru i wciągającej akcji.   ... tożsamościami, był zarejestrowany jako agent MI-6, posiadał kontakty w mafii, CIA i kolumbijskich kartelach narkotykowych. Nigdy nie stosował przemocy. Przygodom głównego bohatera, w którego wciela się pamiętny z 'Notting Hill' współlokator Hugh Granta, Spike - Rhys Ifans, towarzyszy cały poczet barwnych typów, w tym szalony członek IRA i szmugler narkotyków James McCann (David Thewlis). W rolę żony Mr. Nice'a, Judy Marks, wciela się brytyjska gwiazda Chloë Sevigny. Film to obowiązkowa pozycja dla miłośników brytyjskiego humoru i wciągającej akcji.
+    

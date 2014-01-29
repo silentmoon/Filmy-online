@@ -1,0 +1,9 @@
+
+        Wybuchowa para / Knight and Day 2010 
+        =============
+        
+        [![Wybuchowa para / Knight and Day 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wybuchowa-para-knight-and-day-2010)
+        
+        
+ 'Wybuchowa para' to spektakularna komedia akcji, w której Tom Cruise wciela się w rolę tajnego agenta, a Cameron Diaz gra kobietę wciągniętą w śmiertelnie groźną rozgrywkę służb specjalnych. Porwanie w biały dzień, strzelanina na autostradzie, przymusowe lądowanie samolotu na polu kukurydzy, ucieczka na motorze przed stadem rozwścieczonych byków. Tajny agent Roy Miller (Cruise) zapewni June Havens (Diaz) przygodę, która odmieni jej życie. Ona jemu też… Kiedy June wsiada do samolotu, którym ma lecieć na ślub młodszej siostry, poznaje przystojnego i tajemniczego Roya. Samolot nie dolatuje do celu – Roy zabija pilotów i sprowadza maszynę na ziemię… Życie June nabiera rumieńców – przemierza pół świata, cudem unikając czyhających na każdy kroku śmiertelnych niebezpieczeństw. Oczywiście nie jest sama – towarzyszy jej Roy, który kryje niejedną tajemnicę. W wirze szalonych wydarzeń zorientują się, że mogą liczyć tylko na siebie, a stąd już tylko krok do płomiennego romansu…   ... do samolotu, którym ma lecieć na ślub młodszej siostry, poznaje przystojnego i tajemniczego Roya. Samolot nie dolatuje do celu – Roy zabija pilotów i sprowadza maszynę na ziemię… Życie June nabiera rumieńców – przemierza pół świata, cudem unikając czyhających na każdy kroku śmiertelnych niebezpieczeństw. Oczywiście nie jest sama – towarzyszy jej Roy, który kryje niejedną tajemnicę. W wirze szalonych wydarzeń zorientują się, że mogą liczyć tylko na siebie, a stąd już tylko krok do płomiennego romansu…
+    

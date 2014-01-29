@@ -1,0 +1,9 @@
+
+        Efekt motyla / The Butterfly Effect 2004 
+        =============
+        
+        [![Efekt motyla / The Butterfly Effect 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/efekt-motyla-the-butterfly-effect-2004)
+        
+        
+ Evan Treborn (Ashton Kutcher) jako dziecko wiele przeszedł. Wyparł jednak z pamięci te przykre zdarzenia. W dzieciństwie pozostawał pod opieką psychiatry, który zachęcał go do prowadzenia dziennika, w którym szczegółowo miał zapisywać każdy dzień swojego życia. Teraz, już jako student college'u, Evan czytając swój dziennik, w niewytłumaczalny sposób przenosi się w czasie do przeszłości. Dziennik, który trzyma pod łóżkiem, okazuje się bowiem wehikułem czasu i szansą na odtworzenie pamięci z dzieciństwa. Jednak wspomnienia z młodości okazują się bardzo przykre i uświadamiają Evanowi, ile krzywd wyrządził swoim przyjaciołom. Aby naprawić błędy przeszłości, Evan przenosi się w czasy swojego dzieciństwa. Chce napisać na nowo historię w swoim dzienniku i tym samym uchronić przyjaciół. Ma nadzieję, że zmieniając przeszłość, odmieni też przyszłość. Za każdym razem, gdy coś zmieni, powraca do teraźniejszości, aby sprawdzić efekty swoich działań. Problem w tym, że jego wysiłki przynoszą odmienne skutki.  ... odtworzenie pamięci z dzieciństwa. Jednak wspomnienia z młodości okazują się bardzo przykre i uświadamiają Evanowi, ile krzywd wyrządził swoim przyjaciołom. Aby naprawić błędy przeszłości, Evan przenosi się w czasy swojego dzieciństwa. Chce napisać na nowo historię w swoim dzienniku i tym samym uchronić przyjaciół. Ma nadzieję, że zmieniając przeszłość, odmieni też przyszłość. Za każdym razem, gdy coś zmieni, powraca do teraźniejszości, aby sprawdzić efekty swoich działań. Problem w tym, że jego wysiłki przynoszą odmienne skutki.
+    

@@ -1,0 +1,9 @@
+
+        Krótka piłka / Hard Ball 2001 
+        =============
+        
+        [![Krótka piłka / Hard Ball 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krotka-pilka-hard-ball-2001)
+        
+        
+ 'Krótka piłka' opowiada prawdziwą historię hazardzisty Connora O'Neila (Keanu Reeves), który, by spłacić kilkunastotysięczny dług, zatrudnia się jako trener drużyny baseballowej w chicagowskim getto. O'Neil próbuje wykrzesać z czarnych chłopaków trochę ikry. Umiejętności chłopców są nie najgorsze, gorzej jest z motywacją. Jego drużyna to bowiem zbieranina dzieciaków, wśród których każde ma problemy rodzinne, szkolne lub zdrowotne. O'Neil zdaje sobie jednak sprawę, że trenowanie tych czarnych chłopaków to nie tylko szansa na spłatę długów finansowych, to również szansa na powrót do społeczności. Czy O'Neilowi uda się zrobić z podopiecznych prawdziwych graczy? Dotychczasowi kumple Connorsa wyśmiewają się bowiem z jego trenerskich zapędów. Z kolei Elizabeth Wilkes (Diane Lane), która uczy jego podopiecznych w lokalnej szkole, uważa O'Neila za przegranego człowieka. Mimo to Connor nie poddaje się i walczy do końca. Do końca walczą też jego podopieczni.   ... trenowanie tych czarnych chłopaków to nie tylko szansa na spłatę długów finansowych, to również szansa na powrót do społeczności. Czy O'Neilowi uda się zrobić z podopiecznych prawdziwych graczy? Dotychczasowi kumple Connorsa wyśmiewają się bowiem z jego trenerskich zapędów. Z kolei Elizabeth Wilkes (Diane Lane), która uczy jego podopiecznych w lokalnej szkole, uważa O'Neila za przegranego człowieka. Mimo to Connor nie poddaje się i walczy do końca. Do końca walczą też jego podopieczni.
+    

@@ -1,0 +1,9 @@
+
+        Nocne graffiti 1996 
+        =============
+        
+        [![Nocne graffiti 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nocne-graffiti-1996)
+        
+        
+ 'Nocne graffiti' nie jest typowym filmem akcji - choć strzały padają często, a domy wylatują w powietrze. Nie jest filmem o narkotykach - choć biały proszek jest tam przyczyną wszystkiego. Nie jest filmem psychologicznym - choć przez cały czas Marek Kossot (Marek Kondrat) próbuje zrozumieć swoją siostrzenicę Monikę (Kasia Kowalska). Nie jest filmem o korupcji w policji - choć dużą rolę grają w nim grube, pełne banknotów koperty. Nie jest wreszcie filmem muzycznym - choć dużo w nim muzyki. 'Nocne graffiti' to historia o tym, co się może zdarzyć, kiedy ktoś ma dość i postanawia rozwiązać problemy, których nikt nie chce rozwiązać za niego. Stracił wszystko, więc nie zależy mu na niczym. Wchodzi w ciemny, zagmatwany świat, o którym nie piszą w gazetach i którego nie pokazują w telewizji. Wszystko staje się coraz mniej oczywiste, coraz bardziej wieloznaczne. W dodatku dzieje się to w Polsce - w kraju, w którym Brudny Harry nie przeżyłby nawet tygodnia.  ... w nim muzyki. 'Nocne graffiti' to historia o tym, co się może zdarzyć, kiedy ktoś ma dość i postanawia rozwiązać problemy, których nikt nie chce rozwiązać za niego. Stracił wszystko, więc nie zależy mu na niczym. Wchodzi w ciemny, zagmatwany świat, o którym nie piszą w gazetach i którego nie pokazują w telewizji. Wszystko staje się coraz mniej oczywiste, coraz bardziej wieloznaczne. W dodatku dzieje się to w Polsce - w kraju, w którym Brudny Harry nie przeżyłby nawet tygodnia.
+    

@@ -1,0 +1,9 @@
+
+        Jackpot / Arme Riddere 2011 
+        =============
+        
+        [![Jackpot / Arme Riddere 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jackpot-arme-riddere-2011)
+        
+        
+ Jak podzielić zawrotną kwotę, wygraną w zakładach piłkarskich? Przed tym dylematem staje czwórka przyjaciół. Choć umówili się, że podzielą ją równo, to jednak każdy ma chrapkę na . Pieniądze okazują się siłą większą niż przyjaźń i lojalność – kolejni wspólnicy zaczynają więc znikać. Kasę łatwiej przecież podzielić między trzy, a w końcu już tylko między dwie osoby… Pytanie tylko – jak pozbyć się zwłok? A przy tym nie wpaść w ręce wścibskich gliniarzy i uniknąć zemstyy gangstera, któremu nadepnęło się na odcisk. W tej brawurowej czarnej komedii, momentami przechodzącej w makabreskę, trup ściele się gęsto, a absurd goni absurd. Echa filmów Quentina Tarantino i Guya Ritchiego są doskonale czytelne. Film Martensa to zabawa kinem w czystej postaci. A przy tym druga po „Łowcach głów” ekranizacja bestsellerowej powieści modnego Jo Nesbø.   ... y gangstera, któremu nadepnęło się na odcisk. W tej brawurowej czarnej komedii, momentami przechodzącej w makabreskę, trup ściele się gęsto, a absurd goni absurd. Echa filmów Quentina Tarantino i Guya Ritchiego są doskonale czytelne. Film Martensa to zabawa kinem w czystej postaci. A przy tym druga po „Łowcach głów” ekranizacja bestsellerowej powieści modnego Jo Nesbø.
+    

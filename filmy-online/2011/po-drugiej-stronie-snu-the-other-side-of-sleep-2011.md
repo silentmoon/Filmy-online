@@ -1,0 +1,9 @@
+
+        Po drugiej stronie snu / The Other Side Of Sleep 2011 
+        =============
+        
+        [![Po drugiej stronie snu / The Other Side Of Sleep 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/po-drugiej-stronie-snu-the-other-side-of-sleep-2011)
+        
+        
+ Nieśmiała i wycofana Arlene wiedzie nudne, na pozór spokojne życie. Mieszka w sennym irlandzkim miasteczku, w otoczeniu pól, lasów i ścieżek, wśród których można zniknąć i nigdy nie wrócić. Za dnia pracuje w fabryce, wieczorem... lunatykuje. Cierpi na zaburzenia snu od wczesnego dzieciństwa i choć próbuje zapanować nad swoimi nocnymi wędrówkami, regularnie budzi się w nieznanych miejscach, nie pamiętając, jak się tam znalazła. Pewnego ranka Arlene odzyskuje świadomość w środku lasu. Nie jest sama. Obok niej leży martwa młoda kobieta. Próbując opanować niepokój, Arlene ucieka z miejsca zdarzenia, bierze w domu prysznic i idzie do pracy, jak gdyby nigdy nic. Nie wie, że ktoś obserwuje ją zza drzew... Wkrótce ciało zmarłej zostaje znalezione. Policja rozpoczyna śledztwo, a wśród lokalnej społeczności aż huczy od plotek i domysłów. Arlene zaczynają prześladować dziwne wspomnienia z przeszłości. Zamordowana staje się jej obsesją. Zaprzyjaźnia się nawet z bliskimi dziewczyny – jej pogrążoną w smutku siostrą i chłopakiem – głównym podejrzanym w tej sprawie...   ... środku lasu. Nie jest sama. Obok niej leży martwa młoda kobieta. Próbując opanować niepokój, Arlene ucieka z miejsca zdarzenia, bierze w domu prysznic i idzie do pracy, jak gdyby nigdy nic. Nie wie, że ktoś obserwuje ją zza drzew... Wkrótce ciało zmarłej zostaje znalezione. Policja rozpoczyna śledztwo, a wśród lokalnej społeczności aż huczy od plotek i domysłów. Arlene zaczynają prześladować dziwne wspomnienia z przeszłości. Zamordowana staje się jej obsesją. Zaprzyjaźnia się nawet z bliskimi dziewczyny – jej pogrążoną w smutku siostrą i chłopakiem – głównym podejrzanym w tej sprawie...
+    

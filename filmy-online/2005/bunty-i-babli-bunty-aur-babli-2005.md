@@ -1,0 +1,9 @@
+
+        Bunty i Babli / Bunty Aur Babli 2005 
+        =============
+        
+        [![Bunty i Babli / Bunty Aur Babli 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bunty-i-babli-bunty-aur-babli-2005)
+        
+        
+ 'Bunty i Babli', podobnie jak 'Jestem przy tobie', to współczesny hołd złożony bollywoodzkim filmom typu masala, bardzo popularnym w latach 70., będącym mieszanką wielu różnych gatunków. Para głównych bohaterów, Bunty (Abhishek Bachchan) i Babli (Rani Mukherjee), to niepoprawni marzyciele, beztroscy, zwariowani i niezwykle pomysłowi. Pragnąc urozmaicić swe nudne, małomiasteczkowe życie, wyruszają w podróż po Indiach, po drodze oszukując i naciągając kogo się da. Robią to jednak z wyjątkowym wdziękiem, a do tego pozostają nieuchwytni, dzięki czemu zyskują miano najsłynniejszej pary w kraju. W pościg za nimi rusza wkrótce stary policyjny wyga (brawurowa rola znanego z roli głowy rodu w 'Czasem słońce, czasem deszcz' Amitabha Bachchana), który za wszelką cenę pragnie ich odnaleźć i unieszkodliwić. Film otrzymał szereg nagród indyjskiego przemysłu filmowego, w tym za najlepszą ścieżkę dźwiękową i choreografię do piosenki 'Kajra Re' (z udziałem Aishwary Rai). Sama piosenka zaś 'Kajra Re' została wybrana utworem roku 2005.  ... jednak z wyjątkowym wdziękiem, a do tego pozostają nieuchwytni, dzięki czemu zyskują miano najsłynniejszej pary w kraju. W pościg za nimi rusza wkrótce stary policyjny wyga (brawurowa rola znanego z roli głowy rodu w 'Czasem słońce, czasem deszcz' Amitabha Bachchana), który za wszelką cenę pragnie ich odnaleźć i unieszkodliwić. Film otrzymał szereg nagród indyjskiego przemysłu filmowego, w tym za najlepszą ścieżkę dźwiękową i choreografię do piosenki 'Kajra Re' (z udziałem Aishwary Rai). Sama piosenka zaś 'Kajra Re' została wybrana utworem roku 2005.
+    

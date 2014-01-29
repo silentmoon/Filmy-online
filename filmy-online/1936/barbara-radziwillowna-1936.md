@@ -1,0 +1,9 @@
+
+        Barbara Radziwiłłówna 1936 
+        =============
+        
+        [![Barbara Radziwiłłówna 1936 ](http://vidos.pl/images/player.gif)](http://vidos.pl/barbara-radziwillowna-1936)
+        
+        
+ Król Polski i Wielki Książę Litewski Zygmunt II August (Witold Zacharewicz) poznaje w niecodziennej sytuacji, bawiąc na polowaniu w otaczającej jego zamek puszczy, piękną dziewczynę, w której zakochuje się bez pamięci. Niebawem okazuje się, że jest to pochodząca z potężnego rodu magnatów litewskich Barbara Radziwiłłówna (Jadwiga Smosarska). Pomiędzy obojgiem rodzi się gorące uczucie, spotykają się potajemnie i przysięgają wieczną miłość. Na drodze ich szczęścia stoi jednak matka króla, królowa Bona (Leokadia Pancewiczowa), która planuje jego ślub z księżniczką francuską. Przeciwna temu związkowi jest również rodzina Radziwiłłów, która traktuje ukradkowe spotkania obojga jako ujmę na honorze Barbary. Nie chcąc narażać na szwank reputacji magnackiej potęgi Radziwiłłów, nieszczęśliwa dziewczyna postanawia wstąpić do klasztoru. Gdy dowiaduje się o tym król, nie mogąc pogodzić się z utratą swej wielkiej miłości, decyduje się na ślub z ukochaną. Młoda para musi jednak przezwyciężyć liczne przeszkody, przede wszystkim niechętną postawę szlachty wobec królewskiego mezaliansu.   ... matka króla, królowa Bona (Leokadia Pancewiczowa), która planuje jego ślub z księżniczką francuską. Przeciwna temu związkowi jest również rodzina Radziwiłłów, która traktuje ukradkowe spotkania obojga jako ujmę na honorze Barbary. Nie chcąc narażać na szwank reputacji magnackiej potęgi Radziwiłłów, nieszczęśliwa dziewczyna postanawia wstąpić do klasztoru. Gdy dowiaduje się o tym król, nie mogąc pogodzić się z utratą swej wielkiej miłości, decyduje się na ślub z ukochaną. Młoda para musi jednak przezwyciężyć liczne przeszkody, przede wszystkim niechętną postawę szlachty wobec królewskiego mezaliansu.
+    

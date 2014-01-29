@@ -1,0 +1,9 @@
+
+        Jasne błękitne okna 2006 
+        =============
+        
+        [![Jasne błękitne okna 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jasne-blekitne-okna-2006)
+        
+        
+ Beata (Beata Kawka) podczas imprezy odbiera telefon. Nie wie jeszcze, że zmieni on jej życie. Krótka, ale pełna ciepła rozmowa z przyjaciółką z dzieciństwa, Sygitą (Joanna Brodzik), sprawia, że Beata postanawia odwiedzić rodzinne strony. Choć wizyta nie trwa długo, wracają wspomnienia... Beata i Sygita dorastały razem w małym miasteczku, przyrzekając sobie, że nic ich nie rozdzieli. Jednak czas mijał. Beata wybrała życie w wielkim mieście i drogę kariery, okupionej często samotnością i upokorzeniami. Sygita, znalazła swoje miejsce w rodzinnych Maciejowicach u boku męża i córeczki, choć jej życie rodzinne nie przypomina sielanki. Ponowne spotkanie po latach budzi uśpioną przyjaźń, która wkrótce zostanie wystawiona na ciężką próbę. Jak wiele będą mogły dla siebie poświecić? A może dając, dostaną , niż się spodziewały... O czym po latach będą rozmawiały? O pierwszych miłościach czy o marzeniach, które się... spełniły? Jasne błękitne okna to film o niezwykłej przyjaźni, nadziei, ale i samotności w świecie pełnym ludzi. Przepełniony uczuciami, w którym humor i dramat przeplatają się jak w życiu.   ... samotnością i upokorzeniami. Sygita, znalazła swoje miejsce w rodzinnych Maciejowicach u boku męża i córeczki, choć jej życie rodzinne nie przypomina sielanki. Ponowne spotkanie po latach budzi uśpioną przyjaźń, która wkrótce zostanie wystawiona na ciężką próbę. Jak wiele będą mogły dla siebie poświecić? A może dając, dostaną więcej, niż się spodziewały... O czym po latach będą rozmawiały? O pierwszych miłościach czy o marzeniach, które się... spełniły? Jasne błękitne okna to film o niezwykłej przyjaźni, nadziei, ale i samotności w świecie pełnym ludzi. Przepełniony uczuciami, w którym humor i dramat przeplatają się jak w życiu.
+    

@@ -1,0 +1,9 @@
+
+        Utalentowany pan Ripley / The Talented Mr. Ripley 1999 
+        =============
+        
+        [![Utalentowany pan Ripley / The Talented Mr. Ripley 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/utalentowany-pan-ripley-the-talented-mr-ripley-1999)
+        
+        
+ Film opowiada historię Toma Ripleya, którego bogaty przemysłowiec Herbert Greenleaf bierze omyłkowo za absolwenta Princeton i profesjonalnego pianistę. Tom nie tylko nie naprawia tej pomyłki, lecz także udaje że doskonale zna jego syna Dickiego. Herbert płaci Tomowi aby sprowadził jego syna z Włoch, gdzie wiedzie on beztroskie 'dolce vita', spędzając czas na wydawaniu pieniędzy w klubach jazzowych. Tom przyjmuje ofertę i aby spełnić swoją misję stara się upodobnić do Dickiego, a nawet stać się jego lustrzanym odbiciem. Przede wszystkim jednak stara się nauczyć wszystkiego o jazzie, co ostatecznie przesądza o jego przyjaźni z Dickim i jego dziewczyną Marge. Dzięki posiadanym talentom 'podrabianiu podpisów, okłamywaniu, naśladowaniu innych' Tom szybko osiąga zamierzony cel, wiodąc życie o którym dotąd mógł tylko marzyć. Jego wspaniała kariera arystokraty nie trwa jednak długo. Kiedy Dicki szybko znudzi się swoim nowym przyjacielem, Tom odkryje swój ostatni, prawdziwie niebezpieczny talent...  ... Dickiego, a nawet stać się jego lustrzanym odbiciem. Przede wszystkim jednak stara się nauczyć wszystkiego o jazzie, co ostatecznie przesądza o jego przyjaźni z Dickim i jego dziewczyną Marge. Dzięki posiadanym talentom 'podrabianiu podpisów, okłamywaniu, naśladowaniu innych' Tom szybko osiąga zamierzony cel, wiodąc życie o którym dotąd mógł tylko marzyć. Jego wspaniała kariera arystokraty nie trwa jednak długo. Kiedy Dicki szybko znudzi się swoim nowym przyjacielem, Tom odkryje swój ostatni, prawdziwie niebezpieczny talent...
+    

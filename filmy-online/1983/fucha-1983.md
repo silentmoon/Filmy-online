@@ -1,0 +1,9 @@
+
+        Fucha 1983 
+        =============
+        
+        [![Fucha 1983 ](http://vidos.pl/images/player.gif)](http://vidos.pl/fucha-1983)
+        
+        
+ Dwaj kamieniarze Zgred i Dudek dostają zlecenie postawienia pomnika dla pewnej bogatej wdowy. W tym celu jadą do innego miasta gdzie po wykonaniu zadania, na miejscowym cmentarzu dostają propozycję fuchy, roboty dla miejscowego przewodniczącego rady miejskiej. Mają odnowić nagrobek bohatera powstania listopadowego Piotra Wysockiego. Mają to zrobić w nocy tak aby władze województwa się nie dowiedziały. Podczas spotkania przy wódce kamieniarzy z przewodniczącym, okazuje się że jest to tak naprawdę nauczyciel historii z miejscowej szkoły i renowację nagrobka zlecił im prywatnie, za własne uzbierane pieniądze. W tej sytuacji kamieniarze - ludzie prości, ale uczciwi oddają połowę należności za wykonaną pracę nauczycielowi.   ... że jest to tak naprawdę nauczyciel historii z miejscowej szkoły i renowację nagrobka zlecił im prywatnie, za własne uzbierane pieniądze. W tej sytuacji kamieniarze - ludzie prości, ale uczciwi oddają połowę należności za wykonaną pracę nauczycielowi.
+    

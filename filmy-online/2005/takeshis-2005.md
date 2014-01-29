@@ -1,0 +1,9 @@
+
+        Takeshis' 2005 
+        =============
+        
+        [![Takeshis' 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/takeshis-2005)
+        
+        
+ Beat Takeshi prowadzi intensywne, niekiedy surrealistyczne, życie gwiazdy show-biznesu. Jest już jednak znudzony pławieniem się w luksusach, nic go nie bawi, nic nie podnieca. Szuka coraz mocniejszych wrażeń, ale wciąż go one rozczarowują. Pewnego razu spotyka swojego sobowtóra. Mimo zewnętrznego podobieństwa sobowtór jest jednak całkowitym przeciwieństwem Beata: to nieśmiały kasjer w sklepie, safanduła i aktorski nieudacznik odrzucany podczas castingów. Czeka na swoje pięć minut, by odegrać się na wrednym świecie. Tylko jedna z tych postaci jest prawdziwa. Druga to raczej projekcja lęków i obsesji głównego bohatera. Blondyn jest odwróconym odbiciem aktorskiej sławy i fenomenu gwiazdy. Niespełniona, zdesperowana senna mara, która stopniowo stapia się z rzeczywistością zamieniając ją w ciąg surrealistycznych zdarzeń. Chaotyczna mieszanka prawdy i zmyślenia, naiwnych marzeń i goryczy przegranych kończy sie długą i krwawą strzelaniną, która może przynieść odpowiedź na pytanie 'kto się komu śnił?'.  ... minut, by odegrać się na wrednym świecie. Tylko jedna z tych postaci jest prawdziwa. Druga to raczej projekcja lęków i obsesji głównego bohatera. Blondyn jest odwróconym odbiciem aktorskiej sławy i fenomenu gwiazdy. Niespełniona, zdesperowana senna mara, która stopniowo stapia się z rzeczywistością zamieniając ją w ciąg surrealistycznych zdarzeń. Chaotyczna mieszanka prawdy i zmyślenia, naiwnych marzeń i goryczy przegranych kończy sie długą i krwawą strzelaniną, która może przynieść odpowiedź na pytanie 'kto się komu śnił?'.
+    

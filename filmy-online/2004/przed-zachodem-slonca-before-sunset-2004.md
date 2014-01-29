@@ -1,0 +1,9 @@
+
+        Przed zachodem słońca / Before Sunset 2004 
+        =============
+        
+        [![Przed zachodem słońca / Before Sunset 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przed-zachodem-slonca-before-sunset-2004)
+        
+        
+ Dziewięć lat temu Jesse i Celine spotkali się przez przypadek w Wiedniu. Mimo że nie znali się wcale, całą noc spędzili na rozmowach o życiu, wartościach, o rzeczach tych błahych i tych ważnych. Rozstali się tuż przed świtem, obiecując, że zobaczą się już za 6 miesięcy. Do spotkania jednak nie doszło... Teraz, po upływie tylu lat, ich drogi niespodziewanie przetną się ponownie w Paryżu, w którym Jesse promuje swoją najnowszą książkę. Na jednym ze spotkań dla czytelników pojawia się Celine... Oboje mają kilka godzin, by uporać się ze swoimi uczuciami, przeszłością i odpowiedzieć na trudne pytanie: Czy znaczą wciąż dla siebie tyle, co dziewięć lat temu? Kameralny dramat Richarda Linklatera to kontynuacja 'Przed wschodem słońca', obrazu, który w 1995 roku zdobył Srebrnego Niedźwiedzia na festiwalu w Berlinie. 'Before Sunset' również był prezentowany w konkursie Berlinale, jednak mimo aprobaty publiczności i krytyków nie zdobył żadnej nagrody.   ... pojawia się Celine... Oboje mają kilka godzin, by uporać się ze swoimi uczuciami, przeszłością i odpowiedzieć na trudne pytanie: Czy znaczą wciąż dla siebie tyle, co dziewięć lat temu? Kameralny dramat Richarda Linklatera to kontynuacja 'Przed wschodem słońca', obrazu, który w 1995 roku zdobył Srebrnego Niedźwiedzia na festiwalu w Berlinie. 'Before Sunset' również był prezentowany w konkursie Berlinale, jednak mimo aprobaty publiczności i krytyków nie zdobył żadnej nagrody.
+    

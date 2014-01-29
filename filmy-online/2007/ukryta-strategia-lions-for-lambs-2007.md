@@ -1,0 +1,9 @@
+
+        Ukryta strategia / Lions for Lambs 2007 
+        =============
+        
+        [![Ukryta strategia / Lions for Lambs 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ukryta-strategia-lions-for-lambs-2007)
+        
+        
+ Pełen ideałów kalifornijski wykładowca, profesor Malley (Robert Redford) przekonuje zdolnego, jednakże znudzonego studenta o potrzebie zaangażowania, przestrzegając go jednocześnie przed skutkami niewykorzystania niezwykłego potencjału jaki posiada. Tymczasem charyzmatyczny senator (Tom Cruise) przekazuje ambitnej dziennikarce (Meryl Streep) sensacyjną wiadomość o nowej strategii wojennej dotyczącej walk w rejonie Środkowego Wschodu. Równocześnie na drugim końcu świata, w Afganistanie, dwaj byli studenci Malleya, na przekór tezom stawianym przez nauczycieli i polityków, uczestniczą w starciu o wolność ryzykując własne życia. Te trzy opowieści łączą się ze sobą dając pełny obraz obieranych przez nas działań i reperkusji, które im towarzyszą.   ... Afganistanie, dwaj byli studenci Malleya, na przekór tezom stawianym przez nauczycieli i polityków, uczestniczą w starciu o wolność ryzykując własne życia. Te trzy opowieści łączą się ze sobą dając pełny obraz obieranych przez nas działań i reperkusji, które im towarzyszą.
+    

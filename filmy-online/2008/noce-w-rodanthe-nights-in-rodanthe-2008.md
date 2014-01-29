@@ -1,0 +1,9 @@
+
+        Noce w Rodanthe / Nights in Rodanthe 2008 
+        =============
+        
+        [![Noce w Rodanthe / Nights in Rodanthe 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/noce-w-rodanthe-nights-in-rodanthe-2008)
+        
+        
+ W filmie Nights w Rodanthe Diane Lane wciela się w rolę Adrienne Willis, która chcąc zerwać z pełnym chaosu życiem, znajduje schronienie w nadmorskim miasteczku Rodanthe na jednej z wysp u wybrzeża Karoliny Północnej, gdzie ma zająć się przez weekend gospodą znajomej. Ma nadzieję, że znajdzie tu spokój, którego tak bardzo jej potrzeba, by przemyśleć konflikty rozgrywające się w jej otoczeniu – z niewiernym mężem, który prosi ją o powrót do domu, i z córką, która podważa każdą jej decyzję. Niedługo po przybyciu Adrienne do Rodanthe, gdy w wiadomościach pojawiają się prognozy potężnego sztormu, w gospodzie pojawia się gość – dr Paul Flanner (Gere). Flanner – jedyny gość w gospodzie – wybrał się tu nie po to, by spędzić weekend, lecz by zmierzyć się z własnym kryzysem tożsamości. W miarę zbliżania się sztormu oboje szukają w sobie ukojenia i w jeden magiczny weekend nawiązują romans, który pozostanie na zawsze w ich pamięci.  ... jej decyzję. Niedługo po przybyciu Adrienne do Rodanthe, gdy w wiadomościach pojawiają się prognozy potężnego sztormu, w gospodzie pojawia się gość – dr Paul Flanner (Gere). Flanner – jedyny gość w gospodzie – wybrał się tu nie po to, by spędzić weekend, lecz by zmierzyć się z własnym kryzysem tożsamości. W miarę zbliżania się sztormu oboje szukają w sobie ukojenia i w jeden magiczny weekend nawiązują romans, który pozostanie na zawsze w ich pamięci.
+    

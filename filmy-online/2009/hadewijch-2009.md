@@ -1,0 +1,9 @@
+
+        Hadewijch 2009 
+        =============
+        
+        [![Hadewijch 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hadewijch-2009)
+        
+        
+ Céline pochodzi z bogatej mieszczańskiej rodziny, jej ojciec jest ministrem. Dziewczyna czuje się w domu zupełnie obca. Ucieka w swój własny świat. Studiuje teologię i postanawia oddać się całkowicie Bogu, wstępując do zakonu. Gorąca wiara oraz ekstremalne religijne zachowania Céline poważnie niepokoją matkę przełożoną. Dziewczyna zostaje usunięta z zakonu i wraca do rodzinnego domu. Próbuje odnaleźć prawdę o sobie, ale otaczający świat okazuje się nieprzychylny dla naiwnej i szczerej dziewczyny. Kiedy Céline poznaje islamskiego fundamentalistę - Nassira - okazuje się, że mają ze sobą dużo wspólnego. Łączy ich nie tylko natężenie uczuć religijnych, ale również zbliżająca się tragedia… Film jest zarówno hipnotyzującym studium psychiki oddanej wierze nastolatki, jak również próbą pokazania konsekwencji wolnego wyboru: bezgranicznej wiary i oddania się Bogu. Jest to głęboko poruszający obraz świata, w którym wiara, pozbawiona dojrzałości życiowej zostaje wykorzystana w okrutny sposób.   ... szczerej dziewczyny. Kiedy Céline poznaje islamskiego fundamentalistę - Nassira - okazuje się, że mają ze sobą dużo wspólnego. Łączy ich nie tylko natężenie uczuć religijnych, ale również zbliżająca się tragedia… Film jest zarówno hipnotyzującym studium psychiki oddanej wierze nastolatki, jak również próbą pokazania konsekwencji wolnego wyboru: bezgranicznej wiary i oddania się Bogu. Jest to głęboko poruszający obraz świata, w którym wiara, pozbawiona dojrzałości życiowej zostaje wykorzystana w okrutny sposób.
+    

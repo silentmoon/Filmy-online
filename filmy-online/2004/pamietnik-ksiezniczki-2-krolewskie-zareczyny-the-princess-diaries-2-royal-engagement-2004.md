@@ -1,0 +1,9 @@
+
+        Pamiętnik księżniczki 2: Królewskie zaręczyny / The Princess Diaries 2: Royal Engagement 2004 
+        =============
+        
+        [![Pamiętnik księżniczki 2: Królewskie zaręczyny / The Princess Diaries 2: Royal Engagement 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pamietnik-ksiezniczki-2-krolewskie-zareczyny-the-princess-diaries-2-royal-engagement-2004)
+        
+        
+ Mia Thermopolis zmaga się z nowymi problemami, które idą za królewskim berłem. Dziewczyna, zaraz po ukończeniu studiów, wyrusza do Genovii, państwem którym ma władać. Aczkolwiek pojawia się ktoś kto chce odebrać jej koronę. Mianowicie chodzi tutaj o pewnego człowieka, którego siostrzeniec ma równe prawa do tronu jak Mia. Jedyną drogą do objęcia stanowiska królowej jest wyjście za mąż. Mia, szuka na siłę mężczyzna, który mógłby pełnić rolę jej małżonka. Jednak jak można zakochać się na siłę? Mia, dla dobra państwa, postanawia zgodzić się na taką ewentualność ale jednak zakochuje się w mężczyźnie, który rywalizują z naszą bohaterką o władzę nad Genowią.  ... zakochać się na siłę? Mia, dla dobra państwa, postanawia zgodzić się na taką ewentualność ale jednak zakochuje się w mężczyźnie, który rywalizują z naszą bohaterką o władzę nad Genowią.
+    

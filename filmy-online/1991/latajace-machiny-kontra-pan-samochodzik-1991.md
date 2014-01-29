@@ -1,0 +1,9 @@
+
+        Latające machiny kontra Pan Samochodzik 1991 
+        =============
+        
+        [![Latające machiny kontra Pan Samochodzik 1991 ](http://vidos.pl/images/player.gif)](http://vidos.pl/latajace-machiny-kontra-pan-samochodzik-1991)
+        
+        
+ Pan Samochodzik wraz ze znajomą Joanną i jej synem Piotrusiem jadą na wakacje do podgórskiej miejscowości. Piotrusiowi marzą się przygody, a jego wyobraźnia nastawiona jest na wynajdywanie niesamowitości. Oto podsłuchuje rozmowę, z której wynika, iż jakiś mężczyzna i kobieta planują morderstwo. Okazuje się jednak, że tajemniczym mężczyzną jest autor powieści kryminalnych pan Arizona, który korzysta z rad i pomysłów swej służącej Zofii. Pomyłka się wyjaśnia, Pan Samochodzik, Joanna i Piotruś zyskują nowych przyjaciół i dzięki nim poznają włoską ekipę filmową realizującą w tych okolicach film. Niestety, na filmowców spada prawdziwe nieszczęście: w tajemniczy sposób znika odtwórczyni głównej roli - piękna Diana. Następuje przerwa w zdjęciach. Producent filmu wydaje się być zrozpaczony, ale pan Arizona podejrzewa, że zniknięcie aktorki jest chwytem reklamowym. Przyjaciele rozpoczynają śledztwo na własną rękę.   ... Joanna i Piotruś zyskują nowych przyjaciół i dzięki nim poznają włoską ekipę filmową realizującą w tych okolicach film. Niestety, na filmowców spada prawdziwe nieszczęście: w tajemniczy sposób znika odtwórczyni głównej roli - piękna Diana. Następuje przerwa w zdjęciach. Producent filmu wydaje się być zrozpaczony, ale pan Arizona podejrzewa, że zniknięcie aktorki jest chwytem reklamowym. Przyjaciele rozpoczynają śledztwo na własną rękę.
+    

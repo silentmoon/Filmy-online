@@ -1,0 +1,9 @@
+
+        Jarzębina czerwona 1969 
+        =============
+        
+        [![Jarzębina czerwona 1969 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jarzebina-czerwona-1969)
+        
+        
+ Marzec 1945 roku. Trwają walki o Kołobrzeg, biorą w nich udział żołnierze kompanii o kryptonimie 'Jarzębina Czerwona', dowodzonej przez porucznika Kotarskiego. 'Jarzębina' toczy ciężkie walki o każdy dom, o każdą piędź ziemi. Przychodzą jej z pomocą artylerzyści i saperzy. Niemcy kapitulują. Żołnierze podchodzą do morza. Nie ma wśród nich najlepszego przyjaciela porucznika Kotarskiego: chorążego Kręckiego, zginął tuż przed zakończeniem operacji. Epicki dramat wojenny, przedstawiający bitwę o Kołobrzeg, stoczoną przez I Armię Wojska Polskiego w marcu 1945. Wszystkie występujące w filmie postacie są autentyczne. Przebieg ciężkich walk pokazano poprzez przeżycia poszczególnych żołnierzy.   ... przedstawiający bitwę o Kołobrzeg, stoczoną przez I Armię Wojska Polskiego w marcu 1945. Wszystkie występujące w filmie postacie są autentyczne. Przebieg ciężkich walk pokazano poprzez przeżycia poszczególnych żołnierzy.
+    

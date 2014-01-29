@@ -1,0 +1,9 @@
+
+        Legionista / Legionnaire 1998 
+        =============
+        
+        [![Legionista / Legionnaire 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/legionista-legionnaire-1998)
+        
+        
+ Alain Lefevre (Jean-Claude Van Damme) jest człowiekiem, który prowadzi rozwiązły tryb życia. Jego dzień codzienny to zabawy, kobiety, rozrywki... Wszystko zmienia się, gdy poznaje Katrinę (Ana Sofrenović). Zakochuje się w niej i planuje związać się z nią na zawsze. Alain stara się zmienić swoje życie, cały swój wolny czas spędza z narzeczoną, ale nie jest łatwo zerwać z przeszłością. W dniu ślubu górę bierze jego prawdziwe 'ja'. Alain rezygnuje z ożenku i powraca do dawnego trybu życia. Po latach ponownie spotyka Katrinę, ta jednak jest związana z innym mężczyzną, który, notabene, prowadzi podejrzane interesy. Alain jest zmuszony uciekać przed rozwścieczonym przestępcą do Legii Cudzoziemskiej. Tam przechodzi prawdziwą szkołę życia. W Legii poznaje też prawdziwych przyjaciół.  ... trybu życia. Po latach ponownie spotyka Katrinę, ta jednak jest związana z innym mężczyzną, który, notabene, prowadzi podejrzane interesy. Alain jest zmuszony uciekać przed rozwścieczonym przestępcą do Legii Cudzoziemskiej. Tam przechodzi prawdziwą szkołę życia. W Legii poznaje też prawdziwych przyjaciół.
+    

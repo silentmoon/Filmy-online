@@ -1,0 +1,9 @@
+
+        Grzeszna miłość / Original Sin 2001 
+        =============
+        
+        [![Grzeszna miłość / Original Sin 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/grzeszna-milosc-original-sin-2001)
+        
+        
+ Luis Vargas (Antonio Banderas) zamożny kubański biznesmen chce się ożenić. W małżeństwie nie liczy na miłość, gdyż uważa ją za niepotrzebną komplikację. Żona Amerykanka wydaje się dla niego idealnym rozwiązaniem. Julię (Angelina Jolie) poznaje korespondencyjnie. Jednak, gdy przybywa do niego na Kubę, oczekiwania Luisa ulegają zmianie. Zakochuje się w niej bez pamięci. Odnosi wrażenie, że Julia jest inną kobietą, od tej którą poznał w listach. Ukochaną prześladują senne koszmary, na plecach ukrywa tajemnicze blizny a historie, które opowiada są zmyślone. Chcąc wyjaśnić zagadkowe zachowanie żony, Luis wynajmuje prywatnego detektywa. Walter Downs (Thomas Jane) nie przynosi dobrych informacji. Odkrywa, że jest ona prawdopodobnie morderczynią i złodziejką. Gdy Julia nieoczekiwanie znika z jego fortuną, Luis postanawia odnaleźć żonę za wszelką cenę. Gniew i zemsta zastępują miłość i namiętność. Obsesyjna zazdrość i chęć poznania prawdy prowadzą do tragedii...  ... koszmary, na plecach ukrywa tajemnicze blizny a historie, które opowiada są zmyślone. Chcąc wyjaśnić zagadkowe zachowanie żony, Luis wynajmuje prywatnego detektywa. Walter Downs (Thomas Jane) nie przynosi dobrych informacji. Odkrywa, że jest ona prawdopodobnie morderczynią i złodziejką. Gdy Julia nieoczekiwanie znika z jego fortuną, Luis postanawia odnaleźć żonę za wszelką cenę. Gniew i zemsta zastępują miłość i namiętność. Obsesyjna zazdrość i chęć poznania prawdy prowadzą do tragedii...
+    

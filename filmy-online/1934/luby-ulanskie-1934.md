@@ -1,0 +1,9 @@
+
+        Śluby ułańskie 1934 
+        =============
+        
+        [![Śluby ułańskie 1934 ](http://vidos.pl/images/player.gif)](http://vidos.pl/luby-ulanskie-1934)
+        
+        
+ Płk. Gończa (Franciszek Brodniewicz) zostaje dowódcą pułku ułanów. Z tej okazji spotyka się z kadrą dowódczą w kasynie oficerskim na uroczystej kolacji, podczas której jej uczestnicy ślubują wieczny stan kawalerski. Wieczorem przyjaciel Gończy, major Załęski (Witold Conti) zagłębia się w lekturze prowadzonego przez siebie pamiętnika i oddaje wspomnieniom...Jest rok 1914, gdy jako szesnastoletni chłopak, wstępuje do Legionów i wyrusza na wojnę. Z grupą kawalerzystów, których dowódcą jest Gończa, pieszo i z siodłami na plecach,  docierają do majątku we wsi Pleszczewice, gdzie zostają gościnnie przyjęci przez jego właściciela Stanisława Pleszczyńskiego (Aleksander Żabczyński) i jego żonę Marię (Maria Modzelewska). Pleszczyński zgadza się na rekwizycję koni i wyrusza razem z ułanami na wojnę. W domu pozostaje Maria, w której zakochał się Gończa i mała Krzysia, siostrzenica dziedzica. Wojna, na której wachmistrz Pleszczyński ginie, dobiega końca... Mija kilkanaście lat. Pułk, w którym służą Gończa i Załęski wyrusza na manewry, które odbywają się w okolicy wsi Pleszczewice...   ... dowódcą jest Gończa, pieszo i z siodłami na plecach,  docierają do majątku we wsi Pleszczewice, gdzie zostają gościnnie przyjęci przez jego właściciela Stanisława Pleszczyńskiego (Aleksander Żabczyński) i jego żonę Marię (Maria Modzelewska). Pleszczyński zgadza się na rekwizycję koni i wyrusza razem z ułanami na wojnę. W domu pozostaje Maria, w której zakochał się Gończa i mała Krzysia, siostrzenica dziedzica. Wojna, na której wachmistrz Pleszczyński ginie, dobiega końca... Mija kilkanaście lat. Pułk, w którym służą Gończa i Załęski wyrusza na manewry, które odbywają się w okolicy wsi Pleszczewice...
+    

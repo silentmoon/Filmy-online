@@ -1,0 +1,9 @@
+
+        Hans Kloss. Stawka większa niż śmierć 2012 
+        =============
+        
+        [![Hans Kloss. Stawka większa niż śmierć 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hans-kloss-stawka-wieksza-niz-smierc-2012)
+        
+        
+ Koenigsberg, 1945 rok. Hans Kloss (Tomasz Kot) - agent polskiego wywiadu o kryptonimie J-23 - wpada na trop skarbu zrabowanego przez nazistów. W intrygę zaangażowany jest stary znajomy Klossa - Hermann Brunner (Piotr Adamczyk). Kloss, próbując pokrzyżować plany wroga, stara się ocalić z wojennej pożogi piękną Elzę (Marta Żmuda Trzebiatowska), dla której gotów będzie zaryzykować bezpieczeństwo swojej misji. Twórcy 'Klossa' nie ukrywają inspiracji klasyką gatunku - filmami 'Tylko dla orłów' i 'Komandosi z Navarony'. 'Hans Kloss. Stawka większa niż śmierć' to trzymający w napięciu, szpiegowski film wojenny utrzymany w klimacie legendarnego serialu, ale opowiedziany językiem współczesnego kina - ze spektakularnymi efektami specjalnymi i dynamiczną, pełną suspensu akcją. W obsadzie znaleźli się znakomici aktorzy w nowych, zaskakujących wcieleniach, a także niezapomniani serialowi antagoniści Brunner i Kloss - Emil Karewicz oraz Stanisław Mikulski, których spotkanie po latach będzie wstępem do pasjonującej podróży w przeszłość i odkrycia jednej z największych tajemnic III Rzeszy.    ... 'Tylko dla orłów' i 'Komandosi z Navarony'. 'Hans Kloss. Stawka większa niż śmierć' to trzymający w napięciu, szpiegowski film wojenny utrzymany w klimacie legendarnego serialu, ale opowiedziany językiem współczesnego kina - ze spektakularnymi efektami specjalnymi i dynamiczną, pełną suspensu akcją. W obsadzie znaleźli się znakomici aktorzy w nowych, zaskakujących wcieleniach, a także niezapomniani serialowi antagoniści Brunner i Kloss - Emil Karewicz oraz Stanisław Mikulski, których spotkanie po latach będzie wstępem do pasjonującej podróży w przeszłość i odkrycia jednej z największych tajemnic III Rzeszy.  
+    

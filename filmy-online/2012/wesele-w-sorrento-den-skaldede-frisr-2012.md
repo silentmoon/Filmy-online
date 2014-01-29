@@ -1,0 +1,9 @@
+
+        Wesele w Sorrento / Den Skaldede frisør 2012 
+        =============
+        
+        [![Wesele w Sorrento / Den Skaldede frisør 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wesele-w-sorrento-den-skaldede-frisr-2012)
+        
+        
+ „Wesele w Sorrento” to romantyczna komedia nagrodzonej Oscarem Susanne Bier z Piercem Brosnanem i Trine Dyrholm w rolach głównych. To niepoprawnie optymistyczna opowieść o tym, że czasem wszystko się zaczyna, kiedy myślimy, że już po wszystkim. „Wesele w Sorrento” to kino gatunkowe w najczystszej postaci, niczym „Mamma Mia!”, tyle że z błyskotliwym scenariuszem, jak pisała krytyka. W efekcie powstała brawurowa opowieść ze świetnie nakreślonymi postaciami, pełna pikantnych dialogów i humoru. „Wesele w Sorrento” opowiada o dwóch bardzo różnych rodzinach, które przyjeżdżają do pięknej willi położonej w cytrusowym sadzie nad morzem. Okazją do spotkania jest wesele, podczas którego nic nie przebiega zgodnie z planem, a zarazem wszystko zmierza do przewrotnego i radosnego finału. „Wesele w Sorrento”, które działa jak rozgrzewający i napełniający radością balsam, od razu  po wejściu do europejskich kin stało się największym kasowym przebojem w karierze reżyserki oscarowego „W lepszym świecie” i „Tuż po weselu”.   ... dialogów i humoru. „Wesele w Sorrento” opowiada o dwóch bardzo różnych rodzinach, które przyjeżdżają do pięknej willi położonej w cytrusowym sadzie nad morzem. Okazją do spotkania jest wesele, podczas którego nic nie przebiega zgodnie z planem, a zarazem wszystko zmierza do przewrotnego i radosnego finału. „Wesele w Sorrento”, które działa jak rozgrzewający i napełniający radością balsam, od razu  po wejściu do europejskich kin stało się największym kasowym przebojem w karierze reżyserki oscarowego „W lepszym świecie” i „Tuż po weselu”.
+    

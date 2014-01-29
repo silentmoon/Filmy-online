@@ -1,0 +1,9 @@
+
+        Krwawy diament / Blood Diamond 2006 
+        =============
+        
+        [![Krwawy diament / Blood Diamond 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krwawy-diament-blood-diamond-2006)
+        
+        
+ Tłem akcji jest wojna domowa i chaos panujący w Sierra Leone w latach 90. XX wieku. 'Krwawy diament' to historia przemytnika z RPA Danny'ego Archera i Solomona Vandy'ego, rybaka z ludu Mende. Chociaż obydwaj mężczyźni pochodzą z Afryki, ich życiorysy były dotychczas zupełnie ze sobą niezwiązane - aż do chwili, gdy wspólnie postanowili wyruszyć na poszukiwanie rzadkiego różowego diamentu, który mógłby zmienić życie każdego z nich. Odsiadując wyrok za przemyt, Archer dowiaduje się, że Solomon - który został odebrany rodzinie i zmuszony do pracy na polach diamentowych - znalazł i ukrył niezwykły kamień. Z pomocą Maddy Bowen, amerykańskiej dziennikarki, której idealistyczne przekonania stają się coraz mniej radykalne w miarę pogłębiania się romansu z Archerem, obydwaj bohaterowie ruszają na wyprawę przez tereny ogarnięte rebelią. To podróż, która może uratować rodzinę Solomona, a Archerowi dać drugą szansę, na którą, jak mu się zdawało, nie mógł już liczyć.  ... się, że Solomon - który został odebrany rodzinie i zmuszony do pracy na polach diamentowych - znalazł i ukrył niezwykły kamień. Z pomocą Maddy Bowen, amerykańskiej dziennikarki, której idealistyczne przekonania stają się coraz mniej radykalne w miarę pogłębiania się romansu z Archerem, obydwaj bohaterowie ruszają na wyprawę przez tereny ogarnięte rebelią. To podróż, która może uratować rodzinę Solomona, a Archerowi dać drugą szansę, na którą, jak mu się zdawało, nie mógł już liczyć.
+    

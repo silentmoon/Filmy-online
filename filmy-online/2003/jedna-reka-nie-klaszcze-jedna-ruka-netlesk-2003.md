@@ -1,0 +1,9 @@
+
+        Jedna ręka nie klaszcze / Jedna ruka netleská 2003 
+        =============
+        
+        [![Jedna ręka nie klaszcze / Jedna ruka netleská 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jedna-reka-nie-klaszcze-jedna-ruka-netlesk-2003)
+        
+        
+ Standa jest pechowcem, przeznaczenie naigrywa się z niego, a on nie robi nic, by zapobiec nieszczęściom. Właśnie wychodzi z więzienia i ma nadzieję, że karta się odmieni i wreszcie wyjdzie na prostą. Jego były szef jest mu winien pieniądze, warunkiem otrzymania ich jest milczenie. Niestety spotyka Andrzeja, który jest jeszcze większym nieudacznikiem niż on sam. Próbują oni odzyskać pieniądze Standy od Zdenka. I tu napotykamy na kilka ciekawych postaci, mianowicie samego Zdenka (prowadzi wegetariańską restaurację, która jest tylko przykrywką), jego żonę (despotyczna maniaczka zdrowego życia) oraz dwójkę ich dzieci: syna (lubi przebierać się w ubrania siostry) i córkę (konstruuje ciekawe urządzenia, w jeszcze bardziej interesującym celu). Dochodzi jeszcze wątek prezentera telewizyjnego i jego córki, którzy odgrywają dość znaczną rolę w tej typowo czeskiej komedii.  ... Zdenka (prowadzi wegetariańską restaurację, która jest tylko przykrywką), jego żonę (despotyczna maniaczka zdrowego życia) oraz dwójkę ich dzieci: syna (lubi przebierać się w ubrania siostry) i córkę (konstruuje ciekawe urządzenia, w jeszcze bardziej interesującym celu). Dochodzi jeszcze wątek prezentera telewizyjnego i jego córki, którzy odgrywają dość znaczną rolę w tej typowo czeskiej komedii.
+    

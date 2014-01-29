@@ -1,0 +1,9 @@
+
+        Transformers: Zemsta upadłych / Transformers: Revenge of the Fallen 2009 
+        =============
+        
+        [![Transformers: Zemsta upadłych / Transformers: Revenge of the Fallen 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/transformers-zemsta-upadlych-transformers-revenge-of-the-fallen-2009)
+        
+        
+ Kolejna część wspaniałej, kultowej już opowieści o maszynach. Minęły dwa lata od czasu kiedy młody Sam Witwicky (Shia LaBeouf) dokonał ocalenia Ziemi przed decydującym starciem pomiędzy dwoma wojującymi ze sobą grupami robotów. Pomimo swojej walecznej postawy Sam jest nadal przeciętnym nastolatkiem z typowymi dla swojego wieku problemami – decyzją o wybraniu drogi edukacji i pójściem do collegu, co wiąże się z pierwszą w życiu dłuższą rozłąką z dziewczyną Mikaelą (Megan Fox) i rodzicami. Pomimo swoich precyzyjnie określonych planów, Sam po raz kolejny znajduje się w centrum śmiertelnej rozgrywki pomiędzy Autobotami i Deceptikonami, od której zależą już nie tylko losy Ziemi, ale również całego Wszechświata. Nieświadomy swojej roli w tym konflikcie, to właśnie Sam posiada klucz do rozwiązania potyczki pomiędzy siłami zła i dobra. Z pomocą przyjaciół, współpracowników z NEST-a, a nawet rodziców, Sam ostatecznie musi zmierzyć się ze swoim przeznaczeniem i prawem rządzącym losem rodziny Witwickich: Bez poświęcenia nie ma zwycięstwa!  ... Fox) i rodzicami. Pomimo swoich precyzyjnie określonych planów, Sam po raz kolejny znajduje się w centrum śmiertelnej rozgrywki pomiędzy Autobotami i Deceptikonami, od której zależą już nie tylko losy Ziemi, ale również całego Wszechświata. Nieświadomy swojej roli w tym konflikcie, to właśnie Sam posiada klucz do rozwiązania potyczki pomiędzy siłami zła i dobra. Z pomocą przyjaciół, współpracowników z NEST-a, a nawet rodziców, Sam ostatecznie musi zmierzyć się ze swoim przeznaczeniem i prawem rządzącym losem rodziny Witwickich: Bez poświęcenia nie ma zwycięstwa!
+    

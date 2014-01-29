@@ -1,0 +1,9 @@
+
+        Przywódca / The Maker 1997 
+        =============
+        
+        [![Przywódca / The Maker 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przywodca-the-maker-1997)
+        
+        
+ Osiemnastoletni Josh (Jonathan Rhys Meyers) jest zdolnym uczniem ostatniej klasy liceum. Od nauki znaczniej bardziej woli jednak spędzanie czasu ze swoimi znajomymi, dla których największą rozrywką jest wąchanie kleju w samochodzie oraz dokonywanie drobnych przestępstw. Jego najlepszą przyjaciółką jest Bella (Fairuza Balk), dziewczyna którą bardzo pociągają cheerleaderki, natomiast obiektem uniesień miłosnych jest pani oficer policji Emily Peck (Mary-Louise Parker). Życie Josha zmienia się, gdy w dniu osiemnastych urodzin na progu jego domu staje dawno nie widziany brat Walter Schmeiss (Matthew Modine). Obecnie Walter zarabia na życie jako złodziej i pragnie wciągnąć w interes swojego młodszego brata.   ... Josha zmienia się, gdy w dniu osiemnastych urodzin na progu jego domu staje dawno nie widziany brat Walter Schmeiss (Matthew Modine). Obecnie Walter zarabia na życie jako złodziej i pragnie wciągnąć w interes swojego młodszego brata.
+    

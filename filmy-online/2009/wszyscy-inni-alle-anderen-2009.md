@@ -1,0 +1,9 @@
+
+        Wszyscy inni / Alle Anderen 2009 
+        =============
+        
+        [![Wszyscy inni / Alle Anderen 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wszyscy-inni-alle-anderen-2009)
+        
+        
+ Podobno 80% zwykłych ludzi uważa się za lepszych, niż inni zwykli ludzie. Gitti (nagrodzona nominacją do Złotego Niedźwiedzia Birgit Minichmayr) i Chris (Lars Eidinger) nie są zwyczajni. Są młodzi, piękni, wykształceni, niezależni i zakochani. Spędzają wspólne wakacje w domu rodziców Chrisa na Sardynii, rozkoszując się słońcem i spotykając się z drugą parą turystów, z których mieszczańskich nawyków się naśmiewają. Nowi znajomi psują im samopoczucie swoimi sukcesami. Sana (Nicole Marischka) i Hans (Hans-Jochen Wagner) reprezentują tych wszystkich innych, którzy stale towarzyszą naszym związkom, kształtując, komentując i niszcząc je. Jedynym, co łączy kochanków, okazuje się być kryzys wartości. Czy ich uczucie przetrwa te idylliczne wakacje?  ... (Nicole Marischka) i Hans (Hans-Jochen Wagner) reprezentują tych wszystkich innych, którzy stale towarzyszą naszym związkom, kształtując, komentując i niszcząc je. Jedynym, co łączy kochanków, okazuje się być kryzys wartości. Czy ich uczucie przetrwa te idylliczne wakacje?
+    

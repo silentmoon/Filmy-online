@@ -1,0 +1,9 @@
+
+        Miasto Boga / Cidade de Deus 2002 
+        =============
+        
+        [![Miasto Boga / Cidade de Deus 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miasto-boga-cidade-de-deus-2002)
+        
+        
+ Niezwykły film o niezwykłym miejscu na przedmieściu Rio de Janeiro. Opowiadany przez Busca-Pé, małego czarnego chłopca, zbyt lękliwego i strachliwego, by przystać do gangu, ale i zbyt rozsądnego, by zgodzić się na nisko płatną i poniżającą legalną pracę. Busca-Pé wymyślił sobie, że można okrutny i brutalny świat, który go otacza, obserwować inaczej, przez sztukę. Jego celem stało się zostać profesjonalnym fotografem. Miejsce znane jako 'Cidade de Deus' początkowo jest placem, na którym powstają mieszkania dla biednych budowane przez rząd na początku lat 80. Po kilku latach zamiast spokoju staje się najbardziej niebezpiecznym gettem w Rio. Handel narkotykami, prostytucja, rabunki i przestępstwa stały się smutną codziennością obserwowaną i utrwalaną przez Busca-Pé. Film jest przygnębiający, ujawnia prawdy uniwersalne, pokazuje sytuacje znane i z naszych blokowisk. Film nagradzany na festiwalu w Toronto, nominowany do Złotych Globów 2003.   ... na którym powstają mieszkania dla biednych budowane przez rząd na początku lat 80. Po kilku latach zamiast spokoju staje się najbardziej niebezpiecznym gettem w Rio. Handel narkotykami, prostytucja, rabunki i przestępstwa stały się smutną codziennością obserwowaną i utrwalaną przez Busca-Pé. Film jest przygnębiający, ujawnia prawdy uniwersalne, pokazuje sytuacje znane i z naszych blokowisk. Film nagradzany na festiwalu w Toronto, nominowany do Złotych Globów 2003.
+    

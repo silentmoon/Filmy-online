@@ -1,0 +1,9 @@
+
+        Spokój w duszy / Pokoj v duši 2009 
+        =============
+        
+        [![Spokój w duszy / Pokoj v duši 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/spokoj-w-duszy-pokoj-v-dui-2009)
+        
+        
+ Tono wychodzi z więzienia, gdzie spędził pięć lat za kradzież złomu. Wraca do rodzinnej miejscowości o nazwie Čierny Hron i okazuje się, że wszystko się tu zmieniło. Żona ledwo go poznaje, jego pięcioletni syn traktuje go jak obcego, ponadto nikt nie chce zatrudnić złodzieja. Tono nie chce dłużej kraść, ma dość takiego życia. Tymczasem jego przyjaciel Štefan, wpływowy lokalny biznesmen, nie chce go znać. Koledzy z dzieciństwa – Mark, katolicki ksiądz i Peter, biznesmenn odnoszący sukcesy – starają sie pomóc Tono w powrocie do normalnego życia. Niestety, sami również zmagają się z problemami mężczyzn po czterdziestce i muszą stawić czoła rzeczywistości, która odbiega od ich wyobrażeń. Tono czuje się samotny i zdesperowany. Ta poruszająca historia, umieszczona w górskim krajobrazie, pokazuje problemy typowe dla środkowej Słowacji: patriarchalna rodzina, kłusownictwo, dyskryminacja rasowa i kradzież złomu. Twórcy portretują tradycyjnie silne więzi rodzinne, wiarę, przyjaźń i miłość, razem tworzące klasyczny dramat.   ... n odnoszący sukcesy – starają sie pomóc Tono w powrocie do normalnego życia. Niestety, sami również zmagają się z problemami mężczyzn po czterdziestce i muszą stawić czoła rzeczywistości, która odbiega od ich wyobrażeń. Tono czuje się samotny i zdesperowany. Ta poruszająca historia, umieszczona w górskim krajobrazie, pokazuje problemy typowe dla środkowej Słowacji: patriarchalna rodzina, kłusownictwo, dyskryminacja rasowa i kradzież złomu. Twórcy portretują tradycyjnie silne więzi rodzinne, wiarę, przyjaźń i miłość, razem tworzące klasyczny dramat.
+    

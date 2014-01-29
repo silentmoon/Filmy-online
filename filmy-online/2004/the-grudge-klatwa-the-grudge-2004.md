@@ -1,0 +1,9 @@
+
+        The Grudge - Klątwa / The Grudge 2004 
+        =============
+        
+        [![The Grudge - Klątwa / The Grudge 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/the-grudge-klatwa-the-grudge-2004)
+        
+        
+ Pewien dom w Tokio nie wyróżnia się niczym specjalnym spośród innych. Jednak to tylko pozory. Dom jest opętany. Związana jest z nim klątwa, która zabija każdego, kto wejdzie do środka. Jej ofiary umierają i wtedy klątwa rodzi się na nowo, jak wirus przechodząc na kolejne osoby, które pojawiają się w domu. Tak powstaje niekończący się łańcuch przerażenia. Karen (Sarah Michelle Gellar) studiuje pomoc społeczną w Japonii. Pewnego dnia zgadza się zastąpić koleżankę i udaje się do wspomnianego domu. Zastaje tam Emmę - amerykańską staruszkę (Grace Zabriskie), która jest katatoniczką. W domu panuje wielki bałagan. Karenjest przerażona, ale zaczyna zajmować się staruszką. Mówi do niej, stara się dowiedzieć co się stało. Nagle słyszy coś na kształt drapania dochodzącego z piętra. Kiedy pójdzie sprawdzić co się dzieje, stanie twarzą w twarz z horrorem, który trudno sobie nawet wyobrazić.   ... do wspomnianego domu. Zastaje tam Emmę - amerykańską staruszkę (Grace Zabriskie), która jest katatoniczką. W domu panuje wielki bałagan. Karenjest przerażona, ale zaczyna zajmować się staruszką. Mówi do niej, stara się dowiedzieć co się stało. Nagle słyszy coś na kształt drapania dochodzącego z piętra. Kiedy pójdzie sprawdzić co się dzieje, stanie twarzą w twarz z horrorem, który trudno sobie nawet wyobrazić.
+    

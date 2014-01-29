@@ -1,0 +1,9 @@
+
+        Hańba / Disgrace 2008 
+        =============
+        
+        [![Hańba / Disgrace 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hanba-disgrace-2008)
+        
+        
+ John Malkovich w adaptacji najsłynniejszej powieści laureata nagrody Nobla J. M. Coetzee, uhonorowanego nagrodą Bookera. Profesor David Lurie (John Malkovich) jest wyrafinowanym człowiekiem i wykładowcą literatury brytyjskiej w Cape Town. Po rozstaniu z żoną wiedzie samotne życie i jest zajęty wyłącznie zaspokajaniem swoich pragnień. Poezja, dobre wino i muzyka klasyczna towarzyszą jego życiu częściej, niż ludzie. Jednak romans z piękną studentką, uruchomia lawinę wydarzeń, które spowodują, że będzie musiał przewartościować całe swoje życie... Powszechnie 'Hańbę' uważa się ją za jedną z najwybitniejszych powieści naszych czasów. Przez lata autor odmawiał wielu słynnym reżyserom zgody na adaptację swojej powieści. Dopiero precyzyjny i wierny scenariusz Anny-Marii Monticelli spowodował, że zmienił zdanie.  ... wydarzeń, które spowodują, że będzie musiał przewartościować całe swoje życie... Powszechnie 'Hańbę' uważa się ją za jedną z najwybitniejszych powieści naszych czasów. Przez lata autor odmawiał wielu słynnym reżyserom zgody na adaptację swojej powieści. Dopiero precyzyjny i wierny scenariusz Anny-Marii Monticelli spowodował, że zmienił zdanie.
+    

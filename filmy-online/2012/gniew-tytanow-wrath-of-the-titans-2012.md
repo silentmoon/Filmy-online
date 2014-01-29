@@ -1,0 +1,9 @@
+
+        Gniew tytanów / Wrath of the Titans 2012 
+        =============
+        
+        [![Gniew tytanów / Wrath of the Titans 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gniew-tytanow-wrath-of-the-titans-2012)
+        
+        
+ Mija dziesięć lat od pamiętnej wyprawy, w której Perseusz (Sam Worthington) wraz z towarzyszami udał się do podziemnego świata, by stawić czoła samemu Hadesowi (Ralph Fiennes), oraz zgładzić potwornego Krakena. Syn Zeusa wiedzie spokojne życie rybaka, a także samotnie wychowuje swego dziesięcioletniego syna. Tymczasem na Olimpie rozpoczyna się walka o dominację pomiędzy Olimpijskimi Bogami na czele z Zeusem (Liam Neeson), a Tytanami i ich straszliwym przywódcą, ojcem Zeusa, Hadesa i Posejdona (Danny Houston) - Kronosem - który próbuje uwolnić się z podziemnych lochów Tartaru. Gdy okazuje się, że Ares (Édgar Ramírez) oraz Hades zdradzają Zeusa i zostają sprzymierzeńcami Kronosa, którego siły rosną wraz z wysysaniem mocy Zeusa, na ziemi rozpętuje się piekło. Perseusz jeszcze raz zmuszony jest udać się w niebezpieczną podróż, w której wraz z nowymi towarzyszami celem będzie uratowanie ojca i obalenie Tytanów.  ... Hadesa i Posejdona (Danny Houston) - Kronosem - który próbuje uwolnić się z podziemnych lochów Tartaru. Gdy okazuje się, że Ares (Édgar Ramírez) oraz Hades zdradzają Zeusa i zostają sprzymierzeńcami Kronosa, którego siły rosną wraz z wysysaniem mocy Zeusa, na ziemi rozpętuje się piekło. Perseusz jeszcze raz zmuszony jest udać się w niebezpieczną podróż, w której wraz z nowymi towarzyszami celem będzie uratowanie ojca i obalenie Tytanów.
+    

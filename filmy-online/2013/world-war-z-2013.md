@@ -1,0 +1,9 @@
+
+        World War Z 2013 
+        =============
+        
+        [![World War Z 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/world-war-z-2013)
+        
+        
+ Pewnego zwyczajnego dnia, podczas spokojnej jazdy samochodem, Gerry Lane i jego rodzina wpadają w olbrzymi korek. Lane, były śledczy ONZ szybko wyczuwa, że to z czym mają do czynienia nie jest zwykłą uliczną blokadą. Na niebie słychać policyjne śmigłowce, po ulicach krążą policjanci na motocyklach, a miasto pogrąża się w chaosie. Coś sprawia, że grupy ludzi wściekle atakują się nawzajem. Zabójczy wirus, który rozprzestrzenia się przez ugryzienie przemienia zdrowych ludzi w coś trudnego do zdefiniowania, dzikiego. Sąsiad zwraca się przeciwko sąsiadowi; pomocny nieznajomy nagle staje się niebezpiecznym wrogiem. Pochodzenie wirusa jest nieznane, a liczba zainfekowanych rośnie z dnia na dzień, co wkrótce staje się światową pandemią. Kiedy zarażeni przejmują światowe siły zbrojne i gwałtownie niszczą rządy państw, Lane zostaje zmuszony do powrotu do dawnego niebezpiecznego życia, aby zapewnić bezpieczeństwo rodzinie. Rozpoczyna desperackie poszukiwania źródła epidemii i środków, które powstrzymają jej rozprzestrzenianie.   ... coś trudnego do zdefiniowania, dzikiego. Sąsiad zwraca się przeciwko sąsiadowi; pomocny nieznajomy nagle staje się niebezpiecznym wrogiem. Pochodzenie wirusa jest nieznane, a liczba zainfekowanych rośnie z dnia na dzień, co wkrótce staje się światową pandemią. Kiedy zarażeni przejmują światowe siły zbrojne i gwałtownie niszczą rządy państw, Lane zostaje zmuszony do powrotu do dawnego niebezpiecznego życia, aby zapewnić bezpieczeństwo rodzinie. Rozpoczyna desperackie poszukiwania źródła epidemii i środków, które powstrzymają jej rozprzestrzenianie.
+    

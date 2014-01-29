@@ -1,0 +1,9 @@
+
+        Ostatni król Szkocji / The Last King of Scotland 2006 
+        =============
+        
+        [![Ostatni król Szkocji / The Last King of Scotland 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ostatni-krol-szkocji-the-last-king-of-scotland-2006)
+        
+        
+ Szkocki lekarz, Nicholas Garrigan (James McAvoy) - przebywający na misji w Ugandzie - zostaje przyjacielem i osobistym medykiem jednego z najbardziej barbarzyńskich dyktatorów naszego świata, samozwańczego prezydenta, Idiego Amina (Forest Whitaker). Garrigan wydaje się być zachwycony pełnioną funkcją. Trwa to jednak do czasu. Doktor zdaje sobie sprawę z faktu, że jego nowy znajomy jest bestialskim tyranem, dla którego ludzkie życie jest niewiele warte. Próbując naprawić swój błąd, naraża się Aminowi. Jednak prawdziwy dramat zaczyna się wtedy, gdy Nicholas zostaje oskarżony o zdradę. Pod groźbą kary śmierci, jedyne o czym teraz myśli, to jak uciec z kraju żywym...  ... błąd, naraża się Aminowi. Jednak prawdziwy dramat zaczyna się wtedy, gdy Nicholas zostaje oskarżony o zdradę. Pod groźbą kary śmierci, jedyne o czym teraz myśli, to jak uciec z kraju żywym...
+    

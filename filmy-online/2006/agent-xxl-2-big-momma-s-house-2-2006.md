@@ -1,0 +1,9 @@
+
+        Agent XXL 2 / Big Momma's House 2 2006 
+        =============
+        
+        [![Agent XXL 2 / Big Momma's House 2 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/agent-xxl-2-big-momma-s-house-2-2006)
+        
+        
+ W kontynuacji komediowego przeboju 'Agent XXL' Martin Lawrence ponownie wciela się w rolę tajnego agenta, który w przebraniu energicznej niani, zwanej Mamuśką, rozwiązuje skomplikowane zagadki kryminalne. Malcolm Turner zatrudnia się jako gosposia w rodzinie Toma Fullera (Mark Moses), którego posądza o zaprogramowanie groźnego wirusa komputerowego, otwierającego dostęp do najtajniejszych akt rządowych. W przebraniu Mamuśki przeprowadza się do domu Fullerów i roztacza troskliwą opiekę nad żoną Toma, Leah (Emily Procter) i trójką ich dzieci. Szybko przekonuje się, że jego gosposia ma ręce pełne roboty. Musi nie tylko śledzić poczynania Toma, lecz także sprzątać, gotować i dbać, by dzieci Fullerów nie zapomniały o swoich licznych obowiązkach. A wszystko to w przebraniu Mamuśki, która zastawia sidła na przestępców, odwiedza elegancki salon piękności dla kobiet, prowadzi konkurs dla nastolatek i dzielnie stawia czoła przeciwnościom losu.  ... troskliwą opiekę nad żoną Toma, Leah (Emily Procter) i trójką ich dzieci. Szybko przekonuje się, że jego gosposia ma ręce pełne roboty. Musi nie tylko śledzić poczynania Toma, lecz także sprzątać, gotować i dbać, by dzieci Fullerów nie zapomniały o swoich licznych obowiązkach. A wszystko to w przebraniu Mamuśki, która zastawia sidła na przestępców, odwiedza elegancki salon piękności dla kobiet, prowadzi konkurs dla nastolatek i dzielnie stawia czoła przeciwnościom losu.
+    

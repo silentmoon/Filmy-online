@@ -1,0 +1,9 @@
+
+        Dyktator / The Great Dictator 1940 
+        =============
+        
+        [![Dyktator / The Great Dictator 1940 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dyktator-the-great-dictator-1940)
+        
+        
+ Film 'Dyktator' przedstawia historię absolutnego władcy Hynkela (Charles Chaplin) i żydowskiego fryzjera (w tej roli również Charles Chaplin). Podobieństwo między tymi dwoma bohaterami jest przypadkowe - taką informacje przekazuje nam na początku swego dzieła reżyser. Oczywiście to doskonały żart na początek wspaniałej komedii. 'Dyktator' to alegoria rządów Hitlera. W filmie przedstawione jest codzienne życie nękanych przez szturmowców Żydów w gettcie. Hynkel pragnie zdobyć piekną krainę Austerlich, ale musi uknuć plan przeciwko Napaloniemu. Pomaga mu w tym jego 'prawa ręka' minister Gębacz. Dyktator wpada we własne sidła, a uciekający z obozu koncentracyjnego fryzjer zostaje wzięty za Hynkela. Na wiecu wygłasza pokojowe przemówienie, które według krytyków jest najsłabszym momentem filmu. Mimo, że 'Dyktator' jest komedią to niesie ze sobą głębsze przesłanie. Sprzeciwia się nie tylko dyktaturze, ale także rozwojowi cywilizacyjnemu, zakłamaniu, chciwości...  ... piekną krainę Austerlich, ale musi uknuć plan przeciwko Napaloniemu. Pomaga mu w tym jego 'prawa ręka' minister Gębacz. Dyktator wpada we własne sidła, a uciekający z obozu koncentracyjnego fryzjer zostaje wzięty za Hynkela. Na wiecu wygłasza pokojowe przemówienie, które według krytyków jest najsłabszym momentem filmu. Mimo, że 'Dyktator' jest komedią to niesie ze sobą głębsze przesłanie. Sprzeciwia się nie tylko dyktaturze, ale także rozwojowi cywilizacyjnemu, zakłamaniu, chciwości...
+    

@@ -1,0 +1,9 @@
+
+        Holiday / The Holiday 2006 
+        =============
+        
+        [![Holiday / The Holiday 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/holiday-the-holiday-2006)
+        
+        
+ Iris (Kate Winslet) jest zakochana w mężczyźnie, który właśnie ma poślubić inną. Żyjąca po drugiej stronie kuli ziemskiej, Amanda (Cameron Diaz), dowiaduje się, że człowiek, z którym mieszka był jej niewierny. Dwie kobiety, które nigdy się nie spotkały i mieszkają w odległości ponad 4 000 kilometrów, spotykają się w sieci, na stronie pomagającej aranżować zamianę domów i pod wpływem impulsu wymieniają się miejscami zamieszkania na okres świąt. Iris wprowadza się do domu Amandy w słonecznym Los Angeles, a Amanda przyjeżdża na pokrytą śniegiem angielską wieś. Wkrótce po przybyciu na miejsce przeznaczenia, obie kobiety odnajdują to, czego najmniej się spodziewały: romans. Amanda jest oczarowana przystojnym bratem Iris, Grahamem (Jude Law), natomiast Iris, wiedziona inspiracją legendarnego hollywoodzkiego scenarzysty Arthura (Eli Wallach), leczy swoje złamane serce spotykając się z kompozytorem muzyki filmowej, Milesem (Jack Black).  ... Amandy w słonecznym Los Angeles, a Amanda przyjeżdża na pokrytą śniegiem angielską wieś. Wkrótce po przybyciu na miejsce przeznaczenia, obie kobiety odnajdują to, czego najmniej się spodziewały: romans. Amanda jest oczarowana przystojnym bratem Iris, Grahamem (Jude Law), natomiast Iris, wiedziona inspiracją legendarnego hollywoodzkiego scenarzysty Arthura (Eli Wallach), leczy swoje złamane serce spotykając się z kompozytorem muzyki filmowej, Milesem (Jack Black).
+    

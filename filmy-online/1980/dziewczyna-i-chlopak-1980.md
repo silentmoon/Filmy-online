@@ -1,0 +1,9 @@
+
+        Dziewczyna i chłopak 1980 
+        =============
+        
+        [![Dziewczyna i chłopak 1980 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dziewczyna-i-chlopak-1980)
+        
+        
+ Zbliżają się wakacje. Rodzeństwo; trzynastoletni Tomek i dwunastoletnia Tosia, szykuje się już do wspólnego wyjazdu. Wraz z rozdaniem świadectw okazuje się jednak, że Tomek ma poprawkę z historii. Gdy do tego dochodzi wybryk na basenie, ojciec postanawia wysłać go na kilka tygodni do swojego brata, słynącego z tzw. 'twardej ręki', wuja Stefana. Do tego czasu Tomek ma siedzieć w domu nad książką. Chłopak ma jednak porachunki ze szkolnymi kolegami i każąc siostrze kryć go, wymyka się z domu. Pech chce, że znajomy wuja Stefana jest właśnie w Warszawie i może zabrać Tomka wcześniej. Tosia postanawia nie wydać brata. Przebiera się za Tomka i zostawiwszy mu liścik z wyjaśnieniami, jedzie zamiast niego. Nie mając wyjścia, Tomek po powrocie również podejmuje grę ... Film, który swoją kinową premierę miał w roku 1982, powstał z materiałów popularnego mini-serialu telewizyjnego dla młodzieży.  ... wymyka się z domu. Pech chce, że znajomy wuja Stefana jest właśnie w Warszawie i może zabrać Tomka wcześniej. Tosia postanawia nie wydać brata. Przebiera się za Tomka i zostawiwszy mu liścik z wyjaśnieniami, jedzie zamiast niego. Nie mając wyjścia, Tomek po powrocie również podejmuje grę ... Film, który swoją kinową premierę miał w roku 1982, powstał z materiałów popularnego mini-serialu telewizyjnego dla młodzieży.
+    

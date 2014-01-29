@@ -1,0 +1,9 @@
+
+        Miłość i śmierć w Wenecji / The Wings of the Dove 1997 
+        =============
+        
+        [![Miłość i śmierć w Wenecji / The Wings of the Dove 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/milosc-i-smierc-w-wenecji-the-wings-of-the-dove-1997)
+        
+        
+ Opowieść rozgrywa się w Londynie, na początku XX wieku. Uboga Kate Croy (Helena Bonham Carter), której ojciec z powodu uwielbienia trunków nie śmierdzi groszem, po śmierci matki trafia pod opiekę bogatej ciotki Maude (Charlotte Rampling). Ciotka widzi dla niej tylko jedną przyszłość - małżeństwo z majętnym lordem Markiem. Tymczasem dziewczyna kocha z wzajemnością równie ubogiego jak ona dziennikarza Mertona Denshera (Linus Roache). Młodzi zaręczają się w sekrecie, ale nie mają widoków na szczęśliwą przyszłość. Przełomem okazuje się poznanie Amerykanki Millie Theale (Alison Elliott), bogatej dziedziczki, która przyjechała do Europy zobaczyć zabytki i zaznać miłości, zanim śmiertelne żniwo zbierze choroba, na którą cierpi. Kate wraz z Mertonem planują intrygę i podążają za nią do Wenecji. Czy uda się doprowadzić do tego, by Millie zakochała się w dziennikarzu na tyle, by zostać jego żoną?   ... mają widoków na szczęśliwą przyszłość. Przełomem okazuje się poznanie Amerykanki Millie Theale (Alison Elliott), bogatej dziedziczki, która przyjechała do Europy zobaczyć zabytki i zaznać miłości, zanim śmiertelne żniwo zbierze choroba, na którą cierpi. Kate wraz z Mertonem planują intrygę i podążają za nią do Wenecji. Czy uda się doprowadzić do tego, by Millie zakochała się w dziennikarzu na tyle, by zostać jego żoną?
+    

@@ -1,0 +1,9 @@
+
+        Power Rangers / Mighty Morphin Power Rangers: The Movie 1995 
+        =============
+        
+        [![Power Rangers / Mighty Morphin Power Rangers: The Movie 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/power-rangers-mighty-morphin-power-rangers-the-movie-1995)
+        
+        
+ Szóstka licealistów: Kimberly, Aisha, Billy, Rocky, Adam i Tommy, zostali obdarzeni niezwykłą mocą przez ich pana (Zordona), dzięki której mogą przeistaczać się w Wojowników Mocy, znanych jako Power Rangers - aby walczyć ze złem. W mieście Angel Grove zostaje przypadkowo odkryte jajo, w którym jest uwięziony Ivan Ooze, tyran, który niegdyś rządził światem za pomocą terroru i przemocy. Aby przeszkodzić w uwolnieniu potwora, Power Rangers muszą je szybko zakopać z powrotem. Niestety, przybywają za późno, ponieważ Ivan wydostał się już z komory i wkrótce po tym niszczy siedzibę Zordona. Jedyną szansą na uratowanie świata jest zdobycie mocy, mieszczącej się na legendarnej planecie Phaedos...  ... Niestety, przybywają za późno, ponieważ Ivan wydostał się już z komory i wkrótce po tym niszczy siedzibę Zordona. Jedyną szansą na uratowanie świata jest zdobycie mocy, mieszczącej się na legendarnej planecie Phaedos...
+    

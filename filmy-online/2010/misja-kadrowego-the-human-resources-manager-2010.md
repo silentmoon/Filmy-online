@@ -1,0 +1,9 @@
+
+        Misja kadrowego / The Human Resources Manager 2010 
+        =============
+        
+        [![Misja kadrowego / The Human Resources Manager 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/misja-kadrowego-the-human-resources-manager-2010)
+        
+        
+ Samolubny, zblazowany, pozbawiony uczuć i skupiony na sobie czterdziestolatek pracuje jako kadrowy w jednej z największych piekarń w Jerozolimie. Pewnego dnia jego nieskalana zawodowa reputacja poddana zostaje próbie. W samobójczym ataku bombowym ginie jedna z pracownic piekarni – Julia, z pochodzenia Rumunka, a piekarnia zostaje oskarżona przez media o niehumanitarną i obojętną postawę wobec zatrudnionych w niej obcokrajowców. Kadrowy ma za zadanie załagodzić skandal. Musi zrehabilitować dobre imię firmy i oddalić stawiane wobec niej zarzuty. Kadrowy zostaje wysłany w podróż – misję, w trakcie której eskortuje trumnę z ciałem Julii do jej rodzinnego domu w Rumunii. Wyjazd ma charakter terapeutyczny i sprawia, że mężczyzna na nowo uczy się odczuwać emocje. Pomagają mu w tym ekscentryczni współtowarzysze: izraelska konsul i jej mąż, nieznośny reporter oraz niepokorny nastoletni syn Julii. To oni uczą kadrowego pokory i pozwalają zrewidować egoistyczny styl życia, jaki dotychczas prowadził.   ... zrehabilitować dobre imię firmy i oddalić stawiane wobec niej zarzuty. Kadrowy zostaje wysłany w podróż – misję, w trakcie której eskortuje trumnę z ciałem Julii do jej rodzinnego domu w Rumunii. Wyjazd ma charakter terapeutyczny i sprawia, że mężczyzna na nowo uczy się odczuwać emocje. Pomagają mu w tym ekscentryczni współtowarzysze: izraelska konsul i jej mąż, nieznośny reporter oraz niepokorny nastoletni syn Julii. To oni uczą kadrowego pokory i pozwalają zrewidować egoistyczny styl życia, jaki dotychczas prowadził.
+    

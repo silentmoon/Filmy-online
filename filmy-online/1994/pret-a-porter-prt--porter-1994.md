@@ -1,0 +1,9 @@
+
+        Pret-a-Porter / Prêt-à-Porter 1994 
+        =============
+        
+        [![Pret-a-Porter / Prêt-à-Porter 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pret-a-porter-prt--porter-1994)
+        
+        
+ Dwa razy w roku świat mody zbiera się w Paryżu na Pret-a-Porter. Wydawcy magazynów, dziennikarze, fotografowie, sławni i bogaci przybywają, aby obejrzeć najnowsze oferty wybitnych projektantów. Jednak prawdziwy spektakl odbywa się za kulisami tej imprezy. W moskiewskim butiku Diora tajemniczy Rosjanin, Sergiej Oblomov, kupuje dwa identyczne krawaty o rzucających się w oczy kolorach. Kilka dni później, w Paryżu, w czasie tygodnia pokazów mody, Olivier de la Fontaine, szef Chambre Syndicate, otrzymuje pocztą jeden z tych krawatów wraz z prośbą o założenie go i udanie się w nim na lotnisko w Roissy. Na lotnisku zauważa Oblomova, który ma na sobie identyczny krawat. Wsiadają wspólnie do limuzyny, która wiezie ich do centrum Paryża. Dyskutują z ożywieniem. Nagle zdenerwowany prezes francuskiego stowarzyszenia kreatorów mody umiera, krztusząc się kanapką. Przerażony Sergiej wyskakuje z samochodu i rzuca się do Sekwany. Paryscy detektywi są przekonani, że Oblomov jest mordercą. Postanawiają go odnaleźć...   ... Chambre Syndicate, otrzymuje pocztą jeden z tych krawatów wraz z prośbą o założenie go i udanie się w nim na lotnisko w Roissy. Na lotnisku zauważa Oblomova, który ma na sobie identyczny krawat. Wsiadają wspólnie do limuzyny, która wiezie ich do centrum Paryża. Dyskutują z ożywieniem. Nagle zdenerwowany prezes francuskiego stowarzyszenia kreatorów mody umiera, krztusząc się kanapką. Przerażony Sergiej wyskakuje z samochodu i rzuca się do Sekwany. Paryscy detektywi są przekonani, że Oblomov jest mordercą. Postanawiają go odnaleźć...
+    

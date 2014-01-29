@@ -1,0 +1,9 @@
+
+        Sztuka znikania 2012 
+        =============
+        
+        [![Sztuka znikania 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sztuka-znikania-2012)
+        
+        
+ Nieznana historia haitańskiego kapłana wudu, Amona Frémona, który na zaproszenie Jerzego Grotowskiego w 1980 roku odwiedził Polską Rzeczpospolitą Ludową. Polska była dla Amona dziwnym miejscem. Ludzie zachowywali się inaczej - godzinami stali w kolejkach, jakby chcieli pobyć razem, ale wcale ze sobą nie rozmawiali. Odprawiali dziwne rytuały na wielkich stadionach. Deszcz padał tu głośniej, jak w kraju ogłuchłych ludzi, a zimą z nieba leciała zła, biała woda niegasząca pragnienia. Amon obserwując wydarzenia stanu wojennego przywołuje, podobnie jak Adam Mickiewicz w 'Dziadach', duchy przodków. Odprawia ceremonię voodoo, aby uwolnić Polaków od złych mocy. Rozpoczyna się bój, w którym żywi i umarli jednoczą się we wspólnej walce. Duch polskiego romantyzmu łączy się z haitańskim Loa, dokładnie tak, jak 200 lat temu w czasie wielkiej rewolucji na Haiti. 'Sztuka znikania', nowy film twórców nominowanego do Oscara 'Królika po berlińsku', jest spojrzeniem na czasy socjalizmu oczami przybysza z zupełnie innej kultury.   ... pragnienia. Amon obserwując wydarzenia stanu wojennego przywołuje, podobnie jak Adam Mickiewicz w 'Dziadach', duchy przodków. Odprawia ceremonię voodoo, aby uwolnić Polaków od złych mocy. Rozpoczyna się bój, w którym żywi i umarli jednoczą się we wspólnej walce. Duch polskiego romantyzmu łączy się z haitańskim Loa, dokładnie tak, jak 200 lat temu w czasie wielkiej rewolucji na Haiti. 'Sztuka znikania', nowy film twórców nominowanego do Oscara 'Królika po berlińsku', jest spojrzeniem na czasy socjalizmu oczami przybysza z zupełnie innej kultury.
+    

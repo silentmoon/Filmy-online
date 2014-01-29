@@ -1,0 +1,9 @@
+
+        Łza księcia ciemności 1992 
+        =============
+        
+        [![Łza księcia ciemności 1992 ](http://vidos.pl/images/player.gif)](http://vidos.pl/za-ksiecia-ciemnosci-1992)
+        
+        
+ Inflanty w XVII wieku. Sekta czcicieli sztana przygotowuje się do złożenia w ofierze Bogu Zła młodej kobiety. Polscy żołnierze zabijają kapłana i zdejmują z jego palca bursztynowy pierścień satanistów - łzę księcia ciemności. Jesień 1939 roku. Do Tallina przyjeżdża młoda pisarka Joanna Karwicka. Jej wydawca baron Preimann pracujący dla hitlerowskich Niemiec, pragnie wykorzystać Joannę do odnalezienia magicznego pierścienia, który miałby posłużyć tworzeniu potęgi Rzeszy. Porywa pisarkę. Podczas seansu spirytystycznego okazuje się, że niedoszła ofiara z XVII wieku była prababką Joanny. Zaniepokojony zniknięciem Karwickiej detektyw hotelowy Gunnar rozpoczyna prywatne śledztwo. Dociera do Joanny, z którą odzyskują pierścień, ale kobieta zostaje uprowadzona przez satanistów na czarną mszę, podczas której ma zostać - podobnie jak babka - ofiarowana Bogu Zła. Tym razem ofiarę ratuje od śmierci Gunnar. Pierścień trafia w ręce Wołodii, znajomego Gunnara, który na kronice filmowej z 1938 roku zastaje rozpoznany przez Joannę jako oficer NKWD.   ... Porywa pisarkę. Podczas seansu spirytystycznego okazuje się, że niedoszła ofiara z XVII wieku była prababką Joanny. Zaniepokojony zniknięciem Karwickiej detektyw hotelowy Gunnar rozpoczyna prywatne śledztwo. Dociera do Joanny, z którą odzyskują pierścień, ale kobieta zostaje uprowadzona przez satanistów na czarną mszę, podczas której ma zostać - podobnie jak babka - ofiarowana Bogu Zła. Tym razem ofiarę ratuje od śmierci Gunnar. Pierścień trafia w ręce Wołodii, znajomego Gunnara, który na kronice filmowej z 1938 roku zastaje rozpoznany przez Joannę jako oficer NKWD.
+    

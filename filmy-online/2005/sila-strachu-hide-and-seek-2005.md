@@ -1,0 +1,9 @@
+
+        Siła strachu / Hide and Seek 2005 
+        =============
+        
+        [![Siła strachu / Hide and Seek 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sila-strachu-hide-and-seek-2005)
+        
+        
+ David Callaway, jego żona i córka tworzą udaną rodzinę. On jest psychologiem, całkowicie pochłoniętym swoją pracą. Matka zajmuje się córką. Wieczorami bawi się z nią w chowanego i mówi jej, że ją kocha - najbardziej ze wszystkich na świecie. A potem dzieje się coś strasznego i cały świat małej, Emy rozpada się na kawałki. Mama popełnia samobójstwo. Ojciec znajduje jej martwe ciało w wannie pełnej krwi. Postanawia, dla dobra dziewczynki, opuścić miasto i przenieść się na wieś. Okazuje się jednak, że to był najgłupszy z możliwych pomysł. Już w trakcie kilku pierwszych godzin stan Emily się pogarsza, a wszystko zdaje się zmierzać ku jeszcze gorszemu. Poza tym niepokojąca jest też przyjaźń dziecka z tajemniczym Charlim.  ... Okazuje się jednak, że to był najgłupszy z możliwych pomysł. Już w trakcie kilku pierwszych godzin stan Emily się pogarsza, a wszystko zdaje się zmierzać ku jeszcze gorszemu. Poza tym niepokojąca jest też przyjaźń dziecka z tajemniczym Charlim.
+    

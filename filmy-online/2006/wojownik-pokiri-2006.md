@@ -1,0 +1,9 @@
+
+        Wojownik / Pokiri 2006 
+        =============
+        
+        [![Wojownik / Pokiri 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wojownik-pokiri-2006)
+        
+        
+ Pandu (Mahesh Babu) to bezwzględny gangster, człowiek który nie wie czym jest lojalność. Dwa, będące w stanie wojny gangi zazdroszczą mu jego siły, choć z przerażeniem, podziwiają nonszalancję, z jaką stosuje przemoc. Na przemian korzystają z usług najemnego wojownika. Pandu zdaje się uosabiać człowieka torującego sobie drogę przez życie pięściami, w jego życiu nie ma miejsca na miłość i ciepłe uczucia. Spotkanie z uroczą Sruthi (Ileana), sprawia, że jego serce, ukryte pod grubą skorupą lodu, zaczyna po woli odtajać. Sruthi z kolei, to dziewczyna o delikatnym usposobieniu, która po śmierci ojca, pracując pomaga matce w utrzymaniu domu i wychowaniu młodszego brata. Marzy o spokojnej przyszłości u boku wykształconego, pełnego ogłady męża. Los chwyta ją jednak w pułapkę, zmuszając Pandu, aby pokazał dziewczynie swoje krwawe oblicze. Młody wojownik zmuszony jest walczyć z królem miejscowej mafii - Ali Bhai, przed którym nie chce pochylić czoła. Wojna, jaka wywiązuje się między stronami zaciera granicę dobra i zła, zmienia oblicza uwikłanych w nią ludzi. Kogo uczyni z Pandu - najemnego wojownika?   ... grubą skorupą lodu, zaczyna po woli odtajać. Sruthi z kolei, to dziewczyna o delikatnym usposobieniu, która po śmierci ojca, pracując pomaga matce w utrzymaniu domu i wychowaniu młodszego brata. Marzy o spokojnej przyszłości u boku wykształconego, pełnego ogłady męża. Los chwyta ją jednak w pułapkę, zmuszając Pandu, aby pokazał dziewczynie swoje krwawe oblicze. Młody wojownik zmuszony jest walczyć z królem miejscowej mafii - Ali Bhai, przed którym nie chce pochylić czoła. Wojna, jaka wywiązuje się między stronami zaciera granicę dobra i zła, zmienia oblicza uwikłanych w nią ludzi. Kogo uczyni z Pandu - najemnego wojownika?
+    

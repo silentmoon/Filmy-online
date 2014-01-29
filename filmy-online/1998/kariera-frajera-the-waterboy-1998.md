@@ -1,0 +1,9 @@
+
+        Kariera frajera / The Waterboy 1998 
+        =============
+        
+        [![Kariera frajera / The Waterboy 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kariera-frajera-the-waterboy-1998)
+        
+        
+ Bohaterem filmu jest Bobby Boucher, trzydziestoletni mężczyzna, który nie potrafi wyrwać się spod skrzydeł matki. Bobby nie potrafi się odnaleźć w otaczajacym go świecie, jest niesamodzielny, a jedyną rzeczą, którą potrafi robić jest rozdawanie piłkarzom wody. Przez swoją nieudolność staje się pośmiewiskiem całej drużyny futbolowej. Pewnego razu trener Klein dostrzega w Bobbym wielki talent piłkarski. Postanawia zaciągnąć go do swojej drużyny. Bobby podpisuje więc kontrakt z drużyną Psy Bagienne'. Ale jest pewien kłopot - jego matka nienawidzi futbolu. Trenuje więc, ale nie informuje o tym matki. Poznaje też dziewczynę. Bobby staje się poprzez swoją świetną grę ulubieńcem publiczności. Jednak wszystko zaczyna się kompilkować. Okazuje się, że Bobby nie skończył szkoły i nie może grać w drużynie, jego matka też dowiedziałą się okłamstwie i zaczęła udawać chorobę. A tymczasemjego druużynę czeka bardzo ważny mecz ...  ... drużyną Psy Bagienne'. Ale jest pewien kłopot - jego matka nienawidzi futbolu. Trenuje więc, ale nie informuje o tym matki. Poznaje też dziewczynę. Bobby staje się poprzez swoją świetną grę ulubieńcem publiczności. Jednak wszystko zaczyna się kompilkować. Okazuje się, że Bobby nie skończył szkoły i nie może grać w drużynie, jego matka też dowiedziałą się okłamstwie i zaczęła udawać chorobę. A tymczasemjego druużynę czeka bardzo ważny mecz ...
+    

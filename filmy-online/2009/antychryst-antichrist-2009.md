@@ -1,0 +1,9 @@
+
+        Antychryst / Antichrist 2009 
+        =============
+        
+        [![Antychryst / Antichrist 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/antychryst-antichrist-2009)
+        
+        
+ Światowej sławy psychiatra i jego młoda żona, badająca historie czarownic w średniowieczu, wyjeżdżają do domu na odludziu, by zaszyć się przed światem i zmierzyć się ze swoimi najgłębszymi lękami. Zamiast ukojenia znajdą tam jednak niszczycielską moc sięgającą początków świata. Będą musieli stawić czoła potężnej i przerażającej sile, z której istnienia nie zdawali sobie sprawy. Willem Dafoe ('Ostatnie kuszenie Chrystusa', 'Spiderman') i Charlotte Gainsbourg ('21 gramów') w horrorze twórcy kultowego 'Królestwa' i 'Przełamując fale' Larsa von Triera. Przełomowe efekty specjalne studia Platige Image, niesamowite zdjęcia Anthonego Dod Mantle, nagrodzonego Oscarem za film 'Slumdog. Milioner z ulicy'. To wszystko zapowiada rewolucyjny film grozy na miarę 'Dziecka Rosemary' Polańskiego i 'Lśnienia' Kubricka.   ... horrorze twórcy kultowego 'Królestwa' i 'Przełamując fale' Larsa von Triera. Przełomowe efekty specjalne studia Platige Image, niesamowite zdjęcia Anthonego Dod Mantle, nagrodzonego Oscarem za film 'Slumdog. Milioner z ulicy'. To wszystko zapowiada rewolucyjny film grozy na miarę 'Dziecka Rosemary' Polańskiego i 'Lśnienia' Kubricka.
+    

@@ -1,0 +1,9 @@
+
+        Kręgi / Krugovi 2013 
+        =============
+        
+        [![Kręgi / Krugovi 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kregi-krugovi-2013)
+        
+        
+ Bośnia, 1993. Centrum serbskiego miasteczka, rynek wypełniony stolikami. W mieście panuje spokój. Jednak tylko pozorny, widok snujących się po ulicach żołnierze powoduje, że w powietrzu czuć nieomal namacalne napięcie. Jeden z serbskich żołnierzy, Marko, siedzi z kolegami przy kawiarnianym stoliku. Na oczach żołnierzy trzech mężczyzn również noszących wojskowe mundury atakuje Harisa, muzułmańskiego cywila. Marko interweniuje. Ratuje Harisowi życie, sam jednak zostaje pobity na śmierć. Piętnaście lat później. Ojciec Marka podejmie pracę niedaleko miasteczka, przy renowacji kościoła. Syn jednego z morderców poprosi go o pracę. Przyjaciel Marka zostanie kardiochirurgiem. Pewnego dnia na jego oddział trafi ten, który wydał rozkaz zabicia Marka. Haris zrobi wszystko, by pomóc Nadze, byłej dziewczynie Marka. Czy ojciec jest w stanie wybaczyć śmierć syna? Czy morderca po latach poczuje żal? Jaką cenę jest w stanie zapłacić Haris, by wyrównać rachunki sprzed lat?   ... na śmierć. Piętnaście lat później. Ojciec Marka podejmie pracę niedaleko miasteczka, przy renowacji kościoła. Syn jednego z morderców poprosi go o pracę. Przyjaciel Marka zostanie kardiochirurgiem. Pewnego dnia na jego oddział trafi ten, który wydał rozkaz zabicia Marka. Haris zrobi wszystko, by pomóc Nadze, byłej dziewczynie Marka. Czy ojciec jest w stanie wybaczyć śmierć syna? Czy morderca po latach poczuje żal? Jaką cenę jest w stanie zapłacić Haris, by wyrównać rachunki sprzed lat?
+    

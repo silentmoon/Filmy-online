@@ -1,0 +1,9 @@
+
+        Zakopana Betty / Plots with a View 2002 
+        =============
+        
+        [![Zakopana Betty / Plots with a View 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakopana-betty-plots-with-a-view-2002)
+        
+        
+ Boris (Alfred Molina), nieśmiały, dobroduszny Walijczyk, w dzieciństwie miał tylko dwa marzenia: zostać zawodowym tancerzem i ożenić się z Betty (Brenda Blethyn). Niestety, nie został tancerzem, a właścicielem zakładu pogrzebowego, a jego ukochana poślubiła kogoś innego. Po latach dochodzi do spotkania Borisa i Betty. Ona chce omówić sprawy pogrzebu teściowej. Powracają dawne wspomnienia, a radość ze spotkania bierze górę nad żałobą. Plany ceremonii pochówku teściowej Betty chce jednak pokrzyżować Frank Featherbed (Christopher Walken), dyrektor konkurencyjnego domu pogrzebowego. Sytuacja komplikuje się jeszcze bardziej, kiedy mąż Betty, Hugh (Robert Pugh), zamiast zająć się pogrzebem matki, zostaje przyłapany na niedwuznacznej sytuacji ze swoją sekretarką-seksbombą Meredith (Naomi Watts). Betty zniesmaczona tym wszystkim postanawia uwolnić się od męża, pogrzebu i dotychczasowego życia. W desperackim pragnieniu bycia z Borisem decyduje się upozorować z jego pomocą swoją śmierć i uciec jak najdalej.  ... chce jednak pokrzyżować Frank Featherbed (Christopher Walken), dyrektor konkurencyjnego domu pogrzebowego. Sytuacja komplikuje się jeszcze bardziej, kiedy mąż Betty, Hugh (Robert Pugh), zamiast zająć się pogrzebem matki, zostaje przyłapany na niedwuznacznej sytuacji ze swoją sekretarką-seksbombą Meredith (Naomi Watts). Betty zniesmaczona tym wszystkim postanawia uwolnić się od męża, pogrzebu i dotychczasowego życia. W desperackim pragnieniu bycia z Borisem decyduje się upozorować z jego pomocą swoją śmierć i uciec jak najdalej.
+    

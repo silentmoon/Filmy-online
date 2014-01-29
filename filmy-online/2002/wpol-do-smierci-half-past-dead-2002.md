@@ -1,0 +1,9 @@
+
+        Wpół do śmierci / Half Past Dead 2002 
+        =============
+        
+        [![Wpół do śmierci / Half Past Dead 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wpol-do-smierci-half-past-dead-2002)
+        
+        
+ Steven Seagal wciela się w postać Saschy Petrosevitcha, tajnego agenta FBI, który chcąć zdobyć informacje na temat groźnego mafioso idzie wraz z jednym jego wspólników do więzienia. A nie jest to zwykłe więzienie. Nasi bohaterowie trafiają do 'Nowego Alctaraz', osadzonej na wyspie i wyposażonej w najnowszą technologię placówki, z której nie ma ucieczki. W tym samym więzieniu na wyrok czeka również legendarny Lester, człowiek, który przed 17. laty ukradł złoto wartości 200 mln. dolarów i nigdy nie zdradził miejsca ukrycia łupu. Tuż przed egzekucją do budynku dostaje się grupa uzbrojonych po zęby ludzi pod wodzą złowrogiego Donny'ego (Morris Chestnut). Chcą wydobyć z Lestera informacje na temat ukrycia złota. Kiedy ten odmawia, Donny bierze zakładników, wśród nich jest sędzia sądu najwyższego - June McPherson. W tej sytuacji pomóc może tylko jedna osoba. Kto? Oczywiście Sacha Petrosevitch.   ... mln. dolarów i nigdy nie zdradził miejsca ukrycia łupu. Tuż przed egzekucją do budynku dostaje się grupa uzbrojonych po zęby ludzi pod wodzą złowrogiego Donny'ego (Morris Chestnut). Chcą wydobyć z Lestera informacje na temat ukrycia złota. Kiedy ten odmawia, Donny bierze zakładników, wśród nich jest sędzia sądu najwyższego - June McPherson. W tej sytuacji pomóc może tylko jedna osoba. Kto? Oczywiście Sacha Petrosevitch.
+    

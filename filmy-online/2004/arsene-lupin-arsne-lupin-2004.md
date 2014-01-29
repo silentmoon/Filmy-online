@@ -1,0 +1,9 @@
+
+        Arsene Lupin / Arsène Lupin 2004 
+        =============
+        
+        [![Arsene Lupin / Arsène Lupin 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/arsene-lupin-arsne-lupin-2004)
+        
+        
+ Arsene, syn Theophraste'a Lupina, przebiegłego złodzieja oraz Henrietty d'Andresy, krewnej królów Francji wychowuje się domu pełnym bogactwa. Ojciec Arsene'a, niespokojny duch, nie może dłużej znieść nudnego przepychu. Pewnego dnia z pomocą syna wykrada skarby i ucieka. Rano mały Arsene znajduje w okolicy zmasakrowane ciało. Siwy koń, który nie opuścił zmarłego właściciela oraz sygnet – wróżą nieszczęście. Syn szybko postanawia pójść w ślady ojca. Arsene staje się nieuleczalnym złodziejem i... uwodzicielem. Hojny niczym Robin Hood, inteligentny jak Sherlock Holmes, uwodzicielski niczym Don Juan Arsene będzie potrzebował wszystkich swoich talentów, kiedy stanie się głównym podejrzanym o kradzieże i morderstwa popełnione przez jego śmiertelnych wrogów. Na ich czele stanie piękna i tajemnicza kobieta. Hrabina Cagliostro sama odda mu swoje serce, w zamian będzie chciała, by wykradł dla niej skarb, który daję władzę nad światem. Bezwzględna kobieta świadomie wystawi zakochanego w niej Arsene/a na gniew bractwa, które strzeże skarbu i... tajemnicy śmierci jego ojca.   ... nieuleczalnym złodziejem i... uwodzicielem. Hojny niczym Robin Hood, inteligentny jak Sherlock Holmes, uwodzicielski niczym Don Juan Arsene będzie potrzebował wszystkich swoich talentów, kiedy stanie się głównym podejrzanym o kradzieże i morderstwa popełnione przez jego śmiertelnych wrogów. Na ich czele stanie piękna i tajemnicza kobieta. Hrabina Cagliostro sama odda mu swoje serce, w zamian będzie chciała, by wykradł dla niej skarb, który daję władzę nad światem. Bezwzględna kobieta świadomie wystawi zakochanego w niej Arsene/a na gniew bractwa, które strzeże skarbu i... tajemnicy śmierci jego ojca.
+    

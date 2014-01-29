@@ -1,0 +1,9 @@
+
+        Diabolique 1996 
+        =============
+        
+        [![Diabolique 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/diabolique-1996)
+        
+        
+ 'Diabolique' to tytuł, który we współczesnym kinie może kojarzyć się wyłącznie z jedną aktorką - Sharon Stone - niezwykłą i piękną gwiazdą Hollywood. Obok Stone, nie mniejszym blaskiem jaśnieje prześliczna, subtelnej urody gwiazda kina europejskiego - Isabelle Adjani. Dwie kobiety - pełna energii, seksowna Nicole (Stone) oraz niezwykle subtelna i wrażliwa Mia (Adjani) znalazły się pod silnym wpływem jednego mężczyzny - Guya. Mia jest jego żoną; Nicole kochanką. Kłamstwa i egoizm Guya, nie dająca się znieść dwuznaczność doprowadzają je do kresu wytrzymałości. Miotane uczuciami pożądania i nienawiści postanawiają go zabić. Lecz czy Guy naprawdę zniknął z ich życia na zawsze? W coraz dziwniejszych okolicznościach Guy zaczyna objawiać swoją obecność... Tajemnicę stara się wyjaśnić - niekonwencjonalnie badająca okoliczności zniknięcia mężczyzny - pani detektyw brawurowo zagrana przez Kathy Bates. 'Diabolique' nawiązuje do słynnego horroru 'Widmo' ('Les diaboliques') nakręconego w roku 1955 przez Henri-Georgesa Clouzota.   ... egoizm Guya, nie dająca się znieść dwuznaczność doprowadzają je do kresu wytrzymałości. Miotane uczuciami pożądania i nienawiści postanawiają go zabić. Lecz czy Guy naprawdę zniknął z ich życia na zawsze? W coraz dziwniejszych okolicznościach Guy zaczyna objawiać swoją obecność... Tajemnicę stara się wyjaśnić - niekonwencjonalnie badająca okoliczności zniknięcia mężczyzny - pani detektyw brawurowo zagrana przez Kathy Bates. 'Diabolique' nawiązuje do słynnego horroru 'Widmo' ('Les diaboliques') nakręconego w roku 1955 przez Henri-Georgesa Clouzota.
+    

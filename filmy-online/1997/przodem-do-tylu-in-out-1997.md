@@ -1,0 +1,9 @@
+
+        Przodem do tyłu / In & Out 1997 
+        =============
+        
+        [![Przodem do tyłu / In & Out 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/przodem-do-tylu-in-out-1997)
+        
+        
+ Witajcie w Greenleaf! Oto tutejsze gimnazjum, w którym bardzo lubiany przez uczniów Howard Brackett (KEVIN KLINE) wykłada literaturę. Wkrótce ma zostać mężem Emily Montgomery (JOAN CUSACK). Uszczęśliwiony tym faktem zasiada wraz z narzeczoną przed telewizorem, by śledzić transmisję z ceremonii rozdania Oscarów. Oglądają ją również rodzice Howarda - Berniece i Frank Brackettowie (DEBBIE REYNOLDS, WILFORD BRIMLEY), jego uczniowie, znajomi i przyjaciele oraz... pewnie z miliard ludzi na całym globie! GLENN CLOSE we własnej osobie odczytuje werdykt w kategorii 'Najlepszy aktor w roli pierwszoplanowej'. Oscara - za rolę geja w filmie 'To Save and Protect' - otrzymuje Cameron Drake (MATT DILLON), były uczeń Howarda, a dziś hollywoodzki gwiazdor. Całe Greenleaf ogarnia euforia, Howard wprost szaleje z radości. Radość nie potrwa długo. Cameron, odbierając nagrodę i dziękując m.in. Howardowi za pedagogiczny trud, ogłasza wszem i wobec, że jego nauczyciel jest... gejem.   ... ludzi na całym globie! GLENN CLOSE we własnej osobie odczytuje werdykt w kategorii 'Najlepszy aktor w roli pierwszoplanowej'. Oscara - za rolę geja w filmie 'To Save and Protect' - otrzymuje Cameron Drake (MATT DILLON), były uczeń Howarda, a dziś hollywoodzki gwiazdor. Całe Greenleaf ogarnia euforia, Howard wprost szaleje z radości. Radość nie potrwa długo. Cameron, odbierając nagrodę i dziękując m.in. Howardowi za pedagogiczny trud, ogłasza wszem i wobec, że jego nauczyciel jest... gejem.
+    

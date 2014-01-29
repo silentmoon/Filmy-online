@@ -1,0 +1,9 @@
+
+        Złodziej z Bagdadu / The Princess and the Cobbler 1993 
+        =============
+        
+        [![Złodziej z Bagdadu / The Princess and the Cobbler 1993 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zlodziej-z-bagdadu-the-princess-and-the-cobbler-1993)
+        
+        
+ Dawno, dawno temu, w Złotym Mieście, panował dobry i poczciwy Sułtan, mający piękną córkę imieniem Yum Yum. Życie tu toczyło się spokojnie i leniwie, a wszyscy czuli się bezpieczni, ponieważ miasta strzegły trzy Złote Kule. Związana z nimi stara przepowiednia głosiła, że jak długo pozostaną nietknięte, tak długo miastu nic nie grozi, ale z chwilą, gdy wpadną one w niepowołane ręce, miasto stanie wobec wielkiego zagrożenia. Wówczas ratunkiem stanie się najzwyklejszy przedmiot w rękach najzwyklejszego z ludzi. Niestety, stare przepowiednie lubią się spełniać. I tak też się stało w Złotym Mieście, a wszystko za sprawą wezyra Zygzaka i Złodzieja, który ukradł Złote Kule. Wezyrowi udało się je wprawdzie odzyskać, ale urażony odmową Sułtana oddania mu ręki Yum Yum, postanowił się zemścić i przekazać kule armii Jednookich, którzy właśnie w niecnych celach zbliżyli się do miasta. Jak pomyślał, tak też zrobił i wspólnie z Królem Jednookim opracował plan zagłady miasta.  ... w rękach najzwyklejszego z ludzi. Niestety, stare przepowiednie lubią się spełniać. I tak też się stało w Złotym Mieście, a wszystko za sprawą wezyra Zygzaka i Złodzieja, który ukradł Złote Kule. Wezyrowi udało się je wprawdzie odzyskać, ale urażony odmową Sułtana oddania mu ręki Yum Yum, postanowił się zemścić i przekazać kule armii Jednookich, którzy właśnie w niecnych celach zbliżyli się do miasta. Jak pomyślał, tak też zrobił i wspólnie z Królem Jednookim opracował plan zagłady miasta.
+    

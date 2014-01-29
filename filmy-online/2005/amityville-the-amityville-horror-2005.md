@@ -1,0 +1,9 @@
+
+        Amityville / The Amityville Horror 2005 
+        =============
+        
+        [![Amityville / The Amityville Horror 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/amityville-the-amityville-horror-2005)
+        
+        
+ 13 listopada 1974 roku policja w hrabstwie Suffolk otrzymuje zawiadomienie o popełnieniu zbrodni. Policjanci natychmiast udają się pod wskazany adres: 112 Ocean Avenue na Long Island. Tam odkrywają przerażającą zbrodnię. Zbrodnię, która wstrząsnęła Ameryką. Sześciu członków rodziny zostało zastrzelonych w ich własnym domu. Kilka dni po tym wydarzeniu, do zbrodni przyznaje się Ronald De Feo Jr. Zeznaje, że zamordował swoich rodziców i czwórkę rodzeństwa. Jako motyw tej przerażającej zbrodni podaje 'głosy', które słyszał w domu. Rok później George (Ryan Reynolds) i Kathy (Melissa George) Lutzowie, wraz z dziećmi wprowadzają się do domu w Amityville. Myślą, że wreszcie znaleźli wymarzone miejsce do życia. Jednak już wkrótce w domu ich marzeń zaczynają dziać się niewytłumaczalne i przerażające zdarzenia. Po 28 dniach koszmaru Lutzowie porzucają dom. Ledwo uchodzą z życiem. Ta historia zdarzyła się naprawdę. Szokujące zdarzenia sprzed 30 lat przyczyniły się do napisania bestsellera i stały się popularnym motywem horrorów.   ... przerażającej zbrodni podaje 'głosy', które słyszał w domu. Rok później George (Ryan Reynolds) i Kathy (Melissa George) Lutzowie, wraz z dziećmi wprowadzają się do domu w Amityville. Myślą, że wreszcie znaleźli wymarzone miejsce do życia. Jednak już wkrótce w domu ich marzeń zaczynają dziać się niewytłumaczalne i przerażające zdarzenia. Po 28 dniach koszmaru Lutzowie porzucają dom. Ledwo uchodzą z życiem. Ta historia zdarzyła się naprawdę. Szokujące zdarzenia sprzed 30 lat przyczyniły się do napisania bestsellera i stały się popularnym motywem horrorów.
+    

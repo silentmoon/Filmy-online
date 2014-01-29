@@ -1,0 +1,9 @@
+
+        Hollywoodland 2006 
+        =============
+        
+        [![Hollywoodland 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hollywoodland-2006)
+        
+        
+ 'Hollywoodland' zainspirowany jest jedną z najbardziej tajemniczych spraw w historii Hollywood. George Reeves (Ben Affleck), wielka gwiazda fabryki snów, któremu niebywała popularność przyniosła tytułowa rola w serialu 'Przygody Supermana', umiera w swoim domu na wzgórzach Hollywood 16 czerwca 1959 roku. Trafiony kulą gwiazdor pozostawia po sobie narzeczoną - Leonore Lemmon (Robin Tunney), oraz zszokowanych jego nagłą śmiercią fanów. Policja orzeka, że popełnił samobójstwo i zamyka sprawę. Jednak nieutulona w żalu matka, Helen Bessolo (Lois Smith), nie chce pozwolić, by zagadkowe okoliczności tej tragedii pozostały niewyjaśnione. Wynajmuje prywatnego detektywa, Louisa Simo (Adrien Brody), który znajduje ślad - być może klucz do zagadki. Reeves miał bowiem romans z Toni Mannix (Diane Lane), żoną jednego z szefów studia MGM, Eddiego Mannixa (Bob Hoskins). Jednak w Hollywood prawda i sprawiedliwość to rzadkość. Simo prowadzi niebezpieczne i pełne niespodzianek śledztwo, które zaczyna mieć ogromny wpływ na jego życie prywatne. Dowiaduje się także sporo o samym Reevesie. [opis dystrybutora]  ... zamyka sprawę. Jednak nieutulona w żalu matka, Helen Bessolo (Lois Smith), nie chce pozwolić, by zagadkowe okoliczności tej tragedii pozostały niewyjaśnione. Wynajmuje prywatnego detektywa, Louisa Simo (Adrien Brody), który znajduje ślad - być może klucz do zagadki. Reeves miał bowiem romans z Toni Mannix (Diane Lane), żoną jednego z szefów studia MGM, Eddiego Mannixa (Bob Hoskins). Jednak w Hollywood prawda i sprawiedliwość to rzadkość. Simo prowadzi niebezpieczne i pełne niespodzianek śledztwo, które zaczyna mieć ogromny wpływ na jego życie prywatne. Dowiaduje się także sporo o samym Reevesie. [opis dystrybutora]
+    

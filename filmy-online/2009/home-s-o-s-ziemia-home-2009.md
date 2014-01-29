@@ -1,0 +1,9 @@
+
+        Home - S.O.S. Ziemia! / Home 2009 
+        =============
+        
+        [![Home - S.O.S. Ziemia! / Home 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/home-s-o-s-ziemia-home-2009)
+        
+        
+ Po raz pierwszy na świecie, jednego dnia, w Dniu Ziemi, 5 czerwca 2009 roku - równocześnie w 85 krajach, w kinach, w telewizji, na DVD i w Internecie będzie miała miejsce premiera największego na świecie multimedialnego wydarzenia pro-ekologicznego. Premiera filmu 'S.O.S. Ziemia' ('Home”). Wspólny projekt Luca Bessona i fotografa Yanna Arthusa-Bertranda to zapierające dech w piersiach, piękne i poruszające obrazy. To niesamowita podróż w głąb australijskiej rafy koralowej, wędrówka przez niebezpieczne amazońskie lasy, bezkresną pustynię Gobi i industrialne dzielnice Szanghaju... Podróż przez wszystkie kontynenty, której celem jest zwrócenie uwagi świata na problemy i zagrożenia środowiska naturalnego: globalne ocieplenie, umierające lasy, wymieranie gatunków zwierząt i roślin, na kończące się zasoby naturalne. Efekt przewracającego się domina klęsk ekologicznych może zapoczątkować katastrofalne konsekwencje. Film 'S.O.S. Ziemia' ('Home”) to ostrzeżenie przed zagładą, to wołanie naszej Planety o ratunek...  ... wędrówka przez niebezpieczne amazońskie lasy, bezkresną pustynię Gobi i industrialne dzielnice Szanghaju... Podróż przez wszystkie kontynenty, której celem jest zwrócenie uwagi świata na problemy i zagrożenia środowiska naturalnego: globalne ocieplenie, umierające lasy, wymieranie gatunków zwierząt i roślin, na kończące się zasoby naturalne. Efekt przewracającego się domina klęsk ekologicznych może zapoczątkować katastrofalne konsekwencje. Film 'S.O.S. Ziemia' ('Home”) to ostrzeżenie przed zagładą, to wołanie naszej Planety o ratunek...
+    

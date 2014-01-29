@@ -1,0 +1,9 @@
+
+        Kochanice króla / The Other Boleyn Girl 2008 
+        =============
+        
+        [![Kochanice króla / The Other Boleyn Girl 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kochanice-krola-the-other-boleyn-girl-2008)
+        
+        
+ Natalie Portman kontra Scarlett Johansson, czyli dwie piękne kobiety i król. Oparta na bestsellerowej powieści Philippy Gregory, pasjonująca i pełna namiętności opowieść o miłości, intrydze i zdradzie, rozgrywająca się na tle burzliwych wydarzeń w historii Anglii. Kiedy tajemnicą poliszynela staje się rosnąca niechęć króla Henryka VIII do swej żony Katarzyny Aragońskiej, która nie potrafi dać mu męskiego potomka, seniorzy rodu Boleyn obmyślają chytry plan jak podwyższyć status i wpływy rodziny na dworze. Dwie siostry Boleyn - Anna (Natalie Portman) i Maria (Scarlett Johansson) mają zabiegać o względy króla (Eric Bana), tak by wybrał jedną z nich na swą kochankę. Jego serce zdobywa ostatecznie Maria, która zostaje królewską nałożnicą i rodzi mu syna. Jednak niczym nie zrażona przebiegła i chorobliwie ambitna Anna nie ustaje w walce o przychylność władcy. Bez skrupułów i metodycznie realizuje swój plan: zostać królową Anglii.  ... status i wpływy rodziny na dworze. Dwie siostry Boleyn - Anna (Natalie Portman) i Maria (Scarlett Johansson) mają zabiegać o względy króla (Eric Bana), tak by wybrał jedną z nich na swą kochankę. Jego serce zdobywa ostatecznie Maria, która zostaje królewską nałożnicą i rodzi mu syna. Jednak niczym nie zrażona przebiegła i chorobliwie ambitna Anna nie ustaje w walce o przychylność władcy. Bez skrupułów i metodycznie realizuje swój plan: zostać królową Anglii.
+    

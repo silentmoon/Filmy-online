@@ -1,0 +1,9 @@
+
+        Na tropie Marsupilami / Sur la piste du Marsupilami 2012 
+        =============
+        
+        [![Na tropie Marsupilami / Sur la piste du Marsupilami 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/na-tropie-marsupilami-sur-la-piste-du-marsupilami-2012)
+        
+        
+ Uwierzycie, że istnieje coś, co nie istnieje? Twórcy przeboju kinowego 'Asterix i Obelix: Misja Kleopatra' powracają z nową komedią – 'Na tropie Marsupilami'. Film stał się absolutnym hitem we Francji, bawiąc niemal 6 milionów widzów. Amerykanie mają Jima Carreya, Brytyjczycy - Rowana Atkinsona, a Francuzi - Alaina Chabata. Tym razem Alain Chabat bawi jako dziennikarz Dan i jest 'tak zabawny, że uważajcie na gumki od majtek' – zapowiadają krytycy. Przygoda zaczyna się, gdy nieustraszony reporter dostaje zlecenie przeprowadzenia wywiadu z wodzem dzikiego plemienia Payów. Nie byłoby w tym nic niezwykłego, gdyby nie fakt, że do tej pory, sprytny dziennikarz kręcił swoje mrożące krew w żyłach relacje, w przydomowym ogródku głuchej ciotki. Dan wyrusza do egzotycznej Polombii. Mając za przewodnika lokalnego cwaniaczka Pablito (Jamel Debbouze), niespodziewanie odkryje istnienie mitycznego stworzenia – Marsupilami. Przygotujcie się na 'świetną zabawę' i 'radosne szaleństwo'.   ... nieustraszony reporter dostaje zlecenie przeprowadzenia wywiadu z wodzem dzikiego plemienia Payów. Nie byłoby w tym nic niezwykłego, gdyby nie fakt, że do tej pory, sprytny dziennikarz kręcił swoje mrożące krew w żyłach relacje, w przydomowym ogródku głuchej ciotki. Dan wyrusza do egzotycznej Polombii. Mając za przewodnika lokalnego cwaniaczka Pablito (Jamel Debbouze), niespodziewanie odkryje istnienie mitycznego stworzenia – Marsupilami. Przygotujcie się na 'świetną zabawę' i 'radosne szaleństwo'. 
+    

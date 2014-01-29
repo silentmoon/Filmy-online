@@ -1,0 +1,9 @@
+
+        Intacto 2001 
+        =============
+        
+        [![Intacto 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/intacto-2001)
+        
+        
+ Niektórzy ludzie rodzą się z niezwykłym darem - mają szczęście w wszystkim, wszystko im się układa. Inni przez całe życie szukają i próbują je zdobyć, mieć i nie zważają przy tym na koszty. To film o czwórce ludzi którzy odkrywają że szczęście to coś bez czego nie można sobie pozwolić żyć, jeżeli chce się osiągać największe wygrane i zdobywać największe fortuny. Każdy z nich wyszedł kiedyś szczęśliwie z nieszczęścia. Tomas przeżył katastrofę samolotu, Federico - silne trzęsienie ziemi, Sam - zawieruchę II Wojny Światowej, a Sara wyszła cało z wypadku samochodowego. Sam ma kasyno w którym okrada grających z 'szczęśliwego trafu'. Od dziesięcioleci napawa się tym skradzionym szczęściem i jest niepodzielnym jego władcą. Ale jego asystent Federico chce zrzucić mistrza z piedestału. Odchodzi z kasyna, najmuje do pomocy Tomasa i razem z nim podejmuje najbardziej niebezpieczną grę swego życia. Tymczasem Sara - policjantka, prowadzi obsesyjne śledztwo aby zdemaskować nielegalną strukturę grających w kasynie Sama.  ... trzęsienie ziemi, Sam - zawieruchę II Wojny Światowej, a Sara wyszła cało z wypadku samochodowego. Sam ma kasyno w którym okrada grających z 'szczęśliwego trafu'. Od dziesięcioleci napawa się tym skradzionym szczęściem i jest niepodzielnym jego władcą. Ale jego asystent Federico chce zrzucić mistrza z piedestału. Odchodzi z kasyna, najmuje do pomocy Tomasa i razem z nim podejmuje najbardziej niebezpieczną grę swego życia. Tymczasem Sara - policjantka, prowadzi obsesyjne śledztwo aby zdemaskować nielegalną strukturę grających w kasynie Sama.
+    

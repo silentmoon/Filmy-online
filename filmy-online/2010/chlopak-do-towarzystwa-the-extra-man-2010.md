@@ -1,0 +1,9 @@
+
+        Chłopak do towarzystwa / The Extra Man 2010 
+        =============
+        
+        [![Chłopak do towarzystwa / The Extra Man 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chlopak-do-towarzystwa-the-extra-man-2010)
+        
+        
+ Po kompromitującym sekscesie na uniwersyteckim kampusie,  młody, ale już zrażony do gier miłosnych profesor Louis Ives (Paul Dano) wyjeżdża do Nowego Jorku, gdzie wynajmuje pokój u ekscentrycznego dramatopisarza Henry'ego Harrisona (zgodnym zdaniem krytyki  życiowa rola nagrodzonego Oscarem Kevina Kline’a), który nie kryje się z radykalnymi poglądami na temat kobiet. Po podjęciu pracy w poczytnym magazynie, Louis poznaje piękną redaktor (Katie Holmes), której wdzięk zawróci  mu w głowie, ale też odbierze resztki wiary w talenty podrywacza. Gdy szalony współlokator zwierzy mu się ze swojego intratnego zajęcia jako faceta do towarzystwa bogatych wdów, otworzy oczy nieśmiałemu młodzieńcowi na nieznane mu dotąd oblicza flirtu...  ... mu w głowie, ale też odbierze resztki wiary w talenty podrywacza. Gdy szalony współlokator zwierzy mu się ze swojego intratnego zajęcia jako faceta do towarzystwa bogatych wdów, otworzy oczy nieśmiałemu młodzieńcowi na nieznane mu dotąd oblicza flirtu...
+    

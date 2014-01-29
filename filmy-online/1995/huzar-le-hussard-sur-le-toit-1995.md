@@ -1,0 +1,9 @@
+
+        Huzar / Le hussard sur le toit 1995 
+        =============
+        
+        [![Huzar / Le hussard sur le toit 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/huzar-le-hussard-sur-le-toit-1995)
+        
+        
+ Latem 1832 roku pułkownik huzarów, młody Piemontczyk Angelo Pardi (Olivier Martinez) ucieka przed austriackimi szpiegami do południowej Francji. Schronienia szuka w Prowansji, gdzie właśnie wybuchła epidemia cholery. Masowe zgony wywołują panikę, a każdy obcy podejrzewany jest o szerzenie zarazy. Przybywszy do Manosque zostaje natychmiast posądzony o zatrucie miejscowej studni. Uciekając przez tłumem mieszkańców i depczącymi mu po pietach austriackimi szpiegami ukrywa się w opuszczonym, jak sądzi, domu. Okazuje się jednak, że w domu ukrywa się młoda arystokratka Pauline de Theus (Juliette Binoche), która wywiera na nim ogromne wrażenie. Niebawem oboje przedostają się na prowincję. Tam Angelo dowiaduje się, że Pauline poszukuje męża, który prawdopodobnie odbywa kwarantannę w Monosque. Młody pułkownik usiłuje odwieść ją od niebezpiecznego zamiaru powrotu do miasta i wznowienia poszukiwań, ale - zakochany w niej coraz bardziej - przystaje na jej prośbę.  ... się w opuszczonym, jak sądzi, domu. Okazuje się jednak, że w domu ukrywa się młoda arystokratka Pauline de Theus (Juliette Binoche), która wywiera na nim ogromne wrażenie. Niebawem oboje przedostają się na prowincję. Tam Angelo dowiaduje się, że Pauline poszukuje męża, który prawdopodobnie odbywa kwarantannę w Monosque. Młody pułkownik usiłuje odwieść ją od niebezpiecznego zamiaru powrotu do miasta i wznowienia poszukiwań, ale - zakochany w niej coraz bardziej - przystaje na jej prośbę.
+    

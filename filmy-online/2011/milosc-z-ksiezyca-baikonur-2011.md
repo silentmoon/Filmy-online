@@ -1,0 +1,9 @@
+
+        Miłość z Księżyca / Baikonur 2011 
+        =============
+        
+        [![Miłość z Księżyca / Baikonur 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/milosc-z-ksiezyca-baikonur-2011)
+        
+        
+ 'Cokolwiek spadnie z nieba, możesz zachować'. To niepisane prawo kazachstańskich stepów, które chciwie przestrzegane jest przez mieszkańców małej wioski. Na co dzień zbierają gruz kosmiczny pochodzący z pobliskiej stacji kosmicznej Bajkonur. Ostatnimi dwoma młodymi mieszkańcami wioski jest Iskander zwany Gagarin oraz szalona Nazira, która potajemnie kocha się w chłopaku. Ten jednak nie zwraca uwagi na jej dość niekonwencjonalne amory, ponieważ Iskander zafascynowany jest Bajkonurem, przestrzenią kosmiczną, a także piękną francuską astronautką, Julie Mahe, której podróż do gwiazd śledzi w telewizji. Kiedy Julie dosłownie 'spada z nieba' w niewielkiej kapsule kosmicznej, Iskander jest pierwszym, który ją odnajduje. Dziewczyna nie pamięta niczego. A zgodnie z prawem 'cokolwiek spadnie z nieba, należy do ciebie' Iskander przedstawia ją jako swoją przyszłą żonę. Ale nawet najbardziej romantyczne kłamstwo nie może pozostać nieodkryte na zawsze. I wkrótce Gagarin nie wie gdzie należy, a co ważniejsze do kogo.   ... Bajkonurem, przestrzenią kosmiczną, a także piękną francuską astronautką, Julie Mahe, której podróż do gwiazd śledzi w telewizji. Kiedy Julie dosłownie 'spada z nieba' w niewielkiej kapsule kosmicznej, Iskander jest pierwszym, który ją odnajduje. Dziewczyna nie pamięta niczego. A zgodnie z prawem 'cokolwiek spadnie z nieba, należy do ciebie' Iskander przedstawia ją jako swoją przyszłą żonę. Ale nawet najbardziej romantyczne kłamstwo nie może pozostać nieodkryte na zawsze. I wkrótce Gagarin nie wie gdzie należy, a co ważniejsze do kogo.
+    

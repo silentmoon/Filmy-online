@@ -1,0 +1,9 @@
+
+        Chopper 2000 
+        =============
+        
+        [![Chopper 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chopper-2000)
+        
+        
+ 'Chopper przeraża, a jednocześnie fascynuje: z jednej strony z lękiem i wstrętem oglądamy koszmarne czyny, jakich dopuszczał się, z drugiej zaś po cichu solidaryzujemy się z nim i zaczynamy darzyć go... sympatią. Zaczynamy patrzeć oczami Choppera, przyjmujemy jego logikę, zaczyna nam się wreszcie jawić jako współczesny Robin Hood, wymierzający sprawiedliwość tam, gdzie prawo zawodzi. Jego kodeks jest bardzo prosty: krew za krew, śmierć za śmierć. Trudno podziwiać Choppera za jego dokonania - to zbrodniarz, degenerat, sadysta i potwór. Czy jednak każdy z nas nie odkrywa w sobie tej - większej lub mniejszej - iskry szaleństwa, która sprawia, że my też pragniemy być silni, swoją posturą i samym tylko imieniem wzbudzać strach u wrogów, budzić respekt i trwogę? [opis dystrybutora]  ... jego dokonania - to zbrodniarz, degenerat, sadysta i potwór. Czy jednak każdy z nas nie odkrywa w sobie tej - większej lub mniejszej - iskry szaleństwa, która sprawia, że my też pragniemy być silni, swoją posturą i samym tylko imieniem wzbudzać strach u wrogów, budzić respekt i trwogę? [opis dystrybutora]
+    

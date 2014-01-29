@@ -1,0 +1,9 @@
+
+        Wieczni chłopcy / Les Gamins 2013 
+        =============
+        
+        [![Wieczni chłopcy / Les Gamins 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wieczni-chlopcy-les-gamins-2013)
+        
+        
+ Thomas (grany przez Maxa Boublila, współautora scenariusza ) marzy o komponowaniu piosenek. Plany poślubienia Loli, a tym samym konieczność zarobienia na ślub, dom, przyszłą rodzinę, powodują, że z obiecującego muzyka staje się szarym wyrobnikiem na urzędniczym etacie. Gdy z przyszłą żoną odwiedza jej rodziców: cynicznego Gilberta (wspaniały Alain Chabat) i jego żonę Suzanne jego świat zostaje wywrócony do góry nogami. Gilbert wyniszczony przez monotonię trzydziestoletniego małżeństwa postanawia uratować Thomasa od popełnienia życiowego błędu – poślubienia młodszej kopii swojej żony. Chce pokazać chłopakowi, że szczęście tkwi jak najdalej od stabilnego, rodzinnego życia a marzenia to sprawa, o którą koniecznie trzeba walczyć. Kryzys wieku średniego u Gilberta i o dwadzieścia lat młodsza frustracja Thomasa połączone razem zrywają wszelkie tamy poprawności, stosowności i mieszczańskiego obycia. Mężczyźni rzucają się w wir szalonych imprez, nocnego życia, koncertów kończących się nad ranem... albo w Maroku.   ... małżeństwa postanawia uratować Thomasa od popełnienia życiowego błędu – poślubienia młodszej kopii swojej żony. Chce pokazać chłopakowi, że szczęście tkwi jak najdalej od stabilnego, rodzinnego życia a marzenia to sprawa, o którą koniecznie trzeba walczyć. Kryzys wieku średniego u Gilberta i o dwadzieścia lat młodsza frustracja Thomasa połączone razem zrywają wszelkie tamy poprawności, stosowności i mieszczańskiego obycia. Mężczyźni rzucają się w wir szalonych imprez, nocnego życia, koncertów kończących się nad ranem... albo w Maroku.
+    

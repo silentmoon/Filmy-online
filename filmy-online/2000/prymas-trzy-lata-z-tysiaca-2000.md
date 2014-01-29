@@ -1,0 +1,9 @@
+
+        Prymas - Trzy lata z tysiąca 2000 
+        =============
+        
+        [![Prymas - Trzy lata z tysiąca 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prymas-trzy-lata-z-tysiaca-2000)
+        
+        
+ 'Prymasa' rozpoczyna scena uprowadzenia Kardynała Wyszyńskiego z Pałacu Prymasowskiego. Równocześnie z więzienia w Rawiczu zostaje zabrany więziony tam za nauczanie religii ksiądz Stanisław, a z więzienia w Grudziądzu współpracująca ze strażnikami, zastraszona zakonnica Leonia... Oboje będą stanowić swoistą 'świtę' Prymasa w miejscu odosobnienia w Stoczku Warmińskim. Podsłuchiwany i szpiegowany Kardynał, manipulowany przez Komendanta, ma się załamać. Plan władz PRL zawiera także drastyczniejsze środki... Prymas próbuje zrozumieć dramatyczną sytuację, w której się znalazł on, Kościół Katolicki i cała Polska. Nie ocenia, nie szuka winnych... Ksiądz Stanisław, wbrew woli Prymasa, nie tylko podejrzewa Leonię o współpracę z Komendantem, ale znajduje na to dowody. Udaje mu się przekazać na zewnątrz informację o miejscu uwięzienia Wyszyńskiego. Liczy, że dzięki temu plany oprawców ulegną zmianie. Czy diabelski 'wariant trzeci' wprowadzony przez Bieruta uda się zrealizować?   ... także drastyczniejsze środki... Prymas próbuje zrozumieć dramatyczną sytuację, w której się znalazł on, Kościół Katolicki i cała Polska. Nie ocenia, nie szuka winnych... Ksiądz Stanisław, wbrew woli Prymasa, nie tylko podejrzewa Leonię o współpracę z Komendantem, ale znajduje na to dowody. Udaje mu się przekazać na zewnątrz informację o miejscu uwięzienia Wyszyńskiego. Liczy, że dzięki temu plany oprawców ulegną zmianie. Czy diabelski 'wariant trzeci' wprowadzony przez Bieruta uda się zrealizować?
+    

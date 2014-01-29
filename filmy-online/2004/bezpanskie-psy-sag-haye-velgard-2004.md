@@ -1,0 +1,9 @@
+
+        Bezpańskie psy / Sag-haye velgard 2004 
+        =============
+        
+        [![Bezpańskie psy / Sag-haye velgard 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bezpanskie-psy-sag-haye-velgard-2004)
+        
+        
+ Dwójka dzieci - brat i siostra - ratują psa od niechybnej śmierci na ulicach Kabulu. Wieczorem dzieci udają się do więzienia, w którym karę odbywa ich matka. Ponieważ nie mają gdzie spać, uzyskują pozwolenie na spędzenie nocy w jej celi. Rankiem sytuacja jest jednak jasna - więzienie nie jest miejscem dla bezdomnych. Pragnąc być jak najbliżej matki, maluchy nie cofną się przed niczym, nawet wykroczeniami, aby wrócić do jej celi. Na próżno. Dobrej rady udziela im wreszcie ukrywający się przed policją rzezimieszek - złodziejskiego fachu najprościej nauczyć się z filmów hollywoodzkich, a z dzieł europejskich dowiedzą się, jak najszybciej dać się złapać...  ... ukrywający się przed policją rzezimieszek - złodziejskiego fachu najprościej nauczyć się z filmów hollywoodzkich, a z dzieł europejskich dowiedzą się, jak najszybciej dać się złapać...
+    

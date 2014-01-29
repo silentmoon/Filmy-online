@@ -1,0 +1,9 @@
+
+        Prawdziwa historia króla skandali / The Look of Love 2013 
+        =============
+        
+        [![Prawdziwa historia króla skandali / The Look of Love 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/prawdziwa-historia-krola-skandali-the-look-of-love-2013)
+        
+        
+ Prowokator, wydawca, przedsiębiorca, mąż, kochanek, ojciec. W 1958 roku złamał kilka reguł, a w 1992 został najbogatszym Brytyjczykiem. Z miłości stworzył biznes.   Paul Raymond, nazywany 'królem Soho', przez lata skutecznie obrażał brytyjską obyczajowość.  Po otwarciu pierwszego „klubu dżentelmeńskiego” stopniowo tworzył imperium klubów i czasopism erotycznych, które przyniosło mu ogromne bogactwo .   Hedonistyczny styl życia Paula Raymonda posłużył reżyserowi (Michael Winterbottom) do stworzenia olśniewającej historii człowieka, którego życie było naznaczone zarówno blichtrem i bogactwem, jak i skandalem oraz wielką tragedią.   ... Winterbottom) do stworzenia olśniewającej historii człowieka, którego życie było naznaczone zarówno blichtrem i bogactwem, jak i skandalem oraz wielką tragedią. 
+    

@@ -1,0 +1,9 @@
+
+        Płynące wieżowce 2013 
+        =============
+        
+        [![Płynące wieżowce 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/plynace-wiezowce-2013)
+        
+        
+ 'Płynące wieżowce' to współczesna, uniwersalna historia o dojrzewaniu, poszukiwaniu własnej tożsamości oraz akceptacji siebie i innych. Film o bardzo mocnym ładunku emocjonalnym. Porusza temat, który przełamuje tabu i budzi kontrowersje. Główny bohater - Kuba (Mateusz Banasiuk) to młody chłopak, który mieszka razem z matką (Katarzyna Herman) i swoją dziewczyną, Sylwią (Marta Nieradkiewicz). Z pozoru życie Kuby wydaje się jasne i poukładane. Mieszka z dziewczyną, którą kocha, studiuje na AWF-ie. Trenuje pływanie, jest jednym z najlepiej zapowiadających się zawodników i głównych faworytów do udziału w zbliżających się zawodach. Poza tym prowadzi normalne życie, jak jego rówieśnicy. Na jednej z imprez poznaje Michała (Bartosz Gelner). Między chłopakami rodzi się silna emocjonalna więź. Kuba nieoczekiwanie odkrywa fascynację mężczyzną. Przerażony uczuciami, które się w nim budzą, nie potrafi odnaleźć się w nowej dla siebie sytuacji. Jego, wydawałoby się, stały i silny związek z Sylwią wyraźnie komplikuje się…   ... studiuje na AWF-ie. Trenuje pływanie, jest jednym z najlepiej zapowiadających się zawodników i głównych faworytów do udziału w zbliżających się zawodach. Poza tym prowadzi normalne życie, jak jego rówieśnicy. Na jednej z imprez poznaje Michała (Bartosz Gelner). Między chłopakami rodzi się silna emocjonalna więź. Kuba nieoczekiwanie odkrywa fascynację mężczyzną. Przerażony uczuciami, które się w nim budzą, nie potrafi odnaleźć się w nowej dla siebie sytuacji. Jego, wydawałoby się, stały i silny związek z Sylwią wyraźnie komplikuje się…
+    

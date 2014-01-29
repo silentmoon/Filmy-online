@@ -1,0 +1,9 @@
+
+        Jiro śni o sushi / Jiro Dreams of Sushi 2011 
+        =============
+        
+        [![Jiro śni o sushi / Jiro Dreams of Sushi 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jiro-sni-o-sushi-jiro-dreams-of-sushi-2011)
+        
+        
+ Dokument Davida Gelba z muzyką Philipa Glassa o 85-letnim Jiro Ono, jednym z najsłynniejszych mistrzów sushi na świecie. Jiro Ono całkowicie poświęcił swoje życie doskonaleniu swojej profesji. Przygotowywaniem sushi zajmuje się niemal od dziecka. Od ponad 40 lat prowadzi słynny tokijski lokal Sukiyabashi. Pomimo sędziwego wieku czuwa nad wszystkim, co dzieje się w restauracji. Pracuje od świtu aż do późnej nocy, dba o niepowtarzalną atmosferę, jaka panuje w Sukiyabashi. 'Jiro śni o sushi' to opowieść o pasji, ambicji i dążeniu do doskonałości, a także o skomplikowanych stosunkach między ojcem perfekcjonistą i jego synami. Najstarszy syn Jiro Ono jest spadkobiercą imperium sushi, ale ojciec nie kwapi się do przejścia na emeryturę lub zrzeczenia się któregokolwiek ze swoich obowiązków. Żyjąc w cieniu sławnego ojca i będąc nieustannie krytykowanym, syn nie jest w stanie w pełni zrealizować drzemiącego w nim potencjału. Jednak widzowie filmu 'Jiro sni o sushi' mogą się o nim przekonać w finale tego pasjonującego dokumentu.  ... 'Jiro śni o sushi' to opowieść o pasji, ambicji i dążeniu do doskonałości, a także o skomplikowanych stosunkach między ojcem perfekcjonistą i jego synami. Najstarszy syn Jiro Ono jest spadkobiercą imperium sushi, ale ojciec nie kwapi się do przejścia na emeryturę lub zrzeczenia się któregokolwiek ze swoich obowiązków. Żyjąc w cieniu sławnego ojca i będąc nieustannie krytykowanym, syn nie jest w stanie w pełni zrealizować drzemiącego w nim potencjału. Jednak widzowie filmu 'Jiro sni o sushi' mogą się o nim przekonać w finale tego pasjonującego dokumentu.
+    

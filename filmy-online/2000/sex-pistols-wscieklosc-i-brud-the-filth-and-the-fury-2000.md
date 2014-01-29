@@ -1,0 +1,9 @@
+
+        Sex Pistols: Wściekłość i brud / The Filth and the Fury 2000 
+        =============
+        
+        [![Sex Pistols: Wściekłość i brud / The Filth and the Fury 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sex-pistols-wscieklosc-i-brud-the-filth-and-the-fury-2000)
+        
+        
+ Zespół Sex Pistols istniał tylko 26 miesięcy i nagrał tylko jeden album, mimo to zdołał zmienić charakter muzyki na zawsze.'Sex Pistols: Wściekłość i brud', film Juliena Temple, jest niepokornym, intymnym i szokującym portretem zespołu, który został okrzyknięty najbardziej wpływowym i najbardziej rozpoznawalnym zespołem wszech czasów.  Stworzony, aby przeciwstawić się politycznej, ekonomicznej i kulturowej sytuacji w Londynie lat siedemdziesiątych, film zdołał uchwycić moment zmiany w społecznej historii Anglii. Złożony głównie z własnych archiwalnych, nigdy wcześniej nie pokazywanych nagrań zespołu (z ponad 20 godzin materiału filmowego), włączając koncerty, próby, sesje nagraniowe, wydarzenia związane z promocją, naturalne, zwykłe momenty. To wszystko zostało poprzeplatane nowo sfilmowanymi wywiadami z czterema członkami zespołu.  ... zmiany w społecznej historii Anglii. Złożony głównie z własnych archiwalnych, nigdy wcześniej nie pokazywanych nagrań zespołu (z ponad 20 godzin materiału filmowego), włączając koncerty, próby, sesje nagraniowe, wydarzenia związane z promocją, naturalne, zwykłe momenty. To wszystko zostało poprzeplatane nowo sfilmowanymi wywiadami z czterema członkami zespołu.
+    

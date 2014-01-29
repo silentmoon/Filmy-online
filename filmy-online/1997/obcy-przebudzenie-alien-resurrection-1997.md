@@ -1,0 +1,9 @@
+
+        Obcy: Przebudzenie / Alien: Resurrection 1997 
+        =============
+        
+        [![Obcy: Przebudzenie / Alien: Resurrection 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/obcy-przebudzenie-alien-resurrection-1997)
+        
+        
+ Jest to już czwarty film z tej serii. Akcja toczy się na stacji kosmicznej Aurgia w dwieście lat po wydarzeniach przedstawionych w 'Obcym 3'. Grupa naukowców dokonuje eksperymentu i klonuje Ellen Ripley (Sigourney Weaver) wraz z przerażającym płodem w jej łonie.Tymczasem na stację przylatuje statek z zahibernowanymi na pokładzie ludźmi, których naukowcy z Aurgi wykorzystują jako nosicieli zarodków 'obcych'. Nikt nie zdaje sobie sprawy, co dzieje się w laboratoriach. W wyniku zamieszania eksperyment wymyka się spod kontroli, a 'obcy' mnożący się z zastraszającą szybkością dziesiątkują załogę. Pozostali przy życiu mają bardzo mało czasu, by zapobiec katastrofie, zwłaszcza, że Aurgia kierowana jest autopilotem w stronę Ziemi. Jedyną osobą, która może znaleźć wyjście z sytuacji jest Ripley (Sigourney Weaver). Nikt tak jak ona nie rozumie 'obcych', zwłaszcza, że w wyniku klonowania nabyła ich cechy.   ... zamieszania eksperyment wymyka się spod kontroli, a 'obcy' mnożący się z zastraszającą szybkością dziesiątkują załogę. Pozostali przy życiu mają bardzo mało czasu, by zapobiec katastrofie, zwłaszcza, że Aurgia kierowana jest autopilotem w stronę Ziemi. Jedyną osobą, która może znaleźć wyjście z sytuacji jest Ripley (Sigourney Weaver). Nikt tak jak ona nie rozumie 'obcych', zwłaszcza, że w wyniku klonowania nabyła ich cechy.
+    

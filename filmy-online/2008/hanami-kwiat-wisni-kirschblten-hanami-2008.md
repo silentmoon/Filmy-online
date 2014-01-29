@@ -1,0 +1,9 @@
+
+        Hanami - Kwiat wiśni / Kirschblüten - Hanami 2008 
+        =============
+        
+        [![Hanami - Kwiat wiśni / Kirschblüten - Hanami 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hanami-kwiat-wisni-kirschblten-hanami-2008)
+        
+        
+ Rudi i Trudi są niczym stare drzewa. Czas rozkwitu ich wieloletniego związku przypadł na okres wychowywania trójki dzieci. Rytm dni w ich małżeństwie odmierzają małe rytuały. Spokój i bezpieczeństwo tego zapiętego na ostatni guzik życia mąci wiadomość o chorobie męża. Trudi  postanawia nieść ciężar sama i nie informuje Rudiego o diagnozie. Odwiedziny u ich dzieci wywołuje obustronną frustrację -dzieci czują się zażenowane nagłą wizytą. Naj zrozumienia i sympatii okazuje im obca osoba - Franzi - partnerka życiowa córki. Dzięki niej spełnia się dosyć nieoczekiwanie marzenie Trudi. Idą razem na spektakl tańca Butoh, którym Trudi fascynuje się od lat. W czasie wizyty w nadbałtyckim hotelu nieoczekiwanie dla Rudiego jego życie zmienia się diametralnie. Rudi wyrusza w podróż do Japonii, która staje się wędrówką w głąb siebie, jego związku z żoną, istoty życia oraz bezinteresownej miłości. 'Hanami - kwiat wiśni' to film pełen uczucia i ujmujących obrazów, które uzupełniają niezwykle ważne przesłanie filmu.  ... im obca osoba - Franzi - partnerka życiowa córki. Dzięki niej spełnia się dosyć nieoczekiwanie marzenie Trudi. Idą razem na spektakl tańca Butoh, którym Trudi fascynuje się od lat. W czasie wizyty w nadbałtyckim hotelu nieoczekiwanie dla Rudiego jego życie zmienia się diametralnie. Rudi wyrusza w podróż do Japonii, która staje się wędrówką w głąb siebie, jego związku z żoną, istoty życia oraz bezinteresownej miłości. 'Hanami - kwiat wiśni' to film pełen uczucia i ujmujących obrazów, które uzupełniają niezwykle ważne przesłanie filmu.
+    

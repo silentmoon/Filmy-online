@@ -1,0 +1,9 @@
+
+        Bardzo dziki Zachód / Wild Wild West 1999 
+        =============
+        
+        [![Bardzo dziki Zachód / Wild Wild West 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bardzo-dziki-zachod-wild-wild-west-1999)
+        
+        
+ James West (Smith), czarujący i sprytny agent rządowy oraz towarzyszący mu Artemus Gordon (Kline), mistrz kamuflażu i specjalista od gadżetów wszelkich rodzajów, wyruszają razem w pościg za diabolicznym Dr Arlissem Loveless (Branagh). Loveless planuje zamach na życie prezydenta Stanów Zjednoczonych, do czego zamierza także wykorzystać swoją ogromną, chodzącą broń zwaną Tarantulą. Początkowo West i Gordon odnoszą się do siebie mało przychylnie, jednak z czasem zaczynają dostrzegać pozytywne skutki swojej współpracy. Piękna i tajemnicza aktoreczka Rita Escobar (Hayek) wywraca do góry nogami ich plan, kiedy postanawia pomóc im w schwytaniu Lovelessa. Dr Arliss ma w zanadrzu ukryty arsenał środków, którymi będzie starał się powstrzymać stróżów prawa. Ma do pomocy między innymi zabójczo piękne: pannę East (Bai Ling), Amazonię (Frederique Van Der Wal), Munitię (Musetta Vander) oraz pannę Lippenreider (Sofia Eng), których wyjątkowe atrybuty są śmiertelnym zagrożeniem dla Westa i Gordona.   ... dostrzegać pozytywne skutki swojej współpracy. Piękna i tajemnicza aktoreczka Rita Escobar (Hayek) wywraca do góry nogami ich plan, kiedy postanawia pomóc im w schwytaniu Lovelessa. Dr Arliss ma w zanadrzu ukryty arsenał środków, którymi będzie starał się powstrzymać stróżów prawa. Ma do pomocy między innymi zabójczo piękne: pannę East (Bai Ling), Amazonię (Frederique Van Der Wal), Munitię (Musetta Vander) oraz pannę Lippenreider (Sofia Eng), których wyjątkowe atrybuty są śmiertelnym zagrożeniem dla Westa i Gordona.
+    

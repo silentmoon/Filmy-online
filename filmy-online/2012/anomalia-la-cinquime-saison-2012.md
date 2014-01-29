@@ -1,0 +1,9 @@
+
+        Anomalia / La Cinquième Saison 2012 
+        =============
+        
+        [![Anomalia / La Cinquième Saison 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/anomalia-la-cinquime-saison-2012)
+        
+        
+ Żyjący z rolnictwa mieszkańcy małej społeczności świętują koniec zimy.  Na pobliskim wzgórzu układają stertę ze świątecznych choinek i w procesji niosą wielkie drewniane figury. Jednak stos, mający być podziękowaniem za poprzednie zbiory i ofiarą za nowe, nie zapala się. Dotychczasowa solidarność i wzajemna pomoc rolników szybko zostaje wystawiona na ciężką próbę. Spodziewana wiosna nie nadchodzi, a natura pogrąża się w stagnacji. Zamiast budzić się do życia, wszystko powoli obumiera. Koguty przestają piać, giną pszczoły w pasiekach, krowy nie dają mleka, a na drzewach nie pojawia się żaden zielony liść. Mieszkańcy barykadują się w domach i pilnują kończących się zapasów żywności. Próbują znaleźć winnego obecnej sytuacji. Niektórzy zaczynają podejrzewać, że sprawcą załamania pogody może być syn miejscowego filozofa, od zawsze żyjący na uboczu społeczności. Widmo głodowej śmierci zmusza rolników do ponownego ułożenia stosu, na którym tym razem mają zamiar złożyć ofiarę z człowieka...  ... powoli obumiera. Koguty przestają piać, giną pszczoły w pasiekach, krowy nie dają mleka, a na drzewach nie pojawia się żaden zielony liść. Mieszkańcy barykadują się w domach i pilnują kończących się zapasów żywności. Próbują znaleźć winnego obecnej sytuacji. Niektórzy zaczynają podejrzewać, że sprawcą załamania pogody może być syn miejscowego filozofa, od zawsze żyjący na uboczu społeczności. Widmo głodowej śmierci zmusza rolników do ponownego ułożenia stosu, na którym tym razem mają zamiar złożyć ofiarę z człowieka...
+    

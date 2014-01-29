@@ -1,0 +1,9 @@
+
+        Liberator 2 / Under Siege 2: Dark Territory 1995 
+        =============
+        
+        [![Liberator 2 / Under Siege 2: Dark Territory 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/liberator-2-under-siege-2-dark-territory-1995)
+        
+        
+ Kontynuacja przygód niezwykłego Casey'a Ryback'a (Steven Seagal), którego widzowie poznali jako dzielnego kucharza na najlepiej wyposażonym okręcie wojennym marynarki Stanów Zjednoczonych USS Missouri w poprzednim filmie 'Liberator'. Tym razem terroryści wspomagani przez szalonego naukowca przejmują kontrolę nad supertajnym amerykańskim satelitą. Sprawa jest tym bardziej niebezpieczna, że za pomocą owego urządzenia można wywołać choćby trzęsienie ziemi lub zmieść z powierzchni ziemi cały stan np. Kalifornię. Jak zwykle w grę wchodzą ogromne pieniądze i władza. Akcja filmu rozgrywa się w pociągu, gdzie wraz z aparaturą do sterowania satelitą zainstalowali się terroryści. Tu również ukrył się  główny bohater, doskonały tajny agent Ryback. Poza osobistymi porachunkami z terrorystami, którzy skrzywdzili jego bratanicę, Casey przede wszystkim nie może dopuścić do uruchomienia urządzenia przez niepowołanych ludzi.   ... powierzchni ziemi cały stan np. Kalifornię. Jak zwykle w grę wchodzą ogromne pieniądze i władza. Akcja filmu rozgrywa się w pociągu, gdzie wraz z aparaturą do sterowania satelitą zainstalowali się terroryści. Tu również ukrył się  główny bohater, doskonały tajny agent Ryback. Poza osobistymi porachunkami z terrorystami, którzy skrzywdzili jego bratanicę, Casey przede wszystkim nie może dopuścić do uruchomienia urządzenia przez niepowołanych ludzi.
+    

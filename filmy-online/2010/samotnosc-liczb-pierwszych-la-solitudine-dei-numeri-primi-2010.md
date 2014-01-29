@@ -1,0 +1,9 @@
+
+        Samotność liczb pierwszych / La Solitudine dei numeri primi 2010 
+        =============
+        
+        [![Samotność liczb pierwszych / La Solitudine dei numeri primi 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/samotnosc-liczb-pierwszych-la-solitudine-dei-numeri-primi-2010)
+        
+        
+ Adaptacja książki Paolo Giordano pt. 'Samotność liczb pierwszych', jej bohaterami są Alice i Mattia, których losy śledzimy na przestrzeni wielu lat. 7-letnia Alice zmuszana jest przez ojca do udziału w lekcjach jazdy na nartach. Podczas zajęć łamie nogę i utyka na nią przez resztę życia. Zawiedziony ojciec swoją dezaprobatą wobec córki powoduje, że ta wpada w anoreksję.  Mattia, matematyczny geniusz, ma siostrę-bliźniaczkę upośledzoną umysłowo. Pewnego dnia, pozostawia Micheli samą w parku, przyczyniając się do jej zaginięcia. W liceum obydwoje spotykają się i powstaje pomiędzy nimi specyficzna więź, więź osób samotnych, skrzywdzonych emocjonalnie, zamkniętych w sobie. Poprzez lata, wkraczając w dorosłość, rozpoczynając karierę, zakładając rodziny, bohaterowie na przemian zbliżają się do siebie i oddalają. Są jak tytułowe liczby pierwsze (np. 11 i 13) oddzielone tylko cyfrą parzystą, która nie pozwala im złączyć się ze sobą.  ... Micheli samą w parku, przyczyniając się do jej zaginięcia. W liceum obydwoje spotykają się i powstaje pomiędzy nimi specyficzna więź, więź osób samotnych, skrzywdzonych emocjonalnie, zamkniętych w sobie. Poprzez lata, wkraczając w dorosłość, rozpoczynając karierę, zakładając rodziny, bohaterowie na przemian zbliżają się do siebie i oddalają. Są jak tytułowe liczby pierwsze (np. 11 i 13) oddzielone tylko cyfrą parzystą, która nie pozwala im złączyć się ze sobą.
+    

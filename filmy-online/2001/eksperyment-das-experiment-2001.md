@@ -1,0 +1,9 @@
+
+        Eksperyment / Das Experiment 2001 
+        =============
+        
+        [![Eksperyment / Das Experiment 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/eksperyment-das-experiment-2001)
+        
+        
+ Film jest thrillerem opartym na niechlubnym eksperymencie nazwanym 'Stanford Prison Experiment'. Przeprowadzany był on w 1971 roku, w Palo Alto (Kalifornia, USA). Naukowcy wyodrębniają w laboratorium grupę 20 ludzi, których poddają badaniom. 12 z nich ma odgrywać role więźniów, 8 strażników. Więźniowie przebywają w odosobnieniu, a obowiązujące ich zasady są na pierwszy rzut oka dosyć łagodne. Strażnicy tymczasem mają pełnić swoją funkcję zgodnie z rzeczywistością, z jednym tylko zastrzeżeniem: nie mogą używać przemocy. Każdy z uczestników może w każdej chwili zrezygnować. Nikt jednak tego robi. Początkowo wydaje się, że wszystko jest w porządku. Z czasem pomiędzy grupami zaczyna się pojawiać napięcie. Jeden z więźniów zaczyna nadużywać cierpliwości strażników. Dochodzi w końcu do rękoczynów. Rozwścieczeni strażnicy próbują zdobyć autorytet coraz bardziej drastycznymi metodami. W końcu torturują więźniów i zaczynają polowanie na naukowców.   ... tylko zastrzeżeniem: nie mogą używać przemocy. Każdy z uczestników może w każdej chwili zrezygnować. Nikt jednak tego robi. Początkowo wydaje się, że wszystko jest w porządku. Z czasem pomiędzy grupami zaczyna się pojawiać napięcie. Jeden z więźniów zaczyna nadużywać cierpliwości strażników. Dochodzi w końcu do rękoczynów. Rozwścieczeni strażnicy próbują zdobyć autorytet coraz bardziej drastycznymi metodami. W końcu torturują więźniów i zaczynają polowanie na naukowców.
+    

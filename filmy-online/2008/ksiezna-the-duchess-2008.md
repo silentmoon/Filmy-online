@@ -1,0 +1,9 @@
+
+        Księżna / The Duchess 2008 
+        =============
+        
+        [![Księżna / The Duchess 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ksiezna-the-duchess-2008)
+        
+        
+ Historia Georgiany Cavendish, z domu Spencer, z którego wywodziła się także 'królowa ludzkich serc' - księżna Diana. Anglia, rok 1774, szesnastoletnia dama dworu Georgiana (Keira Knightley) wyróżnia się spośród młodych arystokratek urodą i wdziękiem. Wzbudza zachwyt mężczyzn, w szczególności młodego Charlesa Greya, który za wszelką cenę stara się zwrócić na siebie jej uwagę. Georgiana jest także bacznie obserwowana przez samego księcia. Jego doradca Burleigh wraz z matką dziewczyny Lady Spencer dochodzą do porozumienia - Georgiana zostanie żoną księcia. Podekscytowana perspektywą małżeństwa i osiągnięcia wysokiego statusu społecznego, Georgiana odrzuca zakochanego w niej Charlesa Greya. Gdy małżeństwo zostaje zawarte, Książę powoli traci zainteresowanie swoją młodziutką żoną, wdając się w romanse z innymi kobietami. W dodatku pierwszym dzieckiem książęcej pary nie będzie wymarzony przez księcia syn. Młoda księżna zagubiona w wielkim świecie będzie musiała wybierać między oschłym i niewiernym małżonkiem, a prawdziwą miłością.  ... dziewczyny Lady Spencer dochodzą do porozumienia - Georgiana zostanie żoną księcia. Podekscytowana perspektywą małżeństwa i osiągnięcia wysokiego statusu społecznego, Georgiana odrzuca zakochanego w niej Charlesa Greya. Gdy małżeństwo zostaje zawarte, Książę powoli traci zainteresowanie swoją młodziutką żoną, wdając się w romanse z innymi kobietami. W dodatku pierwszym dzieckiem książęcej pary nie będzie wymarzony przez księcia syn. Młoda księżna zagubiona w wielkim świecie będzie musiała wybierać między oschłym i niewiernym małżonkiem, a prawdziwą miłością.
+    

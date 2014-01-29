@@ -1,0 +1,9 @@
+
+        Inwazja barbarzyńców / Les invasions barbares 2003 
+        =============
+        
+        [![Inwazja barbarzyńców / Les invasions barbares 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/inwazja-barbarzyncow-les-invasions-barbares-2003)
+        
+        
+ 'Upadek Cesarstwa Amerykańskiego' scenarzysty i reżysera Denysa Arcanda z roku 1986 przedstawił nam grupę 30 - letnich przyjaciół, niezwykle elokwentnych intelektualistów, których liberalne idee zaczęły tracić na znaczeniu, kiedy znudzeni zaczęli szukać ucieczki w nienasyconym seksie. Siedemnaście lat później 'Inwazja barbarzyńców' łączy ponownie erudytów z arcydzieła Arcanda w filmie, który jest skazany na równy poprzednikowi sukces. Spotykamy ponownie błyskotliwego Remy'ego (Remy Girard), w trudnych dla niego chwilach. Jego eks-żona Louise (Dorothee Berryman) wzywa z Londynu ich syna Sebastiena (Stephane Rousseau), wziętego finansistę. Ojciec i syn ledwo się tolerują, więc Sebastien niechętnie przystaje na prośbę matki, ale od momentu swojego przyjadu porusza dla ojca niebo i ziemię. Odświeża stare znajomości i kontakty. Zwołuje wesołą bandę ludzi, których w przeszłości spotkał na swej drodze Remy: krewnych, przyjaciół, byłe kochanki.   ... Remy'ego (Remy Girard), w trudnych dla niego chwilach. Jego eks-żona Louise (Dorothee Berryman) wzywa z Londynu ich syna Sebastiena (Stephane Rousseau), wziętego finansistę. Ojciec i syn ledwo się tolerują, więc Sebastien niechętnie przystaje na prośbę matki, ale od momentu swojego przyjadu porusza dla ojca niebo i ziemię. Odświeża stare znajomości i kontakty. Zwołuje wesołą bandę ludzi, których w przeszłości spotkał na swej drodze Remy: krewnych, przyjaciół, byłe kochanki.
+    

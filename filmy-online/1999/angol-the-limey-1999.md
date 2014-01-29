@@ -1,0 +1,9 @@
+
+        Angol / The Limey 1999 
+        =============
+        
+        [![Angol / The Limey 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/angol-the-limey-1999)
+        
+        
+ Były przestępca przyjeżdża do Ameryki by pomścić śmierć swojej córki. Wyjeżdżając z Londynu, pierwszy raz po prawie dziesięciu latach za kratkami, nie jest w stanie zrozumieć ani miejsca ani czasu. Mimo to, jedzie do Los Angeles, aby dokładnie wyjaśnić co spotkało jego ukochaną Jenny, która zmarła w niewyjaśnionych okolicznościach. Na miejscu wdaje się w konflikt z Valentinem i armią brutalnych kryminalistów mając nadzieję na znalezienie wskazówek i odkrycie co się naprawdę zdarzyło. Pobity prawie na śmierć, wyrzucony z budynku, ścigany przez prześladowców na niebezpiecznej górskiej drodze, po dojściu do siebie Anglik postanawia się zemścić. Zanim zakończy swoją podróż, całe Los Angeles będzie wiedziało, że Angol jest w mieście.   ... zdarzyło. Pobity prawie na śmierć, wyrzucony z budynku, ścigany przez prześladowców na niebezpiecznej górskiej drodze, po dojściu do siebie Anglik postanawia się zemścić. Zanim zakończy swoją podróż, całe Los Angeles będzie wiedziało, że Angol jest w mieście.
+    

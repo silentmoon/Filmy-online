@@ -1,0 +1,9 @@
+
+        Kallafiorr 1999 
+        =============
+        
+        [![Kallafiorr 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kallafiorr-1999)
+        
+        
+ 'Post - tarantinowska dogma'. Czarna komedia z elementami sensacji i dramatu nakręcona w estetyce lat 70 - tych. Fabuła składa się z kilku odrębnych nowel, powiązanych na zasadzie kostek domina. Czas traktowany jest dość swobodnie, choć cała akcja rozgrywa się w ciągu kilkunastu godzin. Bohaterami są ludzie niezwykli w swojej zwyczajności, którzy przeżywają niezwykłą historię. Ludzie, którzy nie mają czasu ani ochoty, mijają się na ulicy i nie oglądają się za sobą. Jest to pierwszy polski prawdziwie niezależny obraz. Niezależny finansowo, bo zrobiony za własne pieniądze oraz niezależny artystycznie. Jacek Borcuch zaczął pisać jego scenariusz rozjuszony nieporadnością polskiego kina, traktuje Kallafiorra jako manifestację miłości do kina, miłości do robienia filmów. Tytuł został zaczerpnięty z jednej z tworzących go opowieści: Mogłem wysłać swoich bohaterów na frytki albo pizzę, ale zdecydowałem, że zjedzą kalafiora, po którym znajdą się w odmiennym stanie świadomości, jeśli chcesz, żeby Bóg cię zobaczył, zjedz kalafiora. (Jacek Borcuch XL).   ... pierwszy polski prawdziwie niezależny obraz. Niezależny finansowo, bo zrobiony za własne pieniądze oraz niezależny artystycznie. Jacek Borcuch zaczął pisać jego scenariusz rozjuszony nieporadnością polskiego kina, traktuje Kallafiorra jako manifestację miłości do kina, miłości do robienia filmów. Tytuł został zaczerpnięty z jednej z tworzących go opowieści: Mogłem wysłać swoich bohaterów na frytki albo pizzę, ale zdecydowałem, że zjedzą kalafiora, po którym znajdą się w odmiennym stanie świadomości, jeśli chcesz, żeby Bóg cię zobaczył, zjedz kalafiora. (Jacek Borcuch XL).
+    

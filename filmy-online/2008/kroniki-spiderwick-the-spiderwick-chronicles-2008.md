@@ -1,0 +1,9 @@
+
+        Kroniki Spiderwick / The Spiderwick Chronicles 2008 
+        =============
+        
+        [![Kroniki Spiderwick / The Spiderwick Chronicles 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kroniki-spiderwick-the-spiderwick-chronicles-2008)
+        
+        
+ Na podstawie ukochanych, cieszących się ogromną popularnością książek dla dzieci nakręcony został film Kroniki Spiderwick, przygodowa opowieść w konwencji fantasy, która zachwyci każdego z widzów, także dorosłych, w których ciągle drzemią dziecięce marzenia o przygodzie. Przedziwne rzeczy zaczynają się dziać w momencie przeprowadzki rodziny Grace'ów (Jareda, jego brata bliźniaka - Simona, ich siostry Mallory i mamy całej trójki) z Nowego Jorku do oddalonego od miasta, starego wiktoriańskiego domu, którego właścicielem jest spokrewniony wujek Arthur Spiderwick. Nie będąc w stanie wytłumaczyć dziejących się coraz to nowych nadprzyrodzonych zjawisk, rodzina z czasem zaczyna podejrzewać o różne sztuczki Jareda, który znany jest z wpadania w tarapaty. Kiedy chłopiec wraz z bratem i Mallory próbują rozwikłać tajemnicę i dowiedzieć się co tak naprawdę dzieje się w tajemniczym domu, odkrywają prawdę o posiadłości Spiderwicka i wszystkich jego mieszkańcach, w tym przeróżnej maści stworach.  ... starego wiktoriańskiego domu, którego właścicielem jest spokrewniony wujek Arthur Spiderwick. Nie będąc w stanie wytłumaczyć dziejących się coraz to nowych nadprzyrodzonych zjawisk, rodzina z czasem zaczyna podejrzewać o różne sztuczki Jareda, który znany jest z wpadania w tarapaty. Kiedy chłopiec wraz z bratem i Mallory próbują rozwikłać tajemnicę i dowiedzieć się co tak naprawdę dzieje się w tajemniczym domu, odkrywają prawdę o posiadłości Spiderwicka i wszystkich jego mieszkańcach, w tym przeróżnej maści stworach.
+    

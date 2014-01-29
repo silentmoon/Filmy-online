@@ -1,0 +1,9 @@
+
+        Ewa chce spać 1957 
+        =============
+        
+        [![Ewa chce spać 1957 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ewa-chce-spac-1957)
+        
+        
+ Niezwykle udany debiut reżyserski Tadeusza Chmielewskiego krytycy przyjęli bardzo serdecznie, wróżąc autorowi wspaniałą przyszłość. I nie pomylili się - Tadeusz Chmielewski zrealizował później jeszcze kilka niezwykle popularnych komedii: 'Gdzie jest generał?', 'Jak rozpętałem II wojnę światową', 'Nie lubię poniedziałku', 'Wiosna, panie sierżancie'. 'Ewa chce spać' to także pierwszy film siedemnastoletniej Barbary Kwiatkowskiej. Rolę tę otrzymała w wyniku konkursu, do którego zgłosiły się tysiące dziewcząt z całej Polski.Utrzymana w konwencji podwórkowej ballady komedia satyryczna. Perypetie szlachetnej i naiwnie prostodusznej dziewczyny bezskutecznie poszukującej noclegu w nierealnym mieście głupoty i występku. Młoda dziewczyna przyjeżdża w przeddzień rozpoczęcia roku szkolnego do miasta, lecz woźny nie wpuszcza jej do internatu. Ewa przez całą noc nie może znaleźć noclegu. Poznaje sympatycznego policjanta, Piotra, wplątana zostaje w przedziwne, na pół realne, na pół fantastyczne zdarzenia, których bohaterami są niezwykli policjanci, złodzieje, karawaniarze, prostytutki.   ... zgłosiły się tysiące dziewcząt z całej Polski.Utrzymana w konwencji podwórkowej ballady komedia satyryczna. Perypetie szlachetnej i naiwnie prostodusznej dziewczyny bezskutecznie poszukującej noclegu w nierealnym mieście głupoty i występku. Młoda dziewczyna przyjeżdża w przeddzień rozpoczęcia roku szkolnego do miasta, lecz woźny nie wpuszcza jej do internatu. Ewa przez całą noc nie może znaleźć noclegu. Poznaje sympatycznego policjanta, Piotra, wplątana zostaje w przedziwne, na pół realne, na pół fantastyczne zdarzenia, których bohaterami są niezwykli policjanci, złodzieje, karawaniarze, prostytutki.
+    

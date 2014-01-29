@@ -1,0 +1,9 @@
+
+        Lekarz drzew 2005 
+        =============
+        
+        [![Lekarz drzew 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/lekarz-drzew-2005)
+        
+        
+ Szymon znajduje na brzegu jeziora nagą kobietę i zabiera ją do swego domu na odludziu. Dziewczyna początkowo jest w szoku, potem powoli zaczyna mówić o sobie. Przez kolejne dni opowiada niesamowite, choć noszące znamiona prawdopodobieństwa historie ze swego życia, z których każda przeczy poprzedniej. Jak Szeherezada chce zainteresować słuchacza, aby pozwolił jej pozostać na kolejną noc. Nie wiadomo, która wersja jej opowieści jest prawdziwa. Wydaje się, że dziewczyna prowadzi wyrafinowaną grę. Raz sprawia wrażenie kobiety po traumatycznych przejściach, innym razem zagubionego we własnych kłamstwach dziecka. Ale nie tylko ona ma coś do ukrycia. Bohaterowie prowadzą misterną grę, w której wzajemna niechęć miesza się z fascynacją i zauroczeniem.  ... wyrafinowaną grę. Raz sprawia wrażenie kobiety po traumatycznych przejściach, innym razem zagubionego we własnych kłamstwach dziecka. Ale nie tylko ona ma coś do ukrycia. Bohaterowie prowadzą misterną grę, w której wzajemna niechęć miesza się z fascynacją i zauroczeniem.
+    

@@ -1,0 +1,9 @@
+
+        Granice bólu / Insensibles 2012 
+        =============
+        
+        [![Granice bólu / Insensibles 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/granice-bolu-insensibles-2012)
+        
+        
+ Hiszpania, czasy współczesne. David, znakomity neurochirurg, ulega wypadkowi samochodowemu, w którym ginie jego żona. On sam z licznymi obrażeniami trafia do szpitala. Badania wykazują, że ma raka krwi i tylko przeszczep szpiku kostnego od kogoś z najbliższej rodziny może uratować mu życie. Ku jego zaskoczeniu, okazuje się, że został adoptowany. Postanawiając odnaleźć prawdziwych rodziców, rozpoczyna prywatne śledztwo, mackami sięgające do mrocznych czasów wojny domowej i dziwnego zdarzenia, jakie miało miejsce w małej, zapomnianej przez Boga górskiej wiosce. Jaką przerażającą tajemnicę kryją omszałe mury średniowiecznego opactwa? Kto samotnie przemierza puste korytarze wyludnionych kazamatów? Czy w miejscu tak przepełnionym bólem mogła pojawić się... miłość? Film dla fanów horrorów i tajemniczych, pełnych zagadek powieści o Barcelonie autorstwa Carlosa Ruiza Zafona ('Cień wiatru', 'Gra Anioła').   ... dziwnego zdarzenia, jakie miało miejsce w małej, zapomnianej przez Boga górskiej wiosce. Jaką przerażającą tajemnicę kryją omszałe mury średniowiecznego opactwa? Kto samotnie przemierza puste korytarze wyludnionych kazamatów? Czy w miejscu tak przepełnionym bólem mogła pojawić się... miłość? Film dla fanów horrorów i tajemniczych, pełnych zagadek powieści o Barcelonie autorstwa Carlosa Ruiza Zafona ('Cień wiatru', 'Gra Anioła').
+    

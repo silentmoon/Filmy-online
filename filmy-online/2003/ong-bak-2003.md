@@ -1,0 +1,9 @@
+
+        Ong Bak 2003 
+        =============
+        
+        [![Ong Bak 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ong-bak-2003)
+        
+        
+ W zalesionej dolinie, z dala od zamętu i hałasu miasta, leży Nong Pradu, spokojna tajlandzka wioska, w której stoi czczony posąg Bezgłowego Buddy, nazywany także Ong Bak. Głowę Ong Bak ukradł pewien mieszkaniec wioski, a czyn ten pogrążył Nong Pradu w smutku i żałobie. Ting, chłopiec mieszkający w świątyni, po kryjomu studiował z ksiąg trzymanych w komnacie, której strzegł, starożytną sztukę tajskiego boksu. Jego wciąż doskonalone umiejętności stały się śmiercionośną bronią. Teraz pozwolą mu podjąć się zadania odzyskania głowy Ong Bak. Ting podążą tropami złodzieja aż do Bangkoku, by tam zażądać od niego zwrotu świętej relikwii. W swej podróży Ting, dzięki niezwykłej sprawności i znajomości tradycyjnej sztuki walki Muay Thai, będzie mógł stawić czoła wielu przeciwnikom. Nieraz zaryzykuje własnym życiem, by przywieźć Ong Bak z powrotem do wioski.   ... Teraz pozwolą mu podjąć się zadania odzyskania głowy Ong Bak. Ting podążą tropami złodzieja aż do Bangkoku, by tam zażądać od niego zwrotu świętej relikwii. W swej podróży Ting, dzięki niezwykłej sprawności i znajomości tradycyjnej sztuki walki Muay Thai, będzie mógł stawić czoła wielu przeciwnikom. Nieraz zaryzykuje własnym życiem, by przywieźć Ong Bak z powrotem do wioski.
+    

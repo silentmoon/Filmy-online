@@ -1,0 +1,9 @@
+
+        Parking królów / Kóngavegur 2010 
+        =============
+        
+        [![Parking królów / Kóngavegur 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/parking-krolow-kongavegur-2010)
+        
+        
+ Trzydziestoparoletni Junior (Gísli Örn Garðarsson) wraca wraz z przyjacielem Rupertem (Daniel Brühl) z Niemiec do rodzinnego domu na Islandii, którym okazuje się być stara przyczepa zaparkowana na Parkingu Królów. Mieszkają tu różni, rozczarowani życiem odmieńcy, połączeni dziwną nicią powiązań rodzinnych. Wracając do domu, Junior ma nadzieję, że ojciec wyciągnie go z tarapatów. W domu, a właściwie w przyczepie, rządzi babcia, która udaje się na spacery z wypchaną foką i lubi słuchać metalowej muzyki w samochodzie sąsiadów. Każdy z mieszkańców Parkingu ma jakieś tajemnice i prowadzi dość ekscentryczny tryb życia. Powrót syna wywołuje lawinę nieoczekiwanych zdarzeń, które zmieniają oblicze Parkingu Królów.   ... słuchać metalowej muzyki w samochodzie sąsiadów. Każdy z mieszkańców Parkingu ma jakieś tajemnice i prowadzi dość ekscentryczny tryb życia. Powrót syna wywołuje lawinę nieoczekiwanych zdarzeń, które zmieniają oblicze Parkingu Królów.
+    

@@ -1,0 +1,9 @@
+
+        Starcie tytanów / Clash of the Titans 2010 
+        =============
+        
+        [![Starcie tytanów / Clash of the Titans 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/starcie-tytanow-clash-of-the-titans-2010)
+        
+        
+ Perseusz (Sam Worthington), urodzony jako bóg, ale wychowany jak człowiek, nie jest w stanie uratować swojej rodziny przed Hadesem (Ralph Fiennes) - mściwym bogiem świata zmarłych. Nie mając nic do stracenia mężczyzna zgłasza się na ochotnika, by poprowadzić wyprawę do zakazanego świata Hadesa i pokonać go, zanim ten odbierze moc Zeusowi (Liam Neeson) i sprowadzi na ziemię chaos. Wraz z grupą śmiałych wojowników wyrusza w ryzykowną podróż, podczas której będzie walczyć z groźnymi demonami i strasznymi bestiami. Przeżyje tylko wtedy, jeśli uwierzy w swoją boską moc, przeciwstawi się swojemu przeznaczeniu i zacznie pisać swój własny los. Remake filmowej wersji z 1981 roku.  ... groźnymi demonami i strasznymi bestiami. Przeżyje tylko wtedy, jeśli uwierzy w swoją boską moc, przeciwstawi się swojemu przeznaczeniu i zacznie pisać swój własny los. Remake filmowej wersji z 1981 roku.
+    

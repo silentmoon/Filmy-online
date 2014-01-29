@@ -1,0 +1,9 @@
+
+        Golasy 2000 
+        =============
+        
+        [![Golasy 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/golasy-2000)
+        
+        
+ Projekt niezależnej grupy twórców z Wrocławia 'komedia psychologiczna', rozgrywająca się we wnętrzach urzędu do złudzenia przypominającego biuro z czasów PRL-u. Akcja, obfitująca w zabawne, niekiedy ocierające się o groteskę zdarzenia i gagi, obejmuje jeden dzień z życia urzędników, tkwiących jeszcze mentalnie w minionej epoce. O wyjątkowości filmu decyduje jednak fakt, iż wszyscy aktorzy występują nago. Golasy' opowiadają o jednym dniu z życia zwykłego biura. Biura współczesnego, ale mentalnie i 'technologicznie' zakorzenionego w minionej epoce, w czasach, kiedy urzędnicy przychodzili do pracy tylko po to, żeby napić się kawy, poczytać gazety i wyskoczyć na zakupy. W owym biurze wszystko jest jak należy. Stoją masywne biurka, a na nich maszyny do pisania. Są półki, na których stoją rzędy segregatorów wypełnionych dokumentami. Jest czajnik i niedomyte szklanki oraz telefon, którego nikt nie odbiera, a nawet wieszający się przez cały czas komputer. Tylko urzędnicy i petenci jacyś tacy nie ubrani.   ... współczesnego, ale mentalnie i 'technologicznie' zakorzenionego w minionej epoce, w czasach, kiedy urzędnicy przychodzili do pracy tylko po to, żeby napić się kawy, poczytać gazety i wyskoczyć na zakupy. W owym biurze wszystko jest jak należy. Stoją masywne biurka, a na nich maszyny do pisania. Są półki, na których stoją rzędy segregatorów wypełnionych dokumentami. Jest czajnik i niedomyte szklanki oraz telefon, którego nikt nie odbiera, a nawet wieszający się przez cały czas komputer. Tylko urzędnicy i petenci jacyś tacy nie ubrani.
+    

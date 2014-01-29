@@ -1,0 +1,9 @@
+
+        Tabu / Gohatto 1999 
+        =============
+        
+        [![Tabu / Gohatto 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tabu-gohatto-1999)
+        
+        
+ Tabu to rozgrywająca się w Kioto, u schyłku epoki szogunów, opowieść o narodzinach zakazanej miłości, która przyczynia się do powstania konfliktu między grupą młodych wojowników, uczniów elitarnej szkoły dla samurajów. Był to okres, gdy tradycyjna sztuka walki samurajów zaczęła stopniowo zanikać ze względu na rozwój nowoczesnej broni. W tej akademii o niezwykle surowym rygorze, gdzie najmniejsze wykroczenia przeciwko kodeksowi samurajów były karane śmiercią, pojawia się 18-letni wojownik Sozaburo Kano. W jego przybyciu nie byłoby nic dziwnego, gdyby nie to, że chłopak roztacza wokół siebie tajemniczy urok. Jego uwodzicielskie zachowanie wywołuje w szkole poruszenie i zakłóca spokojne dotąd życie uczniów. Choć przełożeni szybko dostrzegają olbrzymi talent Kano, nie podoba im się charakter jego kontaktów z innymi uczniami. Chłopiec o zimnych, sprytnych oczach roztacza wokół siebie aurę seksualnej dwuznaczności. Rozpala ona erotyczne żądze wśród prowadzących surowe życie młodych adeptów sztuki walki.   ... 18-letni wojownik Sozaburo Kano. W jego przybyciu nie byłoby nic dziwnego, gdyby nie to, że chłopak roztacza wokół siebie tajemniczy urok. Jego uwodzicielskie zachowanie wywołuje w szkole poruszenie i zakłóca spokojne dotąd życie uczniów. Choć przełożeni szybko dostrzegają olbrzymi talent Kano, nie podoba im się charakter jego kontaktów z innymi uczniami. Chłopiec o zimnych, sprytnych oczach roztacza wokół siebie aurę seksualnej dwuznaczności. Rozpala ona erotyczne żądze wśród prowadzących surowe życie młodych adeptów sztuki walki.
+    

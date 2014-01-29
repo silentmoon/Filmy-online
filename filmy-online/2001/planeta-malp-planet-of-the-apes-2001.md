@@ -1,0 +1,9 @@
+
+        Planeta małp / Planet of the Apes 2001 
+        =============
+        
+        [![Planeta małp / Planet of the Apes 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/planeta-malp-planet-of-the-apes-2001)
+        
+        
+ Na stacji kosmicznej Oberon przeprowadza się eksperymenty genetyczne na małpach naczelnych, a potem uczy np. sterować pojazdami kosmicznymi. Leo Davidson uczy tego swoją małpkę - szympansa Peryklesa. Jednakże pewnego dnia jakaś burza energetyczna zbliża się do stacji. Perykles zostaje wysłany w misję by zbadać tajemnicze zjawisko. Kiedy jednak nie wraca, Leo postanawia wyruszyć go poszukać. Wkrótce okazuje się, że tajemnicze zjawisko pozwoliło mu przenieść się na inną planetę, na której rządzą małpy człekokształtne, a ludzie są traktowani jak niewolnicy. Jednak niektóre małpy doceniają umiejętności ludzi i chciałyby ich osowbodzenia. Jedną z nich jest Ari. Leo, który przede wszystkim chce wrócić do domu, musi także podjąć walkę z tradycyjnie wrogo nastawionymi do ludzi małpami, walkę która może zmienić ten świat ...  ... planetę, na której rządzą małpy człekokształtne, a ludzie są traktowani jak niewolnicy. Jednak niektóre małpy doceniają umiejętności ludzi i chciałyby ich osowbodzenia. Jedną z nich jest Ari. Leo, który przede wszystkim chce wrócić do domu, musi także podjąć walkę z tradycyjnie wrogo nastawionymi do ludzi małpami, walkę która może zmienić ten świat ...
+    

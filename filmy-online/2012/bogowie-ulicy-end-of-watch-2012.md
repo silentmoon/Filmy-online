@@ -1,0 +1,9 @@
+
+        Bogowie ulicy / End of Watch 2012 
+        =============
+        
+        [![Bogowie ulicy / End of Watch 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bogowie-ulicy-end-of-watch-2012)
+        
+        
+ Niespotykanie realistyczny i mocny film autora 'Szybkich i wściekłych' oraz 'Dnia próby'. Taylor i Zavala - dwaj młodzi policjanci, patrolują niespokojne ulice południowego Los Angeles. Trwa tutaj nieustająca wojna, każdy dzień może być ich ostatnim. Gangi nie znają litości, więc odpowiedź policji musi być równie twarda. Taylor i Zavala podczas rutynowego patrolu wpadają na trop makabrycznej zbrodni. Stoi za nią potężny gang narkotykowy, który wydaje na policjantów wyrok śmierci. Reżyser doskonale zna realia pracy policji w LA, co udowodnił pisząc scenariusze 'Dnia próby' czy 'Policji'. Tym razem jako reżyser zastosował rozwiązanie, które dodaje filmowi autentyzmu. Obaj policjanci wyposażeni są w miniaturowe kamery HD, które pozwalają uwiecznić najbardziej dramatyczne chwile ich służby. Nakręcone przez nich sceny pokazują okrucieństwo, ból, strach oraz poświęcenie i ryzyko, które każdego dnia podejmują funkcjonariusze. Bardzo realistyczne ujęcia, przenoszą widza prosto w grad kul na ulicach Los Angeles.   ... śmierci. Reżyser doskonale zna realia pracy policji w LA, co udowodnił pisząc scenariusze 'Dnia próby' czy 'Policji'. Tym razem jako reżyser zastosował rozwiązanie, które dodaje filmowi autentyzmu. Obaj policjanci wyposażeni są w miniaturowe kamery HD, które pozwalają uwiecznić najbardziej dramatyczne chwile ich służby. Nakręcone przez nich sceny pokazują okrucieństwo, ból, strach oraz poświęcenie i ryzyko, które każdego dnia podejmują funkcjonariusze. Bardzo realistyczne ujęcia, przenoszą widza prosto w grad kul na ulicach Los Angeles.
+    

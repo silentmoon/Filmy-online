@@ -1,0 +1,9 @@
+
+        Zamknąć za sobą drzwi 1987 
+        =============
+        
+        [![Zamknąć za sobą drzwi 1987 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zamknac-za-soba-drzwi-1987)
+        
+        
+ Porucznik Paweł Kopiński (Piotr Fronczewski) od kilku lat współpracujący z Interpolem, to jeden z asów nowojorskiej brygady do walki z przestępczością narkotykową. Wściekły Kojot, jak mówią o nim handlarze narkotyków, był dwukrotnie ranny, dwa razy skazany przez mafię na śmierć i od zawsze ogarnięty obsesyjną nienawiścią do białego proszku. Po 26 latach pracy w amerykańskiej policji odchodzi ze służby. Wraca do kraju, gdzie nieoczekiwanie spotyka gangstera zamieszanego w morderstwo swojej żony - Oscara Thomasa vel Cappuccino. Osobiste potyczki obu 'gentlemanów' przyciągają uwagę milicji. Sprawę prowadzi porucznik Borewicz. Zobacz jak Borewicz - polski James Bond, poskramia zaciekłych wrogów. Czy stróże prawa połączą siły w walce z narkotykowym gangsterem?   ... morderstwo swojej żony - Oscara Thomasa vel Cappuccino. Osobiste potyczki obu 'gentlemanów' przyciągają uwagę milicji. Sprawę prowadzi porucznik Borewicz. Zobacz jak Borewicz - polski James Bond, poskramia zaciekłych wrogów. Czy stróże prawa połączą siły w walce z narkotykowym gangsterem?
+    

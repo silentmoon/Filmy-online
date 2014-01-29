@@ -1,0 +1,9 @@
+
+        Blue Velvet 1986 
+        =============
+        
+        [![Blue Velvet 1986 ](http://vidos.pl/images/player.gif)](http://vidos.pl/blue-velvet-1986)
+        
+        
+ Tom Beaumont dostaje zawału podczas podlewania trawnika. Jego syn Jeffrey, wracając ze szpitala znajduje odcięte ucho ludzkie, które przekazuje detektywowi Williamsowi. Jego córka, Sandy, opowiada chłopcu o pewnej piosenkarce klubu nocnego, której osoba wiąże się z dochodzeniem prowadzonym przez ojca. Zaintrygowany Jeffrey dostaje się podstępem do mieszkania Dorothy, ta odkrywa jego obecność i grożąc nożem zmusza go do erotycznych zabaw. To dopiero początek dziwnych zdarzeń... Główny bohater, Jeffrey, prowadząc na początku rutynowe śledztwo, odsłania coraz  tajemnic, aż w końcu odkrywa sam siebie. Ulokowany w pozornie sielankowej i prowincjonalnej scenerii film, opowiadający o inicjacji w świat seksu i zbrodni, zdumiewa siłą i wieloznacznością obrazu.  ... zdarzeń... Główny bohater, Jeffrey, prowadząc na początku rutynowe śledztwo, odsłania coraz więcej tajemnic, aż w końcu odkrywa sam siebie. Ulokowany w pozornie sielankowej i prowincjonalnej scenerii film, opowiadający o inicjacji w świat seksu i zbrodni, zdumiewa siłą i wieloznacznością obrazu.
+    

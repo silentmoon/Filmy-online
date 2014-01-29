@@ -1,0 +1,9 @@
+
+        Śluby panieńskie 2010 
+        =============
+        
+        [![Śluby panieńskie 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/luby-panienskie-2010)
+        
+        
+ Albin (Borys Szyc) i Gustaw (Maciej Stuhr) to niegrzeczni faceci, którzy próbują za wszelką cenę uwieść spiskujące przeciw mężczyznom panny - Anielę (Anna Cieślak) i Klarę (Marta Żmuda Trzebiatowska). Jednak tym razem poszukiwacze mocnych miłosnych wrażeń i słabych kobiecych punktów trafiają na ekstremalnie trudne przeciwniczki. Piękne dziewczyny zrobią wszystko, żeby pokrzyżować plany nałogowych podrywaczy i spektakularnie utrzeć im nosa. Wybucha wielka wojna męsko-damska, w której intryga goni intrygę, seryjnie łamane są serca, a każdy chwyt jest dozwolony. Czy rozważny, choć romantyczny twardziel Radost (Robert Więckiewicz) zatrzyma lawinę zabawnych nieporozumień i doprowadzi aferę do szczęśliwego końca?   ... której intryga goni intrygę, seryjnie łamane są serca, a każdy chwyt jest dozwolony. Czy rozważny, choć romantyczny twardziel Radost (Robert Więckiewicz) zatrzyma lawinę zabawnych nieporozumień i doprowadzi aferę do szczęśliwego końca?
+    

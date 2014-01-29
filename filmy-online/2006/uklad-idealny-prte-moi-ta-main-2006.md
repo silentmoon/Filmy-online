@@ -1,0 +1,9 @@
+
+        Układ idealny / Prête-moi ta main 2006 
+        =============
+        
+        [![Układ idealny / Prête-moi ta main 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/uklad-idealny-prte-moi-ta-main-2006)
+        
+        
+ Luis (Alain Chabat), zblazowany choć nie pozbawiony uroku czterdziestoletni Paryżanin, prowadzi malownicze, wolne od zobowiązań życie. Beztroski kawaler i dusza towarzystwa, podczas niedzielnych obiadów staje się oczkiem w głowie swej władczej matki i pięciu sióstr, które rozpieszczają go i wyręczają we wszystkim. Louis potulnie poddaje się ich decyzjom i pieszczotom, w jednej kwestii pozostaje jednak przy swoim - nie zamierza się żenić. Jednak kobiety, znużone ciągłym niańczeniem go postanawiają za wszelką cenę znaleźć mu towarzyszkę życia, a do swego zamiaru podchodzą z wyjątkowym zaangażowaniem? Doprowadzony do rozpaczy Luis wymyśla plan, dzięki któremu ma zapewnić sobie wolność a jednocześnie ukrócić raz na zawsze próby wyswatania go. Plan zakłada... wynajęcie żony. Co może pchnąć szukającą niezależności młodą kobietę w ramiona wiecznego kawalera? Czy karkołomna transakcja może być początkiem wielkiego uczucia?   ... niańczeniem go postanawiają za wszelką cenę znaleźć mu towarzyszkę życia, a do swego zamiaru podchodzą z wyjątkowym zaangażowaniem? Doprowadzony do rozpaczy Luis wymyśla plan, dzięki któremu ma zapewnić sobie wolność a jednocześnie ukrócić raz na zawsze próby wyswatania go. Plan zakłada... wynajęcie żony. Co może pchnąć szukającą niezależności młodą kobietę w ramiona wiecznego kawalera? Czy karkołomna transakcja może być początkiem wielkiego uczucia?
+    

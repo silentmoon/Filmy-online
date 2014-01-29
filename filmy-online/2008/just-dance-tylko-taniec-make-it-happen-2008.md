@@ -1,0 +1,9 @@
+
+        Just Dance - Tylko taniec! / Make It Happen 2008 
+        =============
+        
+        [![Just Dance - Tylko taniec! / Make It Happen 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/just-dance-tylko-taniec-make-it-happen-2008)
+        
+        
+ W scenerii słynnych klubów Chicago rozgrywa się opowieść o młodym pokoleniu utalentowanych ludzi, dla których taniec jest treścią życia. Ludzi takich jak Lauryn Kirk. Lauryn opuszcza rodzinne miasteczko i wyrusza na podbój Chicago uzbrojona jedynie w surowy, nieoszlifowany talent taneczny i marzenia o wielkiej sławie, której początkiem miałaby być nauka w prestiżowej szkole tańca. Niestety, konfrontacja własnych umiejętności z tym, jak oceniają je profesjonaliści, jest dla niej wielkim rozczarowaniem. Pierwsza porażka nie załamuje jednak Lauryn. Młoda i piękna dziewczyna podejmuje pracę i wchodzi w nieoczekiwanie zmysłowy i ekscytujący nowy świat – świat klubów tanecznych…  ... niej wielkim rozczarowaniem. Pierwsza porażka nie załamuje jednak Lauryn. Młoda i piękna dziewczyna podejmuje pracę i wchodzi w nieoczekiwanie zmysłowy i ekscytujący nowy świat – świat klubów tanecznych…
+    

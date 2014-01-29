@@ -1,0 +1,9 @@
+
+        Ferdydurke 1991 
+        =============
+        
+        [![Ferdydurke 1991 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ferdydurke-1991)
+        
+        
+ Warszawa 1939 roku. Do 30-letniego Józia (Iain Glen), który rozpoczął właśnie karierę pisarską, przybywa dawny nauczyciel, profesor Pimko (Robert Stephens). Pedagog proponuje mu powrót do gimnazjum. Józio trafia do szkoły, w której prym wiodą Miętus (Crispin Glover) i Syfon (Marek Probosz). Pierwszy marzy o brutalnym i surowym życiu, drugi jest uosobieniem niewinności. Kiedy Miętus wyzywa Syfona na pojedynek na miny, przeciwnik traci dotychczasową nieświadomość. Profesor znajduje Józiowi stancję u Młodziaków. Córką nowoczesnych gospodarzy jest wyemancypowana Zuta (Judith Godreche). Dziewczyna pogardza lokatorem, który jest nią zafascynowany. On, chcąc się na niej zemścić, demaskuje prawdę o jej pozornie postępowej rodzinie. Niebawem wraz z Miętusem ucieka na wieś. Zatrzymuje się w domu wujostwa, gdzie spotyka swoją kuzynkę, Zosię (Fabienne Babe), w której od dawna jest zakochany. Postanawia w końcu dorosnąć, ale przyjaciel krzyżuje jego plany... Przeniesione na ekran przez Jerzego Skolimowskiego dzieło Witolda Gombrowicza.  ... znajduje Józiowi stancję u Młodziaków. Córką nowoczesnych gospodarzy jest wyemancypowana Zuta (Judith Godreche). Dziewczyna pogardza lokatorem, który jest nią zafascynowany. On, chcąc się na niej zemścić, demaskuje prawdę o jej pozornie postępowej rodzinie. Niebawem wraz z Miętusem ucieka na wieś. Zatrzymuje się w domu wujostwa, gdzie spotyka swoją kuzynkę, Zosię (Fabienne Babe), w której od dawna jest zakochany. Postanawia w końcu dorosnąć, ale przyjaciel krzyżuje jego plany... Przeniesione na ekran przez Jerzego Skolimowskiego dzieło Witolda Gombrowicza.
+    

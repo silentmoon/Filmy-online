@@ -1,0 +1,9 @@
+
+        Raport mniejszości / Minority Report 2002 
+        =============
+        
+        [![Raport mniejszości / Minority Report 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/raport-mniejszosci-minority-report-2002)
+        
+        
+ Waszyngton roku 2054 - futurystyczny świat, w którym nie ma zbrodni, przyszłość można przewidzieć, a winnych ukarać, zanim popełnią planowane przestępstwo. Dowodów niedoszłych zbrodni dostarcza trójka Jasnowidzów na usługach Agencji Prewencji Departamentu Sprawiedliwości, nad której sprawnym działaniem czuwa komisarz John Anderton (Tom Cruise). Jako pierwszy ogląda obrazy przekazywane przez Jasnowidzów. Ich werdykt nie pozostawia wątpliwości - za niespełna 36 godzin John Anderton zabije człowieka, którego nawet nie zna. Rozpoczyna się szaleńczy wyścig z czasem. Anderton musi wykryć, kto go wrabia albo stanie się ofiarą 'idealnego' systemu, który sam pomagał tworzyć. Aby wygrać musi odpowiedzieć sobie na pytanie, które jeszcze nie tak dawno nie przyszłoby mu nawet na myśl: czy Jasnowidze mogą się mylić?   ... Anderton zabije człowieka, którego nawet nie zna. Rozpoczyna się szaleńczy wyścig z czasem. Anderton musi wykryć, kto go wrabia albo stanie się ofiarą 'idealnego' systemu, który sam pomagał tworzyć. Aby wygrać musi odpowiedzieć sobie na pytanie, które jeszcze nie tak dawno nie przyszłoby mu nawet na myśl: czy Jasnowidze mogą się mylić?
+    

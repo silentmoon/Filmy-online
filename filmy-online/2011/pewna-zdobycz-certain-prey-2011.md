@@ -1,0 +1,9 @@
+
+        Pewna zdobycz / Certain Prey 2011 
+        =============
+        
+        [![Pewna zdobycz / Certain Prey 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pewna-zdobycz-certain-prey-2011)
+        
+        
+ Film jest oparty na podstawie powieści Johna Sandforda o tym samym tytule. Lucas Davenport (Mark Harmon) jest zastępcą szefa policji w Minneapolis. Nie musi już dłużej pracować, jednak kocha to co robi niemal równie mocno jak drogie garnitury, szybkie samochody i piękne kobiety. Kiedy zostaje postrzelony policjant będący świadkiem morderstwa żony miejscowego prawnika nieruchomości, Davenport zostaje powołany do poprowadzenia śledztwa. Podejrzenia padają na męża ofiary, jednak agenci FBI znajdują dowody łączące zbrodnię z atrakcyjną bizneswoman i płatną zabójczynią Clarą Rinker (Tatiana Maslany), oraz przebiegłym prawnikiem Carmel Loan (Lola Glaudini).   ... agenci FBI znajdują dowody łączące zbrodnię z atrakcyjną bizneswoman i płatną zabójczynią Clarą Rinker (Tatiana Maslany), oraz przebiegłym prawnikiem Carmel Loan (Lola Glaudini).
+    

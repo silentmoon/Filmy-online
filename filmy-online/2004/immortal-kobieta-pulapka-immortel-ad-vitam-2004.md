@@ -1,0 +1,9 @@
+
+        Immortal - Kobieta pułapka / Immortel (ad vitam) 2004 
+        =============
+        
+        [![Immortal - Kobieta pułapka / Immortel (ad vitam) 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/immortal-kobieta-pulapka-immortel-ad-vitam-2004)
+        
+        
+ Adaptacja pierwszych dwóch części serii komiksowej 'Trylogia Nikopola' autorstwa Enki Bilala. Koniec XXI wieku. W Nowym Jorku mieszka Jill Bioskop, kobieta o niebieskich włosach, która płacze niebieskimi łzami. Jeszcze o tym nie wie, ale Horus, egipski bóg z głową sokoła, przemierzył dla niej pół wszechświata. Skazany, ma tylko 7 dni, by ją odnaleźć i uwieść. Ale do tego potrzebne mu jest ludzkie ciało. Będzie to ciało Alcide'a Nikopola, więźnia politycznego, deportowanego 30 lat wcześniej za odkrycie tajemnic nowojorskiego apartheidu. Horus, Nikopol i Jill Bioskop to dziwny trójkąt, w którym wszystko jest fałszywe: głosy, ciała, wspomnienia. Wszystko oprócz miłości, która pojawia się tam, gdzie najmniej można się jej spodziewać. A tymczasem piramida bogów unosi się nad Manhattanem, kosmici spiskują na szczycie drapacza chmur a nieludzki seryjny morderca pokrywa trupami ulice pierwszego poziomu... (cyt. za wrak.pl)   ... 30 lat wcześniej za odkrycie tajemnic nowojorskiego apartheidu. Horus, Nikopol i Jill Bioskop to dziwny trójkąt, w którym wszystko jest fałszywe: głosy, ciała, wspomnienia. Wszystko oprócz miłości, która pojawia się tam, gdzie najmniej można się jej spodziewać. A tymczasem piramida bogów unosi się nad Manhattanem, kosmici spiskują na szczycie drapacza chmur a nieludzki seryjny morderca pokrywa trupami ulice pierwszego poziomu... (cyt. za wrak.pl)
+    

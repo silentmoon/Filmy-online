@@ -1,0 +1,9 @@
+
+        Seszele 1990 
+        =============
+        
+        [![Seszele 1990 ](http://vidos.pl/images/player.gif)](http://vidos.pl/seszele-1990)
+        
+        
+ Drobny złodziejaszek, Stefek (Zbigniew Zamachowski) ma kłopoty z milicją oraz ze światem przestępczym. Chłopak znajduje schronienie w zakładzie dla umysłowo chorych, gdzie opowiada pacjentom o Seszelach, egzotycznych wyspach, miejscu bez krat, gdzie zawsze świeci słońce. Kiedy bandyci trafiają na jego ślad i torturami próbują zmusić do spłaty długu, Stefek ucieka i trafia do miejscowej opery, gdzie dostaje pracę nocnego portiera. Szybko przekonuje się, że opera w nocy przemienia się w dom publiczny, a on sam pełni w nim rolę stróża. Zarobione pieniądze postanawia odłożyć na spłatę długu. Pewnego dnia w teatrze pojawia się Dudzio (Tadeusz Szymków), kolega ze szpitala, który marzy o Seszelach. Wkrótce na jego ślad trafią również gangsterzy... 'Seszele' to dramat psychologiczny z elementami humorystycznymi i groteskowymi, pokazujący cały szereg ludzi zatraconych, bez własnej osobowości, nie posiadających własnego celu, wypranych nawet z osobistych marzeń.  ... przemienia się w dom publiczny, a on sam pełni w nim rolę stróża. Zarobione pieniądze postanawia odłożyć na spłatę długu. Pewnego dnia w teatrze pojawia się Dudzio (Tadeusz Szymków), kolega ze szpitala, który marzy o Seszelach. Wkrótce na jego ślad trafią również gangsterzy... 'Seszele' to dramat psychologiczny z elementami humorystycznymi i groteskowymi, pokazujący cały szereg ludzi zatraconych, bez własnej osobowości, nie posiadających własnego celu, wypranych nawet z osobistych marzeń.
+    

@@ -1,0 +1,9 @@
+
+        Pięć nieczystych zagrań / De Fem benspænd 2003 
+        =============
+        
+        [![Pięć nieczystych zagrań / De Fem benspænd 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/piec-nieczystych-zagran-de-fem-benspaend-2003)
+        
+        
+ Najnowsze dzieło Larsa von Triera, wielkiego manipulatora współczesnego kina, to prowokacja zacierająca granicę między fabułą a dokumentem. Tym razem von Trier wciągnął swego dawnego nauczyciela, Jorgena Letha, do przewrotnego eksperymentu: Leth ma pięciokrotnie przerobić swój sławny film pt. 'Doskonały człowiek' stosując się do zasad i przeszkód narzuconych przez von Triera. Są one nieraz bardzo dziwaczne, czasem przekraczają granice moralnej przyzwoitości. Twórca 'Dogville' hołduje bowiem zasadzie, że najciekawsze cechy artysty wychodzą na jaw w chwilach jego załamania. W tym celu każe mu zrealizować film animowany, choć Leth nie znosi animacji, a potem nakręcić jedną część wyłącznie z ujęć nie przekraczających pół sekundy, podczas gdy Leth jest znany z zamiłowania do długich scen i spokojnego montażu. Von Trier liczy więc, że jego dawny mistrz potknie się i stworzy kiepski film. '5 nieczystych zagrań' to szalenie odważny i intymny obraz, pełen czarnego humoru i prowokacji, obfitująca w pułapki gra i czołowe zderzenie dwóch wielkich osobowości.   ... 'Dogville' hołduje bowiem zasadzie, że najciekawsze cechy artysty wychodzą na jaw w chwilach jego załamania. W tym celu każe mu zrealizować film animowany, choć Leth nie znosi animacji, a potem nakręcić jedną część wyłącznie z ujęć nie przekraczających pół sekundy, podczas gdy Leth jest znany z zamiłowania do długich scen i spokojnego montażu. Von Trier liczy więc, że jego dawny mistrz potknie się i stworzy kiepski film. '5 nieczystych zagrań' to szalenie odważny i intymny obraz, pełen czarnego humoru i prowokacji, obfitująca w pułapki gra i czołowe zderzenie dwóch wielkich osobowości.
+    

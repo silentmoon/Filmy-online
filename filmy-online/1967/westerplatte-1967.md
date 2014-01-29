@@ -1,0 +1,9 @@
+
+        Westerplatte 1967 
+        =============
+        
+        [![Westerplatte 1967 ](http://vidos.pl/images/player.gif)](http://vidos.pl/westerplatte-1967)
+        
+        
+ W 'Westerplatte' brak wyrazistego, pierwszoplanowego bohatera. Zastępuje go zbiorowość. Osią konstrukcyjną fabuły jest nasilający się spór między majorem Henrykiem Sucharskim i jego zastępcą kapitanem Franciszkiem Dąbrowskim. Pierwszy, widząc bezsens długotrwałego oporu, chciał przede wszystkim ocalić życie swych żołnierzy; drugi - wierząc, że Westerplatte jest dla całego narodu symbolem bohaterstwa i wytrwania, zamierzał bronić się do ostatniej kropli krwi. Film Stanisława Różewicza z drobiazgową dokładnością ukazuje 7 dni i nocy walki z nazistowskim najeźdźcą. Mistrzowskie zdjęcia Jerzego Wójcika wiernie oddają stan nieustannego napięcia, psychiczną ewolucję bohaterów od wiary w rychłą pomoc do tłumionej rozpaczy i poczucia osamotnienia.   ... Różewicza z drobiazgową dokładnością ukazuje 7 dni i nocy walki z nazistowskim najeźdźcą. Mistrzowskie zdjęcia Jerzego Wójcika wiernie oddają stan nieustannego napięcia, psychiczną ewolucję bohaterów od wiary w rychłą pomoc do tłumionej rozpaczy i poczucia osamotnienia.
+    

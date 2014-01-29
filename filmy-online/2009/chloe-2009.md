@@ -1,0 +1,9 @@
+
+        Chloe 2009 
+        =============
+        
+        [![Chloe 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/chloe-2009)
+        
+        
+ Catherine i David, ona jest lekarzem, on profesorem, na pierwszy rzut oka wydają się być idealną parą. Szczęśliwe małżeństwo z utalentowanym synem, wydaje się, że wiodą idylliczne życie, lecz gdy David spóźnia się na samolot i swoje urodzinowe przyjęcie-niespodzianka, długo skrywane podejrzenia Catherine wydostają się na powierzchnię. Podejrzewając męża o zdradę, postanawia wynająć call-girl by ta spróbowała uwieść jej męża tym samym sprawdzając jego lojalność. Catherine aranżuje spotkanie Chloe z Davidem, po którym dziewczyna ma się z nią spotkać i opowiedzieć jej co się podczas niego wydarzyło. Z czasem spotkania stają się coraz częstsze a opowieści coraz bardziej obrazowe.   ... aranżuje spotkanie Chloe z Davidem, po którym dziewczyna ma się z nią spotkać i opowiedzieć jej co się podczas niego wydarzyło. Z czasem spotkania stają się coraz częstsze a opowieści coraz bardziej obrazowe.
+    

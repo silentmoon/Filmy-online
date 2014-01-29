@@ -1,0 +1,9 @@
+
+        Ciacho 2010 
+        =============
+        
+        [![Ciacho 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ciacho-2010)
+        
+        
+ 'Ciacho', to pełna rozmachu i fantazji, trzymająca w napięciu i bogata w dowcipne dialogi opowieść o tym, że każdy może stać się bohaterem i znaleźć swoją drugą połówkę. Basia (Marta Żmuda-Trzebiatowska) to dziewczyna, która potrafi rzucić na kolana niejednego strongmana. Tymczasem jej bracia są… trochę inni. Dawid (Tomasz Karolak) – zna się na modzie lepiej od Beckhama, Karolek (Paweł Małaszyński) – marzy by być jak Rambo i walczyć niczym Ninja. Krzyś (Marcin Bosak) – to pantoflarz i doskonały kucharz w jednym, który żyje na zwolnionych obrotach. Kiedy jednak Basia wpadnie w tarapaty, a jej narzeczony Jan (Tomasz Kot) ujawni swoje prawdziwe oblicze, nieporadni, ale zdeterminowani bracia zrobią wszystko, żeby uratować ukochaną siostrę. Zanim jednak wywrócą cały świat do góry nogami na drodze spotkają kilka nieplanowanych zwrotów akcji i… intrygujących kobiet. Zdecydowana bizneswoman (Joanna Liszowska), roztrzepana adwokat (Marieta Żukowska) i seksowna pani psycholog (Danuta Stenka) nie oprą się wdziękom trzech braci.  ... pantoflarz i doskonały kucharz w jednym, który żyje na zwolnionych obrotach. Kiedy jednak Basia wpadnie w tarapaty, a jej narzeczony Jan (Tomasz Kot) ujawni swoje prawdziwe oblicze, nieporadni, ale zdeterminowani bracia zrobią wszystko, żeby uratować ukochaną siostrę. Zanim jednak wywrócą cały świat do góry nogami na drodze spotkają kilka nieplanowanych zwrotów akcji i… intrygujących kobiet. Zdecydowana bizneswoman (Joanna Liszowska), roztrzepana adwokat (Marieta Żukowska) i seksowna pani psycholog (Danuta Stenka) nie oprą się wdziękom trzech braci.
+    

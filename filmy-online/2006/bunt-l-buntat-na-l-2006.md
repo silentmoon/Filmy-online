@@ -1,0 +1,9 @@
+
+        Bunt L. / Buntat na L. 2006 
+        =============
+        
+        [![Bunt L. / Buntat na L. 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bunt-l-buntat-na-l-2006)
+        
+        
+ W czasie nocy i balu kończącego studia na wydziale języków obcych, Loris postanawia uciec na upragniony Zachód. Zostaje jednak zdradzony, schwytany i osądzony jako więzień polityczny, który dopuścił się zdrady państwa. Jest rok 1986. Na jednej ze ścian więziennych duży czerwony napis głosi: „Jeśli nie wiesz, nauczymy cię. Jeśli nie możesz – pokażemy ci jak to zrobić. Jeśli nie chcesz – i tak cię zmusimy”. Slogan często jest wprowadzany w praktykę: tortury, wszechobecny cynizm i przemoc psychiczna zmieniają młodego i utalentowanwego Lorisa w obojętnego i zimnego obserwatora. W Berlinie runął mur, więźniów obejmuje amnestia. W końcu wolny Loris trafia do świata, w którym czuje się wyalienowany i obcy. Wprawdzie nie siedział długo, lecz zmiany polityczne, które zaszły w otaczającej go rzeczywistości sprawiły, że nie potrafi się odnaleźć. Loris desperacko pragnie uciec od świata, w którym się znalazł, pragnie się zemścić na tych, którzy zrujnowali mu życie i karierę. Niespodziewanie jednak zamiast zemsty, Loris znajduje – miłość… Czas na walkę o zupełnie inne wartości. I innych ludzi. [opis dystrybutora]  ... i przemoc psychiczna zmieniają młodego i utalentowanwego Lorisa w obojętnego i zimnego obserwatora. W Berlinie runął mur, więźniów obejmuje amnestia. W końcu wolny Loris trafia do świata, w którym czuje się wyalienowany i obcy. Wprawdzie nie siedział długo, lecz zmiany polityczne, które zaszły w otaczającej go rzeczywistości sprawiły, że nie potrafi się odnaleźć. Loris desperacko pragnie uciec od świata, w którym się znalazł, pragnie się zemścić na tych, którzy zrujnowali mu życie i karierę. Niespodziewanie jednak zamiast zemsty, Loris znajduje – miłość… Czas na walkę o zupełnie inne wartości. I innych ludzi. [opis dystrybutora]
+    

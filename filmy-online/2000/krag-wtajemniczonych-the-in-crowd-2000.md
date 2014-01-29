@@ -1,0 +1,9 @@
+
+        Krąg wtajemniczonych / The In Crowd 2000 
+        =============
+        
+        [![Krąg wtajemniczonych / The In Crowd 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krag-wtajemniczonych-the-in-crowd-2000)
+        
+        
+ Po odbyciu długiej i ciężkiej kuracji w szpitalu psychiatrycznym Adrien (Lori Heuring) otrzymuje wymarzoną posadę w luksusowym ośrodku, który odwiedzają sami bogaci i sławni ludzie. W jej przekonaniu, nowa praca nie powinna przynosić niepotrzebnych stresów i dodatkowych emocji. Niestety, uroda i zmysłowość kobiety, szybko przyciąga uwagę innych ludzi. Pewna dziewczyna imieniem Brittany (Susan Ward), która przewodzi grupie szkolnych przyjaciółek, zauważa ją i postanawia przyjąć do swojego grona. Wkrótce Adrien poznaje Matta Curtisa (Matthew Settle). Chłopak od razu zwraca na nią uwagę, co zaczyna niepokoić Brittany. Sytuacja Adrien staje się niebezpieczna.  ... przyjąć do swojego grona. Wkrótce Adrien poznaje Matta Curtisa (Matthew Settle). Chłopak od razu zwraca na nią uwagę, co zaczyna niepokoić Brittany. Sytuacja Adrien staje się niebezpieczna.
+    

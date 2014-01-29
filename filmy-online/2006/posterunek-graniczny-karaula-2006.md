@@ -1,0 +1,9 @@
+
+        Posterunek graniczny / Karaula 2006 
+        =============
+        
+        [![Posterunek graniczny / Karaula 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/posterunek-graniczny-karaula-2006)
+        
+        
+ Na niewielkim posterunku na granicy jugosłowiańsko-albańskiej kolejne pokolenie żołnierzy nudzi się i czeka na koniec służby, licząc dni do chwili, gdy na dobre zrzucą mundury. Jest wiosna 1987 i nawet nie przychodzi im do głowy, że wkrótce znów je włożą i pójdą na wojnę. To ostatnie dni w kraju zwanego Jugosławią. Film opowiada o niedalekiej przeszłości bez nostalgii i nienawiści - to komedia o ludziach w przededniu tragedii. Jak żyli ci, którzy mieli za kilka miesięcy zamienić się w żołnierzy, uchodźców, ofiary i zbrodniarzy. Czego naprawdę pragnęli? Jak wyglądała ich codzienna egzystencja zagrożona wojną i kim byli ci, którzy pozwolili tak szybko i tak łatwo zaszczepić sobie w umysłach wojnę? Film był hitem w państwach byłej Jugosławii.   ... zamienić się w żołnierzy, uchodźców, ofiary i zbrodniarzy. Czego naprawdę pragnęli? Jak wyglądała ich codzienna egzystencja zagrożona wojną i kim byli ci, którzy pozwolili tak szybko i tak łatwo zaszczepić sobie w umysłach wojnę? Film był hitem w państwach byłej Jugosławii.
+    

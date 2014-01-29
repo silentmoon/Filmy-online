@@ -1,0 +1,9 @@
+
+        Dziwka / Yo puta 2004 
+        =============
+        
+        [![Dziwka / Yo puta 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dziwka-yo-puta-2004)
+        
+        
+ Od wieków świat płatnej miłości budzi silne emocje i ciekawość. „Dziwka“ zabiera widza do świata płatnego seksu, w którym wszystko jest możliwe. Studentka antropologii Rebecca (Denise Richards) zbiera materiały do książki o najstarszym zawodzie świata. W trakcie pracy poznaje nową, „pociągającą“ rzeczywistość... Intrygująca fabuła przeplatana jest wypowiedziami prawdziwych prostytutek i gwiazdek filmów porno. „Dziwka“ - to kino śmiałe, prowokujące i chwilami skandalizujące. Dla luksusowych call girl z Francji czy egzotycznych prostytutek z Afryki lub Japonii, handel własnym ciałem to biznes i najlepszy sposób na życie Scenariusz filmu powstał na podstawie książki „Yo puta“ Isabeli Pisano, która stała się bestsellerem w Włoszech i Hiszpanii, a w Polsce ciągle czeka na odważnego wydawcę. Lunie – reżyserce filmu udało się stworzyć zaskakująco oryginalny „obraz z pazurem“. „Fakt, że wiele z rozmówczyń występuje nago nie powinien stanowić problemu dla kogoś, kto wybiera się na film zatytułowany „Dziwka“. „The Hollywood Reporter“   ... śmiałe, prowokujące i chwilami skandalizujące. Dla luksusowych call girl z Francji czy egzotycznych prostytutek z Afryki lub Japonii, handel własnym ciałem to biznes i najlepszy sposób na życie Scenariusz filmu powstał na podstawie książki „Yo puta“ Isabeli Pisano, która stała się bestsellerem w Włoszech i Hiszpanii, a w Polsce ciągle czeka na odważnego wydawcę. Lunie – reżyserce filmu udało się stworzyć zaskakująco oryginalny „obraz z pazurem“. „Fakt, że wiele z rozmówczyń występuje nago nie powinien stanowić problemu dla kogoś, kto wybiera się na film zatytułowany „Dziwka“. „The Hollywood Reporter“
+    

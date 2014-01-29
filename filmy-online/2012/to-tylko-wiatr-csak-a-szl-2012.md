@@ -1,0 +1,9 @@
+
+        To tylko wiatr / Csak a szél 2012 
+        =============
+        
+        [![To tylko wiatr / Csak a szél 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/to-tylko-wiatr-csak-a-szl-2012)
+        
+        
+ Jest piękny słoneczny, letni dzień. Choć wczoraj w okolicy doszło do kolejnego zabójstwa, Mari jak co dzień wstaje o świcie, szykuje jedzenie, wychodzi do pracy – do południa będzie sprzątać przydrożne rowy, po południu szkolne korytarze. Po niej budzi się i zbiera do szkoły nastoletnia Anna. Młodszy brat Anny, Rio też  wybiega z domu, choć akurat dziś zamierza opuścić lekcje. W chałupie zostaje schorowany dziadek. Przez pięć ostatnich miesięcy, gang 'łowców' dokonywał rasistowskich zbrodni. Szajka bandytów zabija romskie rodziny i pali ich domy. Anna, Rio i Mari muszą obcować z niewidzialnym niebezpieczeństwem. Do dnia, w którym pojawią się 'łowcy'. Film oparty na faktach. Intensywny w obrazach, esencjonalny, skupiony 'To tylko wiatr' nie uwodzi romską egzotyką, ani nie epatuje obrazami cygańskiej nędzy. Pokazuje ludzi żyjących na obrzeżach; na granicy kultur i społeczności, która w ich wypadku bywa też granicą życia i śmierci.   ... dokonywał rasistowskich zbrodni. Szajka bandytów zabija romskie rodziny i pali ich domy. Anna, Rio i Mari muszą obcować z niewidzialnym niebezpieczeństwem. Do dnia, w którym pojawią się 'łowcy'. Film oparty na faktach. Intensywny w obrazach, esencjonalny, skupiony 'To tylko wiatr' nie uwodzi romską egzotyką, ani nie epatuje obrazami cygańskiej nędzy. Pokazuje ludzi żyjących na obrzeżach; na granicy kultur i społeczności, która w ich wypadku bywa też granicą życia i śmierci.
+    

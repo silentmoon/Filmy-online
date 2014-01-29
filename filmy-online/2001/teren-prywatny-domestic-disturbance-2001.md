@@ -1,0 +1,9 @@
+
+        Teren prywatny / Domestic Disturbance 2001 
+        =============
+        
+        [![Teren prywatny / Domestic Disturbance 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/teren-prywatny-domestic-disturbance-2001)
+        
+        
+ 11 letni Danny jest nieznośnym dzieciakiem: nieposłusznym i zbuntowanym, a w dodatku notorycznym kłamcą. Jego rodzice: Frank (John Travolta) i Susan (Teri Polo) bardzo kochają syna i starają się być wyrozumiali, wiedząc, że ich niedawny rozwód fatalnie wpłynął na psychikę chłopca. Sytuację pogarsza nowy związek matki z zamożnym i ujmującym Rickiem (Vince Vaughn). Danny nie tylko nie darzy przyszłego ojczyma sympatią, ale opowiada o nim coraz bardziej niepokojące historie. Frank, nie wie, jak się zachować. W końcu Danny jest mistrzem konfabulacji, a jego opowieści o Ricku przypominają scenariusz filmu kryminalnego. Dopiero gdy syn zwierza się, że widział, jak Rick popełnia morderstwo, Frank postanawia działać. Może polegać jedynie na swojej intuicji. Kolejne wydarzenia raz potwierdzają, raz przeczą zeznaniom chłopca. Jaka jest prawda? Frank zdaje sobie sprawę, że jego pomyłka w ocenie sytuacji może kosztować życie syna. Czuje, że czasu jest coraz mniej...  ... Frank, nie wie, jak się zachować. W końcu Danny jest mistrzem konfabulacji, a jego opowieści o Ricku przypominają scenariusz filmu kryminalnego. Dopiero gdy syn zwierza się, że widział, jak Rick popełnia morderstwo, Frank postanawia działać. Może polegać jedynie na swojej intuicji. Kolejne wydarzenia raz potwierdzają, raz przeczą zeznaniom chłopca. Jaka jest prawda? Frank zdaje sobie sprawę, że jego pomyłka w ocenie sytuacji może kosztować życie syna. Czuje, że czasu jest coraz mniej...
+    

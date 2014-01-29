@@ -1,0 +1,9 @@
+
+        Patch Adams 1998 
+        =============
+        
+        [![Patch Adams 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/patch-adams-1998)
+        
+        
+ Historia człowieka, który przezwyciężył własne słabości pomagając innym. Samobójcza próba, a potem pobyt w szpitalu psychiatrycznym pomagają mu zrozumieć problemy innych ludzi. Dzieląc się pomocą i radością odnajduje ją w sobie. Postanawia skończyć studia medyczne i zawodowo zająć się leczeniem ludzi. W trakcie nauki szybko dostrzega niedoskonałości zarówno systemu szkolnictwa, który przedstawia pacjentów jako interesujące przypadki chorób, oraz służby zdrowia, która kompletnie nie liczy się z uczuciami pacjentów i ich bliskich. Doświadczenia ze szpitala psychiatrycznego uświadomiły mu niezwykłą rolę śmiechu i miłości w leczeniu oraz przezwyciężaniu nawet poważnych zaburzeń psychicznych. Mimo trudności stwarzanych ze strony władz uczelni i szpitala Patch, pełen niegasnącego entuzjazmu i radości życia, odwiedza szpital by zabawiać pacjentów, kontynuuje swoje dzieło i znajduje coraz szersze grono popleczników. Patch Adams jest postacią autentyczną. Film pokazuje opartą na faktach historię lekarza, który stosując niekonwencjonalne zachowania w kontaktach z pacjentami staje się prekursorem śmiechoterapii.  ... kompletnie nie liczy się z uczuciami pacjentów i ich bliskich. Doświadczenia ze szpitala psychiatrycznego uświadomiły mu niezwykłą rolę śmiechu i miłości w leczeniu oraz przezwyciężaniu nawet poważnych zaburzeń psychicznych. Mimo trudności stwarzanych ze strony władz uczelni i szpitala Patch, pełen niegasnącego entuzjazmu i radości życia, odwiedza szpital by zabawiać pacjentów, kontynuuje swoje dzieło i znajduje coraz szersze grono popleczników. Patch Adams jest postacią autentyczną. Film pokazuje opartą na faktach historię lekarza, który stosując niekonwencjonalne zachowania w kontaktach z pacjentami staje się prekursorem śmiechoterapii.
+    

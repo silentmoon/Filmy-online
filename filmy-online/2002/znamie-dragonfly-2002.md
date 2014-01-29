@@ -1,0 +1,9 @@
+
+        Znamię / Dragonfly 2002 
+        =============
+        
+        [![Znamię / Dragonfly 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/znamie-dragonfly-2002)
+        
+        
+ Szef pogotowia ratunkowego, dr Joe Darrow (Kevin Costner), jest uznanym ekspertem w dziedzinie urazów i niesienia pomocy medycznej. Jego zawodowe doświadczenie na niewiele się zdaje wobec tragedii, jaka spotkała jego żonę. Emily Darrow (Susanna Thompson), również lekarka, zginęła w wypadku autobusowym na górskiej drodze w Wenezueli, gdzie przebywała z medyczną misją dobrej woli. Joe był przeciwny wyjazdowi żony, a po śmierci Emily nie może uwolnić się od myśli o jej ostatnich chwilach. Chociaż od śmierci Emily upłynęło już sześć miesięcy, ciągle nie odnaleziono jej ciała. Joe zamyka się w sobie, rzucając w wir pracy ponad siły, prawie bez snu, siedem dni w tygodniu, co nie pozostaje bez wpływu na jego samopoczucie. W końcu dyrektor szpitala Hugh Campbell (Joe Morton) nakazuje mu natychmiast wziąć urlop i odpocząć. Wbrew staraniom przyjaciół, rodziny i mieszkającej po sąsiedzku Miriam Belmont (Kathy Bates), Joe nie może odzyskać równowagi. Wszystko przypomina mu Emily.   ... chwilach. Chociaż od śmierci Emily upłynęło już sześć miesięcy, ciągle nie odnaleziono jej ciała. Joe zamyka się w sobie, rzucając w wir pracy ponad siły, prawie bez snu, siedem dni w tygodniu, co nie pozostaje bez wpływu na jego samopoczucie. W końcu dyrektor szpitala Hugh Campbell (Joe Morton) nakazuje mu natychmiast wziąć urlop i odpocząć. Wbrew staraniom przyjaciół, rodziny i mieszkającej po sąsiedzku Miriam Belmont (Kathy Bates), Joe nie może odzyskać równowagi. Wszystko przypomina mu Emily.
+    

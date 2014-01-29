@@ -1,0 +1,9 @@
+
+        Magiczna podróż do Afryki / Magic Journey to Africa 2010 
+        =============
+        
+        [![Magiczna podróż do Afryki / Magic Journey to Africa 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/magiczna-podroz-do-afryki-magic-journey-to-africa-2010)
+        
+        
+ Nakręcona z wielkim rozmachem pierwsza europejska superprodukcja łącząca zjawiskowej urody ujęcia afrykańskiej przyrody, najnowocześniejszą animację komputerową i przełomowe efekty wizualne! W imponującym przygodowym widowisku, kręconym m.in. w Namibii i Republice Południowej Afryki, najmłodsi widzowie prześledzą emocjonującą podróż 10-letniej Jany. Obdarzona niezwykłą wrażliwością i wyobraźnią dziewczynka wyrusza w poszukiwaniu Kabbo, jej pomysłowego ciemnoskórego kolegi, który nagle porzuca spokojne życie w Barcelonie, by powrócić do swojego rodzinnego, jakże dla niej egzotycznego, buszu. W magicznej podróży po najdzikszym z kontynentów pomogą jej  zabawni strażnicy afrykańskich sekretów – napuszony ryś, szalone małpy, majestatyczny słoń Harry i obdarzony niezwykłymi mocami wierzchowiec. Dzięki ich wskazówkom trafi na ślad plemienia Kabby i pozna baśniową krainę ze swoich marzeń,  która zachwyci wszystkich fanów 'Alicji w krainie czarów' Tima Burtona.   ... który nagle porzuca spokojne życie w Barcelonie, by powrócić do swojego rodzinnego, jakże dla niej egzotycznego, buszu. W magicznej podróży po najdzikszym z kontynentów pomogą jej  zabawni strażnicy afrykańskich sekretów – napuszony ryś, szalone małpy, majestatyczny słoń Harry i obdarzony niezwykłymi mocami wierzchowiec. Dzięki ich wskazówkom trafi na ślad plemienia Kabby i pozna baśniową krainę ze swoich marzeń,  która zachwyci wszystkich fanów 'Alicji w krainie czarów' Tima Burtona.
+    

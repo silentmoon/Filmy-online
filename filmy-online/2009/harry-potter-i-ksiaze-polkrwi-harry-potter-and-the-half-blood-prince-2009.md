@@ -1,0 +1,9 @@
+
+        Harry Potter i Książę Półkrwi / Harry Potter and the Half-Blood Prince 2009 
+        =============
+        
+        [![Harry Potter i Książę Półkrwi / Harry Potter and the Half-Blood Prince 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/harry-potter-i-ksiaze-polkrwi-harry-potter-and-the-half-blood-prince-2009)
+        
+        
+ Lord Voldemort zaciska swoją złowieszczą pętlę wokół świata Mugoli i czarodziejów, a Hogwart przestaje być – jak dawniej - bezpieczną przystanią. Harry podejrzewa, że niebezpieczeństwo może czaić się w samym zamku, ale Dumbledorowi zależy raczej na przygotowaniu go do ostatecznego starcia, które jego zdaniem nastąpi niebawem. Razem usiłują znaleźć broń zdolną skruszyć zapory Voldemorta. Harry’emu coraz bardziej podoba się Ginny...niestety, Dean Thomas jest nią również zainteresowany. Lavender Brown dochodzi do wniosku, że Ron jest jej przeznaczeniem, nie bierze tylko pod uwagę czekoladek Romildy Vane! No i oczywiście Hermiona, przeżywająca męki zazdrości, lecz zdecydowana nie ujawniać uczuć. Gdy romanse kwitną, tylko jeden uczeń pozostaje wyniosły i obojętny. Postanowił wywrzeć swoje niezatarte – choć mroczne – piętno na życiu Akademii. Miłość wisi w powietrzu, lecz za nią czai się dramat i Hogwart być może już nigdy nie będzie taki jak przedtem.  ... zainteresowany. Lavender Brown dochodzi do wniosku, że Ron jest jej przeznaczeniem, nie bierze tylko pod uwagę czekoladek Romildy Vane! No i oczywiście Hermiona, przeżywająca męki zazdrości, lecz zdecydowana nie ujawniać uczuć. Gdy romanse kwitną, tylko jeden uczeń pozostaje wyniosły i obojętny. Postanowił wywrzeć swoje niezatarte – choć mroczne – piętno na życiu Akademii. Miłość wisi w powietrzu, lecz za nią czai się dramat i Hogwart być może już nigdy nie będzie taki jak przedtem.
+    

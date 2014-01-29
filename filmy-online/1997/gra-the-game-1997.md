@@ -1,0 +1,9 @@
+
+        Gra / The Game 1997 
+        =============
+        
+        [![Gra / The Game 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gra-the-game-1997)
+        
+        
+ Nicholas Van Orton (Michael Douglas) kończy 48 lat. Rocznica jak rocznica, Van Orton nie przejmowałby się nią, gdyby nie pewna zbieżność: jego ojciec popełnił samobójstwo, gdy miał właśnie 48 lat. I jeszcze ten prezent od młodszego brata (Sean Penn): zaproszenie do Gry, która odmieni monotonne i nudne życie oderwanego od rzeczywistości bogacza. Nie bez ociągania Nicholas przyjmuje prezent. Od tej pory świat wokół niego zmienia się, życie nabiera tempa, wkrada się w nie strach i prawdziwe, wręcz namacalne poczucie zagrożenia. Na uczestnika Gry czyhają setki nic z pozoru nie znaczących prowokacji, a najdrobniejsze nawet ustępstwo powoduje, że każda sekunda zamienia się w walkę o przetrwanie. Ta Gra nie ma reguł, a być może nie ma i końca...  ... i prawdziwe, wręcz namacalne poczucie zagrożenia. Na uczestnika Gry czyhają setki nic z pozoru nie znaczących prowokacji, a najdrobniejsze nawet ustępstwo powoduje, że każda sekunda zamienia się w walkę o przetrwanie. Ta Gra nie ma reguł, a być może nie ma i końca...
+    

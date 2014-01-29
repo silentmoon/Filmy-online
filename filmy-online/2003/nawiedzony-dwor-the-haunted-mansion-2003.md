@@ -1,0 +1,9 @@
+
+        Nawiedzony dwór / The Haunted Mansion 2003 
+        =============
+        
+        [![Nawiedzony dwór / The Haunted Mansion 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nawiedzony-dwor-the-haunted-mansion-2003)
+        
+        
+ Jim Evers (Eddie Murphy) jest dobrze prosperującym handlarzem nieruchomościami. Minusem tego zajęcia jest to, iż ma on bardzo mało czasu dla swoich dzieci i żony Sary (Marsha Thomason). Pewnego dnia Jim dostaje bardzo atrakcyjną propozycję kupna starego pałacyku. Evers postanawia pojechać obejrzeć dom wraz z rodziną, by tą podróżą wynagrodzić rodzinie wszystkie zaniedbania. Po dotarciu na miejsce okazuje się, że właściciel dworku, Edward Gracey (Nathaniel Parker) jest bardzo tajemniczym jegomościem. Po pewnym czasie Jim dowiaduje się, że Sara jest w niebezpieczeństwie, a cały dom to jedno wielkie cmentarzysko. Okazuje się, że żona Jima jest związana z klątwą ciążącą nad mieszkańcami dworku. By odczynić czar, Sara musi poślubić Graceya. Jim musi zacząć szybko działać, póki nie będzie za późno...  ... tajemniczym jegomościem. Po pewnym czasie Jim dowiaduje się, że Sara jest w niebezpieczeństwie, a cały dom to jedno wielkie cmentarzysko. Okazuje się, że żona Jima jest związana z klątwą ciążącą nad mieszkańcami dworku. By odczynić czar, Sara musi poślubić Graceya. Jim musi zacząć szybko działać, póki nie będzie za późno...
+    

@@ -1,0 +1,9 @@
+
+        Anakonda / Anaconda 1997 
+        =============
+        
+        [![Anakonda / Anaconda 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/anakonda-anaconda-1997)
+        
+        
+ Ekipa filmowa wybiera się na wyprawę Amazonką, aby sfilmować zwyczaje pewnego tajemniczego indiańskiego plemienia. Po drodze spotykają mężczyznę - Paula (Jon Voight), którego statek ugrzązł na mieliźnie. Obiecuje on im doprowadzenie do wioski Indian. Niestety powodzenie wyprawy szybko staje pod znakiem zapytania. Jeden z uczestników zostaje użądlony przez osę wodną i trzeba go jak najprędzej odwieźć do cywilizowanego szpitala. Na swojej drodze napotykają tamę. Przy jej wysadzaniu beczki z paliwem spadają z pokładu.  Zatrzymują się przy opuszczonym wraku z nadzieją znalezienia paliwa do dalszej drogi. Nie znajdują go, a kapitan statku ginie niepostrzeżenie. Paul przynosi skrzynię ze skórami wielkich węży i sprzętem do polowania na anakondy. Okazuje się on łowcą tych zwierząt, terroryzuje załogę i rozpoczyna polowanie. Od tej pory gigantyczny wąż będzie towarzyszył bohaterom przez cały czas. Członkowie ekipy giną po kolei, ale niektórym udaje się przetrwać w dżungli. Będą musieli stoczyć walkę nie tylko z człowiekiem, ale i anakondą....   ... wysadzaniu beczki z paliwem spadają z pokładu.  Zatrzymują się przy opuszczonym wraku z nadzieją znalezienia paliwa do dalszej drogi. Nie znajdują go, a kapitan statku ginie niepostrzeżenie. Paul przynosi skrzynię ze skórami wielkich węży i sprzętem do polowania na anakondy. Okazuje się on łowcą tych zwierząt, terroryzuje załogę i rozpoczyna polowanie. Od tej pory gigantyczny wąż będzie towarzyszył bohaterom przez cały czas. Członkowie ekipy giną po kolei, ale niektórym udaje się przetrwać w dżungli. Będą musieli stoczyć walkę nie tylko z człowiekiem, ale i anakondą....
+    

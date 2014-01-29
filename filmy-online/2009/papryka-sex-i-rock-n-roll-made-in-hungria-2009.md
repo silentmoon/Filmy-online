@@ -1,0 +1,9 @@
+
+        Papryka, sex i rock’n’roll / Made in Hungária 2009 
+        =============
+        
+        [![Papryka, sex i rock’n’roll / Made in Hungária 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/papryka-sex-i-rock-n-roll-made-in-hungria-2009)
+        
+        
+ Rodzice Miklósa Fenyö wracają na komunistyczne Węgry w połowie lat sześćdziesiątych, kiedy wszyscy inni uciekają na Zachód. Dla zbuntowanego Mikiego, ubranego w hawajską koszulę i z idealnie wystylizowanymi włosami, powrót z Ameryki i życie pod kontrolą komunistycznej dyktatury oznacza dramat. Jego dawni, węgierscy przyjaciele nie wiedzą co zrobić z jego pstrokatymi ciuchami, dziwnym, amerykańskim akcentem i kolekcją Buddy’ego Holly. Jego miłość z dzieciństwa traktuje goo chłodno i z dystansem, a lokalny macho Röné za nic ma jego rock’n’rollowe talenty. Ale to nie wszystko. Kiedy miejscowe władze widzą, jaki wpływ na nastolatki, mają jego roztańczone kroki i zmysłowa muzyka, zaczynają stanowczo protestować. Ojciec Mikiego z wysokiego urzędnika państwowego staje się zwyczajnym obywatelem, a on sam po raz pierwszy w życiu musi przestrzegać jakiekolwiek reguł. Nie ma wyboru - zgłasza się do lokalnego talent show… a reszta to już historia rock’n’rolla.  ... o chłodno i z dystansem, a lokalny macho Röné za nic ma jego rock’n’rollowe talenty. Ale to nie wszystko. Kiedy miejscowe władze widzą, jaki wpływ na nastolatki, mają jego roztańczone kroki i zmysłowa muzyka, zaczynają stanowczo protestować. Ojciec Mikiego z wysokiego urzędnika państwowego staje się zwyczajnym obywatelem, a on sam po raz pierwszy w życiu musi przestrzegać jakiekolwiek reguł. Nie ma wyboru - zgłasza się do lokalnego talent show… a reszta to już historia rock’n’rolla.
+    

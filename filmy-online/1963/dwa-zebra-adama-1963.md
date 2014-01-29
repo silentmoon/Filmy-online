@@ -1,0 +1,9 @@
+
+        Dwa żebra Adama 1963 
+        =============
+        
+        [![Dwa żebra Adama 1963 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dwa-zebra-adama-1963)
+        
+        
+ Po dłuższym pobycie za granicą do rodzinnego miasteczka i czekającej tam na niego stęsknionej żony powraca inżynier Wiktus. Niedługo po nim w miasteczku pojawia się piękna Włoszka, jak się okazuje, także żona inżyniera, poślubiona we Włoszech. Obie kobiety postanawiają w zgodzie zamieszkać we trójkę pod jednym dachem. Tego jednak nie może znieść konserwatywna, małomiasteczkowa społeczność. Miejscowi stróże moralności przymknęliby może oczy na fakt 'dwużeństwa', ale ostentacyjnie zgodne pożycie tego trójkąta jest dla nich nie do zniesienia. Inżynier nie może się bowiem zdecydować, czy mieć dwie żony czy też jedną - ale wobec tego którą, by żadnej nie skrzywdzić?   ... ostentacyjnie zgodne pożycie tego trójkąta jest dla nich nie do zniesienia. Inżynier nie może się bowiem zdecydować, czy mieć dwie żony czy też jedną - ale wobec tego którą, by żadnej nie skrzywdzić?
+    

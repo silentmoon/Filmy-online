@@ -1,0 +1,9 @@
+
+        Szkoła uwodzenia / Cruel Intentions 1999 
+        =============
+        
+        [![Szkoła uwodzenia / Cruel Intentions 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szkola-uwodzenia-cruel-intentions-1999)
+        
+        
+ 'Szkoła uwodzenia' to nowa uwspółcześniona wersja 'Niebezpiecznych związków' z Johnem Malkovichem i Michelle Pfeiffer. Sebastian Valmont ma dość podrywania kolejnych dziewczyn i wyznacza sobie za cel uwiedzenie córki nowego dyrektora szkoły, Anette. Dziewczyna publicznie wyznała, że chce zachować dziewictwo do czasu, gdy spotka prawdziwą miłość. Przyrodnia siostra Sebastiana, Kathryn planuje zemstę na swoim byłym chłopaku, który porzucił ją dla Cecile. Kathryn pragnie, aby Sebastian uwiódł Cecile. Kathryn proponuje zakład. Jeśli Sebastian spędzi noc z Anette, Kathryn pójdzie z nim do łóżka. Sprawy komplikują się, gdy Sebastian zakochuje się w Anette, a intrygi Kathryn doprowadzają do tego, że Sebastian postanawia uwieść również Cecile.  ... Sebastian uwiódł Cecile. Kathryn proponuje zakład. Jeśli Sebastian spędzi noc z Anette, Kathryn pójdzie z nim do łóżka. Sprawy komplikują się, gdy Sebastian zakochuje się w Anette, a intrygi Kathryn doprowadzają do tego, że Sebastian postanawia uwieść również Cecile.
+    

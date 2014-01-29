@@ -1,0 +1,9 @@
+
+        Nieśmiertelny II: Nowe życie / Highlander II: The Quickening 1991 
+        =============
+        
+        [![Nieśmiertelny II: Nowe życie / Highlander II: The Quickening 1991 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niesmiertelny-ii-nowe-zycie-highlander-ii-the-quickening-1991)
+        
+        
+ Jest rok 2024. Connor MacLeod i jego przyjaciel Ramirez zostali wygnani z odległej przeszłości. Connor jest teraz staruszkiem i zwykłym śmiertelnikiem. Przed wielu laty nadzorował tworzenie 'tarczy' - sztucznej warstwy ozonowej mającej chronić Ziemię. Teraz spotyka Louise Marcus - działaczkę na rzecz ochrony środowiska, która uświadamia go, że warstwa ozonowa odbudowała się samoistnie i zamiast chronić Ziemię śmiertelnie jej zagraża. Właściciele 'tarczy', rządząca korporacja zamierza zabić MacLeoda, aby nadal czerpać z niej zyski. MacLeod musi zniszczyć 'tarczę' aby ocalić ludzkość. Niestety w tym samym czasie z przeszłości przybywa prześladujący MacLeoda od wieków - Generał Katana. W myśl starej reguły może istnieć tylko jeden Nieśmiertelny. Katana chce zabić MacLeoda i stać się wybranym aby za pomocą korporacji rządzić Ziemią do jej nieuchronnego unicestwienia. [opis dystrybutora do wydania DVD]  ... zamierza zabić MacLeoda, aby nadal czerpać z niej zyski. MacLeod musi zniszczyć 'tarczę' aby ocalić ludzkość. Niestety w tym samym czasie z przeszłości przybywa prześladujący MacLeoda od wieków - Generał Katana. W myśl starej reguły może istnieć tylko jeden Nieśmiertelny. Katana chce zabić MacLeoda i stać się wybranym aby za pomocą korporacji rządzić Ziemią do jej nieuchronnego unicestwienia. [opis dystrybutora do wydania DVD]
+    

@@ -1,0 +1,9 @@
+
+        Kod da Vinci / The Da Vinci Code 2006 
+        =============
+        
+        [![Kod da Vinci / The Da Vinci Code 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kod-da-vinci-the-da-vinci-code-2006)
+        
+        
+ Ofiarą popełnionego w Luwrze morderstwa pada kustosz muzeum Jacques Sauniere. Wezwany przez DCPJ Robert Langdon, harwardzki wykładowca i spec od wszelkich symboli, odkrywa na miejscu szereg zakonspirowanych śladów, które mogą pomóc w ustaleniu zabójcy, ale też stanowią klucz do jeszcze większej zagadki- niezwykłej tajemnicy sięgającej swoimi korzeniami samego początku chrześcijaństwa. Langdon podejrzewa, że ofiara była członkiem tajnego stowarzyszenia - Zakonu Syjonu - strzegącego od 1099r. największego skarbu ludzkości - Świętego Graala. Ale pozostały tylko 24h. na rozwikłanie precyzyjnie skonstruowanej łamigłówki pozostawionej przez Sauniera, albo tajemnica na zawsze przepadnie. Jedynym sprzymierzeńcem, ściganego przez policje i bezlitosnego zabójcę Langdona, jest piękna Sophie Neveu, agentka kryptograf francuskiego DCJP i zarazem wnuczka Sauniera, która chce odkryć prawdę o swojej rodzinie...  ... strzegącego od 1099r. największego skarbu ludzkości - Świętego Graala. Ale pozostały tylko 24h. na rozwikłanie precyzyjnie skonstruowanej łamigłówki pozostawionej przez Sauniera, albo tajemnica na zawsze przepadnie. Jedynym sprzymierzeńcem, ściganego przez policje i bezlitosnego zabójcę Langdona, jest piękna Sophie Neveu, agentka kryptograf francuskiego DCJP i zarazem wnuczka Sauniera, która chce odkryć prawdę o swojej rodzinie...
+    

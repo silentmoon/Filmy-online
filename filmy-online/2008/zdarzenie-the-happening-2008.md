@@ -1,0 +1,9 @@
+
+        Zdarzenie / The Happening 2008 
+        =============
+        
+        [![Zdarzenie / The Happening 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zdarzenie-the-happening-2008)
+        
+        
+ Wszystko zaczyna się nagle, bez ostrzeżenia – w ciągu kilku minut wielkie amerykańskie miasta ogarnia epidemia dziwnych, przerażających samobójstw. Co jest przyczyną tak drastycznych zmian w ludzkich zachowaniach? Czy to atak terrorystyczny? eksperyment, który wymknął się spod kontroli? nieznana dotąd broń biologiczna? nowa odmiana śmiercionośnego wirusa? Dla nauczyciela fizyki Elliota Moore’a (Mark Wahlberg – „Infiltracja”) najważniejsza staje się ucieczka przed budzącym grozę fenomenem. Chociaż jego małżeństwo z Almą (Zooey Deschanel – „Miłość na zamówienie”) przechodzi kryzys, razem wyruszają w drogę do wiejskich terenów Pensylwanii, gdzie mają nadzieję uchronić się przed atakiem. Wkrótce jednak okaże się, że nikt nie jest bezpieczny, bo przed niewidzialnym mordercą nie ma ucieczki…  ... grozę fenomenem. Chociaż jego małżeństwo z Almą (Zooey Deschanel – „Miłość na zamówienie”) przechodzi kryzys, razem wyruszają w drogę do wiejskich terenów Pensylwanii, gdzie mają nadzieję uchronić się przed atakiem. Wkrótce jednak okaże się, że nikt nie jest bezpieczny, bo przed niewidzialnym mordercą nie ma ucieczki…
+    

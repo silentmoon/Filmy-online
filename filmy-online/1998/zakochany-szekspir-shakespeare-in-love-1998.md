@@ -1,0 +1,9 @@
+
+        Zakochany Szekspir / Shakespeare in Love 1998 
+        =============
+        
+        [![Zakochany Szekspir / Shakespeare in Love 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zakochany-szekspir-shakespeare-in-love-1998)
+        
+        
+ Wiliam Szekspir, młody dramaturg cierpi na niemoc twórczą i to właśnie w okresie, gdy dostaje zamówienie na sztukę, która może okazać się jego 'przepustką do lepszego świata'. Pewnego dnia podczas przesłuchania aktorów poznaje urodziwego młodzieńca, któremu powierza jedną z głównych ról. Jednak niechcący Will odkrywa, że jego młody przyjaciel w rzeczywistości jest... kobietą o imieniu Viola. Lady Viola i Szekspir zakochują się w sobie, nawiązując płomienny romans, a jednocześnie przed innymi ludźmi grając komedię, w której Viola wciąż jest mężczyzną. Ta znajomość okazuje się dla pisarza prawdziwym lekarstwem, a w jego sztuce dochodzi do przełomu. Niestety, Viola została obiecana innemu mężczyźnie i kiedy prawda wychodzi na jaw, kochankowie muszą się rozdzielić. Życie przyszykowało jednak dla nich jeszcze niejedną niespodziankę...  ... jednocześnie przed innymi ludźmi grając komedię, w której Viola wciąż jest mężczyzną. Ta znajomość okazuje się dla pisarza prawdziwym lekarstwem, a w jego sztuce dochodzi do przełomu. Niestety, Viola została obiecana innemu mężczyźnie i kiedy prawda wychodzi na jaw, kochankowie muszą się rozdzielić. Życie przyszykowało jednak dla nich jeszcze niejedną niespodziankę...
+    

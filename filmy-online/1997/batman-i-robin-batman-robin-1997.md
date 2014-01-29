@@ -1,0 +1,9 @@
+
+        Batman i Robin / Batman & Robin 1997 
+        =============
+        
+        [![Batman i Robin / Batman & Robin 1997 ](http://vidos.pl/images/player.gif)](http://vidos.pl/batman-i-robin-batman-robin-1997)
+        
+        
+ Przeraźliwy chłód sparaliżował Gotham City. Znękane miasto ponownie staje w obliczu zagłady. Ostatnią nadzieją na ocalenie jest Batman (George Clooney). Gdy na nocnym niebie pojawia się znak nietoperza, Batman natychmiast rusza na pomoc w swoim niesamowitym Batmobilu. Tym razem nie jest sam. Towarzyszy mu przyjaciel i pomocnik - Robin (Chris O'Donnell), który na swym turbo motocyklu podąża jak cień za pojazdem Batmana. To nie będzie łatwa walka. Mr Freeze (Arnold Schwarzenegger) ma do pomocy piękną, ale niebezpieczną istotę zadającą śmierć poprzez pocałunek - kobietę o mrożącym krew w żyłach przydomku - Trujący Bluszcz (Uma Thurman). Naprzeciw pary bezlitosnych zabójców stają Batman i Robin uzbrojeni w nowoczesne, budzące respekt wroga narzędzia i pojazdy. W sukurs obrońcom dobra przychodzi Batgirl (Alicia Silverstone), niezwykle sprawna i odważna dziewczyna. Trójka bohaterów stanie w obronie Gotham City, które Mr Freeze planuje zamienić w skutą lodem pustynię.  ... Schwarzenegger) ma do pomocy piękną, ale niebezpieczną istotę zadającą śmierć poprzez pocałunek - kobietę o mrożącym krew w żyłach przydomku - Trujący Bluszcz (Uma Thurman). Naprzeciw pary bezlitosnych zabójców stają Batman i Robin uzbrojeni w nowoczesne, budzące respekt wroga narzędzia i pojazdy. W sukurs obrońcom dobra przychodzi Batgirl (Alicia Silverstone), niezwykle sprawna i odważna dziewczyna. Trójka bohaterów stanie w obronie Gotham City, które Mr Freeze planuje zamienić w skutą lodem pustynię.
+    

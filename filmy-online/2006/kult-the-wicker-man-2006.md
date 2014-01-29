@@ -1,0 +1,9 @@
+
+        Kult / The Wicker Man 2006 
+        =============
+        
+        [![Kult / The Wicker Man 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kult-the-wicker-man-2006)
+        
+        
+ Szeryf Edward Malus (Nicolas Cage) ma za sobą traumatyczne przeżycia, o których bardzo chce zapomnieć. Kiedyś niechcący przyczynił się do śmierci małej dziewczynki. Być może los pozwoli mu jednak odkupić swoje winy. Pewnego dnia pojawia się w jego życiu była dziewczyna, prosząc o pomoc w odnalezieniu córki, która zaginęła w tajemniczych okolicznościach. Śledztwo prowadzi Malusa na niewielką wyspę. Początkowo jej mieszkańcy odnoszą się do niego z chłodną rezerwą, później z jawną i rosnącą wrogością. Policjant wkrótce odkrywa, że na wyspie odbywają się dziwne i przerażające okultystyczne seanse, a ich uczestnicy oddają cześć pogańskim bóstwom. Powoli oplata go sieć wiekowych obrzędów i zabójczych kłamstw. Czyżby dziewczynka została poświęcona jednemu z bożków w ofierze? [opis dystrybutora]  ... jawną i rosnącą wrogością. Policjant wkrótce odkrywa, że na wyspie odbywają się dziwne i przerażające okultystyczne seanse, a ich uczestnicy oddają cześć pogańskim bóstwom. Powoli oplata go sieć wiekowych obrzędów i zabójczych kłamstw. Czyżby dziewczynka została poświęcona jednemu z bożków w ofierze? [opis dystrybutora]
+    

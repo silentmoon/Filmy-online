@@ -1,0 +1,9 @@
+
+        Dzika rzeka / The River Wild 1994 
+        =============
+        
+        [![Dzika rzeka / The River Wild 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dzika-rzeka-the-river-wild-1994)
+        
+        
+ Gail (Meryl Streep) była niegdyś przewodnikiem po rzece Kolorado. Przed laty często przemierzała jej wody, biorąc udział w wielu spływach. Teraz jej małżeństwo z Tomem (David Strathairn) przeżywa kryzys. Ostatnią szansą dla ich związku jest spędzenie urlopu wraz z dziesięcioletnim synem. Spływ kajakowy pełną niebezpieczeństw i zasadzek górską rzeką wydaje się idealnym lekarstwem dla skłóconych małżonków. Wkrótce spokojnie zapowiadający się wypoczynek zamienia się w koszmar, gdyż do łodzi Gail i Toma wdzierają się trzej, przypadkowo poznani nad brzegiem rzeki, mężczyźni. Z pozoru sympatyczni nieznajomi okazują się niebezpiecznymi przestępcami, ściganymi przez policję. Ich przywódca, Wade (Kevin Bacon), bierze synka Gail jako zakładnika, zmuszając kobietę, by popłynęła razem z nimi w dół rzeki i pomogła im pokonać najniebezpieczniejszy odcinek trasy.   ... gdyż do łodzi Gail i Toma wdzierają się trzej, przypadkowo poznani nad brzegiem rzeki, mężczyźni. Z pozoru sympatyczni nieznajomi okazują się niebezpiecznymi przestępcami, ściganymi przez policję. Ich przywódca, Wade (Kevin Bacon), bierze synka Gail jako zakładnika, zmuszając kobietę, by popłynęła razem z nimi w dół rzeki i pomogła im pokonać najniebezpieczniejszy odcinek trasy.
+    

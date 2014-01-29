@@ -1,0 +1,9 @@
+
+        Niezwykła podróż Baltazara Kobera 1988 
+        =============
+        
+        [![Niezwykła podróż Baltazara Kobera 1988 ](http://vidos.pl/images/player.gif)](http://vidos.pl/niezwykla-podroz-baltazara-kobera-1988)
+        
+        
+ 16-letni Baltazar, syn budziszyńskiego doktora Sigismunda, spotyka na grobli archanioła Gabriela, który nakazuje mu wejść w oczyszczający płomień i towarzyszy mu w niezwykłej podróży do Jerozolimy. Kober zostaje przyjęty do seminarium teologicznego, ale jego wrażliwość, zdolność kontaktowania się z zaświatami, stają się przyczyną drwin i niechęci ze strony kolegów i kleryków. Umiera ojciec Baltazara. Młodzieńca otaczają duchy zmarłych, prześladuje go upadły anioł Flamand, uosobienie Szatana. W drodze powrotnej do Drezna spotyka podróżnika Pappagallo, który prowadzi Baltazara do obozu komediantów, gdzie chłopak poznaje piękną lutnistkę Rosę. Gdy rano budzi się na łące obozowisko jest puste. Baltazar przybywa do seminarium. Pomaga w ucieczce drukarzowi, którego uwalnia od ścigająch go prześladowców rektora; opuszcza seminarium. Baltazar nocuje w oberży, którą wskazał mu Flamand. Ukazuje mu się matka, od której dowiaduje się o reformatorskiej działalności drukarza skazanego wyrokiem inkwizycji na stos.   ... uosobienie Szatana. W drodze powrotnej do Drezna spotyka podróżnika Pappagallo, który prowadzi Baltazara do obozu komediantów, gdzie chłopak poznaje piękną lutnistkę Rosę. Gdy rano budzi się na łące obozowisko jest puste. Baltazar przybywa do seminarium. Pomaga w ucieczce drukarzowi, którego uwalnia od ścigająch go prześladowców rektora; opuszcza seminarium. Baltazar nocuje w oberży, którą wskazał mu Flamand. Ukazuje mu się matka, od której dowiaduje się o reformatorskiej działalności drukarza skazanego wyrokiem inkwizycji na stos.
+    

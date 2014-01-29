@@ -1,0 +1,9 @@
+
+        Capote 2005 
+        =============
+        
+        [![Capote 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/capote-2005)
+        
+        
+ Truman García Capote (Philip Seymour Hoffman) w latach 60. ubiegłego wieku był jednocześnie ulubieńcem i postrachem nowojorskiej elity. Ceniono go za geniusz oraz literacki talent, skrycie zaś pogardzano nim za jego sposób bycia i liczne prowokacje obyczajowe. Film Bennetta Millera nie obejmuje całej biografii artysty. Przedstawia tylko jeden, ale za to bardzo ważny epizod z jego życia: pobyt Trumana Capote w Holcomb (Kansas), gdzie pisarz - wraz z przyjaciółką Nelle Harper Lee (Catherine Keener) - przyglądał się dochodzeniu i procesowi w głośnej sprawie brutalnego morderstwa, popełnionego 15 listopada 1959 roku na członkach farmerskiej rodziny Clutterów. Odbył on również wiele rozmów ze sprawcami tej makabrycznej zbrodni, skazanymi później na śmierć przez powieszenie. Historia ta przyczyniła się do powstania (wydanej w 1966 roku) bestsellerowej powieści, autorstwa właśnie Trumana Capote, inspirowanej jego przeżyciami z tamtego okresu - 'Z zimną krwią'.   ... Lee (Catherine Keener) - przyglądał się dochodzeniu i procesowi w głośnej sprawie brutalnego morderstwa, popełnionego 15 listopada 1959 roku na członkach farmerskiej rodziny Clutterów. Odbył on również wiele rozmów ze sprawcami tej makabrycznej zbrodni, skazanymi później na śmierć przez powieszenie. Historia ta przyczyniła się do powstania (wydanej w 1966 roku) bestsellerowej powieści, autorstwa właśnie Trumana Capote, inspirowanej jego przeżyciami z tamtego okresu - 'Z zimną krwią'.
+    

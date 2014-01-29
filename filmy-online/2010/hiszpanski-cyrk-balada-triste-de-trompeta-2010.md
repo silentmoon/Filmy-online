@@ -1,0 +1,9 @@
+
+        Hiszpański cyrk / Balada triste de trompeta 2010 
+        =============
+        
+        [![Hiszpański cyrk / Balada triste de trompeta 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/hiszpanski-cyrk-balada-triste-de-trompeta-2010)
+        
+        
+ Hiszpania, rok 1973, nieśmiały i wrażliwy Javier zatrudnia się w cyrku jako klaun. Podobnie jak jego ojciec i dziadek pragnie rozśmieszać dzieci, jednak sam nie zaznał szczęśliwego dzieciństwa i dlatego zostaje 'smutnym klaunem'. W cyrku poznaje bezwzględnego 'wesołego klauna' Sergio, który terroryzuje współpracowników i bije swoją dziewczynę. Tu zaczyna się tragikomiczna opowieść o dwóch klaunach, którzy pchani przez pożądanie będą walczyć na śmierć i życie o miłość niezwykle pięknej i równie okrutnej Natalii, która doprowadzi ich do szaleństwa... HISZPAŃSKI CYRK to wybuchowa mieszanka ekstrawaganckiego i bezkompromisowego kina spod znaku Tarantino i Rodrigueza. Sam reżyser opisuje film jako 'groteskową tragedię' - szalone kino, które nie uznaje żadnych tabu ani ograniczeń. Przygody dwóch zwaśnionych klaunów rozgrywają się na tle hiszpańskiej historii XX wieku - od wojny domowej przez dyktaturę Franco aż po szalony festiwal wolności lat 70.   ... miłość niezwykle pięknej i równie okrutnej Natalii, która doprowadzi ich do szaleństwa... HISZPAŃSKI CYRK to wybuchowa mieszanka ekstrawaganckiego i bezkompromisowego kina spod znaku Tarantino i Rodrigueza. Sam reżyser opisuje film jako 'groteskową tragedię' - szalone kino, które nie uznaje żadnych tabu ani ograniczeń. Przygody dwóch zwaśnionych klaunów rozgrywają się na tle hiszpańskiej historii XX wieku - od wojny domowej przez dyktaturę Franco aż po szalony festiwal wolności lat 70.
+    

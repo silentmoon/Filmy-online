@@ -1,0 +1,9 @@
+
+        Śmietnisko / Waste Land 2010 
+        =============
+        
+        [![Śmietnisko / Waste Land 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mietnisko-waste-land-2010)
+        
+        
+ Film jest zapisem podróży słynnego artysty Vika Muniza, który opuszcza swój dom na Brooklynie, aby wyruszyć do ojczystej Brazylii na największe na świecie wysypisko śmieci, Jardim Gramacho, mieszczące się na peryferiach Rio de Janeiro. Na miejscu artysta fotografuje eklektyczną grupę 'catadores', jak nazywa się samozwańczych zbieraczy materiałów nadających się do ponownego przetworzenia. Pierwotnym założeniem Munitza było 'odmalowanie' zdjęć catadores  za pomocą śmieci. Jednak podczas współpracy z tymi inspirującymi postaciami, gdy na podstawie zrobionych im zdjęć na nowo tworzyli ze śmieci własne podobizny, okazało się, że catadores z godnością. lecz jednocześnie rozpaczą próbują na nowo wyobrazić sobie własne życie. Lucy Walker (reżyserka filmów Devil's Playground oraz Ślepy los) z ogromnym wyczuciem towarzyszy całemu procesowi, przedstawiając na końcu wzruszający dowód możliwości zmiany poprzez sztukę oraz ukazując alchemię ludzkiej duszy.   ... Jednak podczas współpracy z tymi inspirującymi postaciami, gdy na podstawie zrobionych im zdjęć na nowo tworzyli ze śmieci własne podobizny, okazało się, że catadores z godnością. lecz jednocześnie rozpaczą próbują na nowo wyobrazić sobie własne życie. Lucy Walker (reżyserka filmów Devil's Playground oraz Ślepy los) z ogromnym wyczuciem towarzyszy całemu procesowi, przedstawiając na końcu wzruszający dowód możliwości zmiany poprzez sztukę oraz ukazując alchemię ludzkiej duszy.
+    

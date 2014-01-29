@@ -1,0 +1,9 @@
+
+        Sahara 2005 
+        =============
+        
+        [![Sahara 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/sahara-2005)
+        
+        
+ 'Sahara' jest pierwszym z serii filmów opowiadających o przygodach Pitta, wydana po raz pierwszy w 1992 r. powieść uważana jest za jedną z najlepszych w serii. Bezkresne pustynie Egiptu. Eva Rojas, naukowiec z ramienia ONZ, prowadzi śledztwo w sprawie śmiercionośnej zarazy dziesiątkującej okoliczną ludność i morska faunę. Amerykański agent rządowy Dirk Pitt wraz ze swoim współpracownikiem, postanawiają wesprzeć Evę w poszukiwaniach źródła epidemii, która rozprzestrzenia się już na cały kontynent. Wkrótce okazuje się, że za przeciwników mają niebezpiecznego przemysłowca – miliardera i pozbawionego skrupułów afrykańskiego dyktatora, którzy nie wahają się dla zysku doprowadzić kontynent do zagłady.  ... się już na cały kontynent. Wkrótce okazuje się, że za przeciwników mają niebezpiecznego przemysłowca – miliardera i pozbawionego skrupułów afrykańskiego dyktatora, którzy nie wahają się dla zysku doprowadzić kontynent do zagłady.
+    

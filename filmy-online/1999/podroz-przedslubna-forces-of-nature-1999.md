@@ -1,0 +1,9 @@
+
+        Podróż przedślubna / Forces of Nature 1999 
+        =============
+        
+        [![Podróż przedślubna / Forces of Nature 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/podroz-przedslubna-forces-of-nature-1999)
+        
+        
+ Ben musi dostać się z Nowego Jorku do Savannah na ślub z Bridget. Ma wszystko pod kontrolą aż do momentu, gdy ekscentryczna młoda kobieta o imieniu Sarah dosłownie wpada w jego życie. Pierwszy zwiastun katastrofy pojawia się, kiedy samolot Bena i Sarah zjeżdża niebezpiecznie z pasa startowego. Ben ratuje życie Sarah i wkrótce okazuje się, że odziedziczył nie do końca pożądanego towarzysza podróży. Ben, mimo tego, że spóźnia się, zboczył z trasy i został prawie pozbawiony ubrań , nie panikuje i zaczyna zdawać sobie sprawę z tego, że pociąga go seksowna i energiczna dziewczyna. Co  to uczucie jest obustronne. Wydaje się, że człowiek, maszyna i siły natury spiskują, by powstrzymać Bena od obietnic, pozostawiając go rozmyślającego, czy nie jest to swego rodzaju kosmiczny test... a jeśli tak , to czy go zda?   ... ubrań , nie panikuje i zaczyna zdawać sobie sprawę z tego, że pociąga go seksowna i energiczna dziewczyna. Co więcej to uczucie jest obustronne. Wydaje się, że człowiek, maszyna i siły natury spiskują, by powstrzymać Bena od obietnic, pozostawiając go rozmyślającego, czy nie jest to swego rodzaju kosmiczny test... a jeśli tak , to czy go zda?
+    

@@ -1,0 +1,9 @@
+
+        Marzyciel / Finding Neverland 2004 
+        =============
+        
+        [![Marzyciel / Finding Neverland 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/marzyciel-finding-neverland-2004)
+        
+        
+ James Barrie (Johnny Depp) ma żonę Mary (Radha Mitchell), piękny dom i psa, ale nie jest szczęśliwy. Pisze sztuki i książki, które nikomu nie przypadają do gustu, a on nie wie, jaka jest tego przyczyna. Wszystko zmienia się pewnego pięknego dnia, gdy całkowicie przypadkowo poznaje w parku wdowę Sylvię Llewelyn Davies (Kate Winslet) i jej czterech synów. Od tego momentu James czuje, że jest komuś potrzebny - staje się członkiem tej rodziny i prawdziwym przyjacielem Sylvii. Przez to stają się w mieście obiektem plotek, a Barriego na dodatek opuszcza żona. Jedyną pozytywną rzeczą jest fakt, że od momentu poznania z rodziną Daviesów, James zaczyna pisać wspaniałą powieść, która uwieczni jego imię na wieki. Ma zamiar pokazać szerszej publiczności krainę Nibylandii, gdzie przebywa Piotruś Pan. Do tej krainy można dotrzeć jedynie wtedy, gdy się w nią bardzo mocno uwierzy. Pozorną sielankę może przerwać tylko choroba Sylvii...  ... Przez to stają się w mieście obiektem plotek, a Barriego na dodatek opuszcza żona. Jedyną pozytywną rzeczą jest fakt, że od momentu poznania z rodziną Daviesów, James zaczyna pisać wspaniałą powieść, która uwieczni jego imię na wieki. Ma zamiar pokazać szerszej publiczności krainę Nibylandii, gdzie przebywa Piotruś Pan. Do tej krainy można dotrzeć jedynie wtedy, gdy się w nią bardzo mocno uwierzy. Pozorną sielankę może przerwać tylko choroba Sylvii...
+    

@@ -1,0 +1,9 @@
+
+        Droga do raju 2008 
+        =============
+        
+        [![Droga do raju 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/droga-do-raju-2008)
+        
+        
+ Malownicze Sudety. Niewielkie miasteczko otoczone górami i oddalone od najbliższej, wielotysięcznej miejscowości, o 20 km. Z dala od problemów wielkiego świata, Ela (Ilona Ostrowska), samotna matka kilkuletniego chłopca, pracuje w zakładach mięsnych i opiekuje się schorowaną matką. Ela stawia czoła wszelkim przeciwnościom losu i wbrew otaczającej ją szarej codzienności jest szczęśliwa. Uwielbia gotować, a jeszcze bardziej - wymyślać przepisy. Do pełni zadowolenia brakuje jej tylko miłości. Kiedy pojawia się Mirek (Przemysław Sadowski), syn lokalnego sędziego, zdaje jej się, że droga do raju w końcu stanęła otworem. Tylko czy w tak małym świecie znajdzie się miejsce dla dużej miłości?   ... tylko miłości. Kiedy pojawia się Mirek (Przemysław Sadowski), syn lokalnego sędziego, zdaje jej się, że droga do raju w końcu stanęła otworem. Tylko czy w tak małym świecie znajdzie się miejsce dla dużej miłości?
+    

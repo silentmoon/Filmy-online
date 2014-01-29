@@ -1,0 +1,9 @@
+
+        Renifer Niko ratuje Święta / Niko - Lentäjän poika 2008 
+        =============
+        
+        [![Renifer Niko ratuje Święta / Niko - Lentäjän poika 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/renifer-niko-ratuje-wieta-niko-lentjn-poika-2008)
+        
+        
+ Małego renifera Niko samotnie wychowała mama, ponieważ jego tata jest członkiem legendarnej Powietrz­nej Eskadry Świętego Mikołaja. Niko nigdy nie spotkał taty, ale bardzo go podziwia i chciałby w przyszłości być taki jak on. Marzy o tym, aby dostać się do ekipy najbardziej odlotowych reniferów – reniferów Świętego Mikołaja. Kiedy stado głodnych wilków, któremu przewodzi Czarny Wilk, napada na renifery, Niko postanawia zwrócić się o pomoc do taty. Aby go odnaleźć i pokrzyżować niecne plany wrogów, mały renifer razem z przyjaciółmi – wiewiórką Juliusem i łasicą Wilmą – wyrusza w długą i niebezpieczną podróż. Stawka jest wy­soka – wilki zagrażają nie tylko rodzinie Niko, ale całemu światu – chcą zniszczyć święta Bożego Narodzenia...  ... pokrzyżować niecne plany wrogów, mały renifer razem z przyjaciółmi – wiewiórką Juliusem i łasicą Wilmą – wyrusza w długą i niebezpieczną podróż. Stawka jest wy­soka – wilki zagrażają nie tylko rodzinie Niko, ale całemu światu – chcą zniszczyć święta Bożego Narodzenia...
+    

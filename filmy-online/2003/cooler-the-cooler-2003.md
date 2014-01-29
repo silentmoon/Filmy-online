@@ -1,0 +1,9 @@
+
+        Cooler / The Cooler 2003 
+        =============
+        
+        [![Cooler / The Cooler 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/cooler-the-cooler-2003)
+        
+        
+ Film, który zdobył popularność i uznanie na FF w Sundance to historia Berniego Lootza, najbardziej pechowego człowieka w Las Vegas, którego zły los przenosi się także na ludzi, którzy z nim przebywają. Właściciel jednego z kasyn używa więc Berniego do 'likwidowania' wygranych największych dotychczasowych szczęściarzy. W ten sposób bohater spłaca swój ogromny dług wobec kasyna. Wychodzi na tym na tyle dobrze, że pewnego dnia postanawia opuścić Vegas, na co jednak nie chcą się zgodzić jego 'pracodawcy'. Sprawy komplikują się dodatkowo, gdy Bernie zakochuje się w kelnerce pracującej z nim w kasynie i traci swe zdolności 'rozsiewania' pecha w promieniu paru kilometrów...   ... zgodzić jego 'pracodawcy'. Sprawy komplikują się dodatkowo, gdy Bernie zakochuje się w kelnerce pracującej z nim w kasynie i traci swe zdolności 'rozsiewania' pecha w promieniu paru kilometrów...
+    

@@ -1,0 +1,9 @@
+
+        Mumia: Grobowiec Cesarza Smoka / The Mummy: Tomb of the Dragon Emperor 2008 
+        =============
+        
+        [![Mumia: Grobowiec Cesarza Smoka / The Mummy: Tomb of the Dragon Emperor 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mumia-grobowiec-cesarza-smoka-the-mummy-tomb-of-the-dragon-emperor-2008)
+        
+        
+ Wielki przebój kinowy 'Mumia' doczekał się trzeciej odsłony. Tym razem los (do spółki ze scenarzystami) rzuca głównych bohaterów do Azji. Brendan Fraser powraca jako nieustraszony odkrywca Rick O'Connell, by zmierzyć się ze świeżo wskrzeszonym cesarzem Hanem (Jet Li). Ich walka rozegra się wśród starożytnych grobowców i na szczytach Himalajów. Rickowi towarzyszą syn Alex (debiutujący Luke Ford), żona Evelyn (Maria Bello) oraz jej brat, Jonathan (John Hannah). O'Connellowie muszą pokonać mumię bo w przeciwnym razie światem zawładnie złowroga i bezlitosna siła. Cesarz smok, skazany przez podstępną czarodziejkę (Michelle Yeoh) na wieczny niebyt, postanawia odzyskać dawne wpływy przy pomocy armii złożonej z 10 tysięcy wojowników z terakoty. Gdy Alex zostanie oszukany przez podłego władcę, z pomocą przyjdą mu jego rodzice. Dojdzie do emocjonującej rozprawy...  ... muszą pokonać mumię bo w przeciwnym razie światem zawładnie złowroga i bezlitosna siła. Cesarz smok, skazany przez podstępną czarodziejkę (Michelle Yeoh) na wieczny niebyt, postanawia odzyskać dawne wpływy przy pomocy armii złożonej z 10 tysięcy wojowników z terakoty. Gdy Alex zostanie oszukany przez podłego władcę, z pomocą przyjdą mu jego rodzice. Dojdzie do emocjonującej rozprawy...
+    

@@ -1,0 +1,9 @@
+
+        Nienarodzony / The Unborn 2009 
+        =============
+        
+        [![Nienarodzony / The Unborn 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/nienarodzony-the-unborn-2009)
+        
+        
+ Bywa, że dusza zmarłej osoby tak bardzo została owładnięta przez zło, że odmawia jej się szansy przekroczenia bram niebios. Musi bez końca błąkać się na granicy światów, desperacko poszukując nowego ciała, w którym mogłaby zamieszkać. I czasami jej się to udaje. Casey Beldon (Odette Annable) nienawidzi swojej matki, która porzuciła ją w dzieciństwie. Kiedy jednak zaczynają dziać się wokół niej niewytłumaczalne rzeczy, Casey zaczyna rozumieć powody, dla których odeszła jej matka. Dręczona koszmarami i duchem, który nawiedza ją co rano, dziewczyna musi zwrócić się do jedynej osoby - rabina Sendaka (Gary Oldman) - która jest w stanie ją wyzwolić. Z pomocą Sendaka, Casey odkrywa źródło rodzinnej klątwy tkwiące w przeszłości, w nazistowskich Niemczech - ducha posiadającego zdolność zawładnięcia każdą żywą istotą. Kiedy klątwa zostaje uwolniona, jedyną szansą dla dziewczyny jest zamknięcie drzwi do naszego świata, które zostały siłą otwarte przez kogoś, kto nigdy się nie narodził.  ... matka. Dręczona koszmarami i duchem, który nawiedza ją co rano, dziewczyna musi zwrócić się do jedynej osoby - rabina Sendaka (Gary Oldman) - która jest w stanie ją wyzwolić. Z pomocą Sendaka, Casey odkrywa źródło rodzinnej klątwy tkwiące w przeszłości, w nazistowskich Niemczech - ducha posiadającego zdolność zawładnięcia każdą żywą istotą. Kiedy klątwa zostaje uwolniona, jedyną szansą dla dziewczyny jest zamknięcie drzwi do naszego świata, które zostały siłą otwarte przez kogoś, kto nigdy się nie narodził.
+    

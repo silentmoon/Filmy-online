@@ -1,0 +1,9 @@
+
+        Smak curry / The Lunchbox 2013 
+        =============
+        
+        [![Smak curry / The Lunchbox 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/smak-curry-the-lunchbox-2013)
+        
+        
+ Bohaterami filmu są samotny wdowiec, Saajan (Irrfan Khan), i młoda kobieta, Ila (Nimrat Kaur), która pragnie na nowo rozpalić miłość męża, wykorzystując przy tym zasadę 'przez żołądek do serca'. Gdy Ila zamawia posiłek dla swojego małżonka, Dabbawala (w Bombaju określa się tym mianem osoby dostarczające jedzenie do domów w specjalnych pojemnikach) popełnia błąd w dostawie, przywożąc zamówienie do mieszkania Saajana. Wdowiec, zdając sobie sprawę z pomyłki, zostawia Dabbawali notatkę, którą ten dostarcza do kobiety. Wymiana korespondencji między dwojgiem nieznajomych staje się od częścią ich codzienności. W międzyczasie Ila doświadcza osobistego nieszczęścia i dzieli się smutkiem z Saajanem, wspominając jednocześnie w przesłanej mu wiadomości, że chciałaby przenieść się do Bhutanu, gdzie mieliby żyć bardziej radośnie. Wdowiec, którego każdy dzień od śmierci żony przepełniony był monotonią, rozważa radykalną zmianę swojego życia...   ... notatkę, którą ten dostarcza do kobiety. Wymiana korespondencji między dwojgiem nieznajomych staje się od częścią ich codzienności. W międzyczasie Ila doświadcza osobistego nieszczęścia i dzieli się smutkiem z Saajanem, wspominając jednocześnie w przesłanej mu wiadomości, że chciałaby przenieść się do Bhutanu, gdzie mieliby żyć bardziej radośnie. Wdowiec, którego każdy dzień od śmierci żony przepełniony był monotonią, rozważa radykalną zmianę swojego życia...
+    

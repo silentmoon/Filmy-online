@@ -1,0 +1,9 @@
+
+        Parnassus / The Imaginarium of Doctor Parnassus 2009 
+        =============
+        
+        [![Parnassus / The Imaginarium of Doctor Parnassus 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/parnassus-the-imaginarium-of-doctor-parnassus-2009)
+        
+        
+ Spotkanie największych gwiazd filmowych: ostatnia rola Heatha Ledgera ('Mroczny rycerz'), któremu na ekranie partnerują Johnny Depp (seria 'Piraci z Karaibów'), Colin Farrell ('Aleksander'), Jude Law ('Bliżej', 'Wzgórze nadziei') i Tom Waits ('Poza prawem') w roli samego diabła. Wielkie filmowe widowisko z pogranicza fantasy i mrocznej baśni, pełne efektów specjalnych wyreżyserowane przez Terry'ego Gilliama ('Nieustraszeni bracia Grimm', '12 małp'). Doktor Parnassus ze swoim objazdowym teatrem 'Imaginarium' przemierza świat. Każde przedstawienie pozwala publiczności na niezwykłą podróż do świata wyobraźni: ich marzeń i lęków. Jednak Parnassus ma pewien mroczny sekret. Przez lata skrywane wydarzenie z młodości zmusza go, by wziąć udział w pojedynku, którego stawką będzie życie jego córki. Pojedynku z diabłem...   ... objazdowym teatrem 'Imaginarium' przemierza świat. Każde przedstawienie pozwala publiczności na niezwykłą podróż do świata wyobraźni: ich marzeń i lęków. Jednak Parnassus ma pewien mroczny sekret. Przez lata skrywane wydarzenie z młodości zmusza go, by wziąć udział w pojedynku, którego stawką będzie życie jego córki. Pojedynku z diabłem...
+    

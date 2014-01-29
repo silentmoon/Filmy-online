@@ -1,0 +1,9 @@
+
+        Mój tydzień z Marilyn / My Week with Marilyn 2011 
+        =============
+        
+        [![Mój tydzień z Marilyn / My Week with Marilyn 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/moj-tydzien-z-marilyn-my-week-with-marilyn-2011)
+        
+        
+ Ikona seksu i blichtru Hollywood (Michelle Williams) przyjeżdża do Londynu, aby wystąpić w filmie u boku Laurence'a Oliviera (Kenneth Branagh). Towarzyszy jej świeżo poślubiony mąż, dramaturg Arthur Miller (Dougray Scott), który jednak szybko wyjeżdża. Podczas pobytu na Starym Kontynencie, gwiazdą zajmuje się młody asystent reżysera Colin (Eddie Redmayne), który spędzi z nią niezwykły tydzień, za który większość oddałaby całe życie. Nie wszystko, co się w tym czasie wydarzy, zapisze się w historii, ale z pewnością pozostanie w sercach dwójki ludzi.  ... Kontynencie, gwiazdą zajmuje się młody asystent reżysera Colin (Eddie Redmayne), który spędzi z nią niezwykły tydzień, za który większość oddałaby całe życie. Nie wszystko, co się w tym czasie wydarzy, zapisze się w historii, ale z pewnością pozostanie w sercach dwójki ludzi.
+    

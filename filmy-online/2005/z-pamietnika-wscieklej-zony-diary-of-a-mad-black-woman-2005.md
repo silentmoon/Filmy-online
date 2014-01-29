@@ -1,0 +1,9 @@
+
+        Z pamiętnika wściekłej żony / Diary of a Mad Black Woman 2005 
+        =============
+        
+        [![Z pamiętnika wściekłej żony / Diary of a Mad Black Woman 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/z-pamietnika-wscieklej-zony-diary-of-a-mad-black-woman-2005)
+        
+        
+ Wydaje się, że Helen McCarter (Kimberly Elise) wiedzie perfekcyjne życie u boku swego męża Charlesa McCartera (Steve Harris). Przez lata była wierną i oddaną żoną, podczas gdy Charles budował swą wspaniałą karierę wybitnego adwokata z Atlanty. Ubierają się w najmodniejsze ciuchy, jeżdżą najładniejszymi samochodami, mają wszystko czego potrzebują, mieszkają w bardzo drogiej posiadłości z pałacem, basenem, kortem tenisowym itp. Mały raj oddalony od zgiełku miasta. Jednak w przeddzień 18 rocznicy ślubu idealne życie Helen wali się w gruzy gdy Charles oświadcza, że chce rozwodu. Wyrzuca Helen z posiadłości, aby móc sprowadzić do domu inną kobietę. Ze wszystkimi swoimi rzeczami spakowanymi w vanie Helen opuszcza dom i zaczyna od nowa układać swoje życie. Z pomocą przyjaciół, rodziny, wiary i odrobiny szczęścia udaje jej się znaleźć siłę potrzebną do zapanowania nad chaosem, który zapanował w jej życiu. Odkrywa, że tragiczne chwile jej życia zmieniły się w komiczne dzięki obecności i pomocy ukochanej babci Madey (Tyler Perry).   ... przeddzień 18 rocznicy ślubu idealne życie Helen wali się w gruzy gdy Charles oświadcza, że chce rozwodu. Wyrzuca Helen z posiadłości, aby móc sprowadzić do domu inną kobietę. Ze wszystkimi swoimi rzeczami spakowanymi w vanie Helen opuszcza dom i zaczyna od nowa układać swoje życie. Z pomocą przyjaciół, rodziny, wiary i odrobiny szczęścia udaje jej się znaleźć siłę potrzebną do zapanowania nad chaosem, który zapanował w jej życiu. Odkrywa, że tragiczne chwile jej życia zmieniły się w komiczne dzięki obecności i pomocy ukochanej babci Madey (Tyler Perry).
+    

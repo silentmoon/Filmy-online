@@ -1,0 +1,9 @@
+
+        Gulczas, a jak myślisz? 2001 
+        =============
+        
+        [![Gulczas, a jak myślisz? 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gulczas-a-jak-myslisz-2001)
+        
+        
+ Wschód słońca nad jeziorem Łękotka. Gdy wczasowicze zażywają zasłużonego odpoczynku, strudzony pracą reżyser filmowy leczy kaca, psychopatyczny morderca o poetyckiej duszy poluje na nowe ofiary, zaś zdesperowany pan Karol (Janusz Rewiński) poszukuje córki Karoliny (Karolina Pachniewicz), która uciekła z narzeczonym Grzesiem (Grzegorz Mielec). Wielbiący prawo i porządek strażnik miejski Janusz (Janusz Dzięcioł) apeluje o ciszę do dwóch przyjaciół Gulczasa (Piotr Gulczyński) i Klaudiusza (Klaudiusz Sevkovic), początkująca gwiazda Monika (Monika Sewioło) musi wybierać między karierą filmową i propozycjami wszechwładnego sponsora, zaś pielęgniarka Małgosia (Małgorzata Maier) szuka sobie nowego pacjenta. Na szosach stają chłopskie blokady, prywatni detektywi łapią klientów, a tylko ukrywająca się pod pseudonimem Kobra agentka Alicja (Alicja Walczak) śledzi niejakiego Karkówę (Rudi Schuberth)- szefa gangu motocyklowego i narkotykowego dealera. Zaczyna się zwyczajny dzień XXI wieku - fascynujący temat dla dziennikarki Manueli (Manuela Michalak). Fascynujący temat na film...   ... Klaudiusza (Klaudiusz Sevkovic), początkująca gwiazda Monika (Monika Sewioło) musi wybierać między karierą filmową i propozycjami wszechwładnego sponsora, zaś pielęgniarka Małgosia (Małgorzata Maier) szuka sobie nowego pacjenta. Na szosach stają chłopskie blokady, prywatni detektywi łapią klientów, a tylko ukrywająca się pod pseudonimem Kobra agentka Alicja (Alicja Walczak) śledzi niejakiego Karkówę (Rudi Schuberth)- szefa gangu motocyklowego i narkotykowego dealera. Zaczyna się zwyczajny dzień XXI wieku - fascynujący temat dla dziennikarki Manueli (Manuela Michalak). Fascynujący temat na film...
+    

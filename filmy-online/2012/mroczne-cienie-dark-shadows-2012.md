@@ -1,0 +1,9 @@
+
+        Mroczne cienie / Dark Shadows 2012 
+        =============
+        
+        [![Mroczne cienie / Dark Shadows 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mroczne-cienie-dark-shadows-2012)
+        
+        
+ W 1752 roku, Joshua i Naomi Collinsowie, wraz z synem Barnabasem wyruszyli z Liverpoolu do Ameryki by rozpocząć nowe życie. Ale nawet ucieczka za ocean nie wystarczyła by uniknąć tajemniczej klątwy, która raz na zawsze przeklęła ich rodzinę. Mijają dwie dekady, a dorosły Barnabas (Johnny Depp) ma świat u stóp, a właściwie miasto Collinsport w Maine. Mieszka w pięknym dworze Colinwood. Jego życie obfituje w bogactwa, władzę i piękne kobiety - do czasu, gdy robi poważny błąd, zakochując się i łamiąc serce Angelique Brouchard (Eva Green). Czarownica, w każdym tego słowa znaczeniu, skazuje go na los gorszy od śmierci: zamieniając go w wampira, a następnie grzebiąc żywcem. Niespełna dwa wieki później, w 1972 roku, Barnabas, nieumyślnie uwolniony z grobu przez śmiertelników, powraca do życia, lecz w bardzo zmienionym świecie, także pod względem punktu widzenia wampira. Odwiedza swoją dawną posiadłość i odkrywa, że jego niegdyś wielki majątek popadł w ruinę. Jak się okazuje, dysfunkcyjnym resztkom rodziny Collinsów wcale nie wiedzie się lepiej...   ... zakochując się i łamiąc serce Angelique Brouchard (Eva Green). Czarownica, w każdym tego słowa znaczeniu, skazuje go na los gorszy od śmierci: zamieniając go w wampira, a następnie grzebiąc żywcem. Niespełna dwa wieki później, w 1972 roku, Barnabas, nieumyślnie uwolniony z grobu przez śmiertelników, powraca do życia, lecz w bardzo zmienionym świecie, także pod względem punktu widzenia wampira. Odwiedza swoją dawną posiadłość i odkrywa, że jego niegdyś wielki majątek popadł w ruinę. Jak się okazuje, dysfunkcyjnym resztkom rodziny Collinsów wcale nie wiedzie się lepiej...
+    

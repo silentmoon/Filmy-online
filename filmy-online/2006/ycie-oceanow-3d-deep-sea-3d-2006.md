@@ -1,0 +1,9 @@
+
+        Życie Oceanów 3D / Deep Sea 3D 2006 
+        =============
+        
+        [![Życie Oceanów 3D / Deep Sea 3D 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ycie-oceanow-3d-deep-sea-3d-2006)
+        
+        
+ Diabeł Morski, Koralowiec, Meduza, Kałamarnica, Żółw Zielony oraz Krewetka Mantis mają zaszczyt zaprosić na niesamowity oceaniczny spektakl rozgrywający się tuż pod taflą wody – na ŻYCIE OCEANÓW 3D. Przedstawione historie są autentyczne a My staniemy się świadkami niecodziennych, różnorodnych związków wielobarwnych bohaterów. Siedząc w fotelu kinowym zaopatrzeni jedynie w trójwymiarowe okulary zamiast maski do nurkowania, będziemy mogli pływać wśród najbardziej egzotycznych stworzeń zamieszkujących naszą planetę, od dziwacznego Tęczowego Ślimaka Nagoskrzelnego do Olbrzymiej Ośmiornicy Pacyficznej a różnorodność podwodnego świata zachwyci nas swym niewiarygodnym pięknem ukrytym tuż pod falami. Dzięki magii IMAX 3D naszych bohaterów obejrzymy na największym na świecie ekranie. Dzięki 1850 godzinom spędzonym przez ekipę filmową pod wodą dowiemy się, że ośmiornice mogą zmieniać swój kształt, tak, że przecisną się przez najmniejszy otwór a ważą aż 90 kg a ich macki sięgają na odległość 7,5 metra  ... egzotycznych stworzeń zamieszkujących naszą planetę, od dziwacznego Tęczowego Ślimaka Nagoskrzelnego do Olbrzymiej Ośmiornicy Pacyficznej a różnorodność podwodnego świata zachwyci nas swym niewiarygodnym pięknem ukrytym tuż pod falami. Dzięki magii IMAX 3D naszych bohaterów obejrzymy na największym na świecie ekranie. Dzięki 1850 godzinom spędzonym przez ekipę filmową pod wodą dowiemy się, że ośmiornice mogą zmieniać swój kształt, tak, że przecisną się przez najmniejszy otwór a ważą aż 90 kg a ich macki sięgają na odległość 7,5 metra
+    

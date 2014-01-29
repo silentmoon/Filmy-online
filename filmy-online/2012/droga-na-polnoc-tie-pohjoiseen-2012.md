@@ -1,0 +1,9 @@
+
+        Droga na północ / Tie Pohjoiseen 2012 
+        =============
+        
+        [![Droga na północ / Tie Pohjoiseen 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/droga-na-polnoc-tie-pohjoiseen-2012)
+        
+        
+ Poukładane życie czterdziestoletniego pianisty Timo (Samuli Edelmann) rozsypuje się jak domek z kart, gdy opuszcza go żona, a on zastaje pod drzwiami mieszkania, niejako w zamian, schorowanego ojca, Leo (Vesa-Matti Loiri), którego nie widział od 30 lat. Ich ponowne spotkanie zbiega się z momentem dla obu przełomowym. Stracili niemal wszystko, co mieli i w co wierzyli, lecz jeden jest absolutnym przeciwieństwem drugiego. Starszy pan to wrak człowieka zniszczony przez życie pełne alkoholu i papierosów. Kłótliwy i niesubordynowany, zdaje sobie jednak sprawę, że stoi nad grobem i najbliższe dni to prawdopodobnie jego ostatnia szansa poprawienia relacji z synem. Kradnie więc z parkingu Pontiaca Catalinę i przekonuje Timo do wyprawy do Laponii. W drodze ma zamiar wyznać mu ważną rodzinną tajemnicę... Nim jednak to się stanie, spotykają ich zarówno zabawne, jak i wzruszające przygody. Nocują w przydrożnych hotelach, a Timo dowiaduje się, że ma siostrę. W końcu zabierają matkę Leo, staruszkę, by ta mogła po raz ostatni zobaczyć swój rodzinny dom. Leo uparcie wiedzie syna drogą na północ...   ... pełne alkoholu i papierosów. Kłótliwy i niesubordynowany, zdaje sobie jednak sprawę, że stoi nad grobem i najbliższe dni to prawdopodobnie jego ostatnia szansa poprawienia relacji z synem. Kradnie więc z parkingu Pontiaca Catalinę i przekonuje Timo do wyprawy do Laponii. W drodze ma zamiar wyznać mu ważną rodzinną tajemnicę... Nim jednak to się stanie, spotykają ich zarówno zabawne, jak i wzruszające przygody. Nocują w przydrożnych hotelach, a Timo dowiaduje się, że ma siostrę. W końcu zabierają matkę Leo, staruszkę, by ta mogła po raz ostatni zobaczyć swój rodzinny dom. Leo uparcie wiedzie syna drogą na północ...
+    

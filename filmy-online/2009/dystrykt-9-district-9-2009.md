@@ -1,0 +1,9 @@
+
+        Dystrykt 9 / District 9 2009 
+        =============
+        
+        [![Dystrykt 9 / District 9 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dystrykt-9-district-9-2009)
+        
+        
+ 28 lat temu obcy przybywają na Ziemię. Ludzie oczekują na wrogi atak lub olbrzymi postęp technologiczny. Nic z tych rzeczy. Obcy stają się uchodźcami. Zostają osadzeni w prowizorycznej południowoafrykańskiej dzielnicy - 'Dystrykcie 9', póki państwa świata nie zadecydują, co z nimi zrobić. Teraz cierpliwość w związku z sytuacją obcych wyczerpała się. Kontrolę nad nimi zlecono Multi-National United (MNU), prywatnej spółce nie dbającej o ich dobro - otrzymają ogromne zyski za zmuszenie ich do stworzenia niesamowitej broni. Jak dotąd zawodzą. Uruchomienie broni wymaga DNA obcych. Napięcie między cudzoziemcami a ludźmi osiąga punkt krytyczny. Wikus Van De Merwe (Sharlto Copley) znajduje tajemniczy wirus, który zaczyna zmieniać jego DNA. Wikus szybko zostaje najbardziej zaszczutym człowiekiem na świecie, jak również najcenniejszym - jest kluczem do odkrycia tajemnic obcej technologii. Zostaje porzucony przez przyjaciół. Jest tylko jedno miejsce, gdzie może się ukryć: 'Dystrykt 9'.  ... zmuszenie ich do stworzenia niesamowitej broni. Jak dotąd zawodzą. Uruchomienie broni wymaga DNA obcych. Napięcie między cudzoziemcami a ludźmi osiąga punkt krytyczny. Wikus Van De Merwe (Sharlto Copley) znajduje tajemniczy wirus, który zaczyna zmieniać jego DNA. Wikus szybko zostaje najbardziej zaszczutym człowiekiem na świecie, jak również najcenniejszym - jest kluczem do odkrycia tajemnic obcej technologii. Zostaje porzucony przez przyjaciół. Jest tylko jedno miejsce, gdzie może się ukryć: 'Dystrykt 9'.
+    

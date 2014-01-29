@@ -1,0 +1,10 @@
+
+        Boogeyman 2005 
+        =============
+        
+        [![Boogeyman 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/boogeyman-2005)
+        
+        
+ Tim wydaje się być przeciętnym dwudziestolatkiem - przyzwoita praca, udany związek z uroczą Jessicą. Nikt jednak nie wie, że od dzieciństwa dławi go paraliżujący strach, który z każdym dniem narasta... Koszmar zaczął się, gdy chłopiec miał 8 lat. Co noc ojciec czytał mu bajki, które przyprawiały chłopca o dreszcze. Każda opowieść kończyła się jednak szczęśliwie, tak aby Tim mógł zasnąć w spokoju. Pewnego wieczoru na oczach przerażonego Tima ojciec został wciągnięty przez tajemniczą siłę do szafy i na zawsze zniknął z życia swoich bliskich. Młodego człowieka prześladuje obawa, że sam kiedyś stanie się ofiarą legendarnego Boogeymana. Stara się nie dawać mu okazji na spotkanie w jego mieszkaniu nie ma ciemnych kątów ani szaf, a do spania służy materac... Jednak w wyniku dziwnego splotu okoliczności Tim musi wrócić do domu rodzinnego, zaniedbanej i ponuro wyglądającej wiktoriańskiej posiadłości. Stopniowo nabiera pewności, że w miejscu, w którym przeżył największy dramat dzieciństwa czyha na niego ten sam potwór, który zmienił jego życie w koszmar... 
+  ... tajemniczą siłę do szafy i na zawsze zniknął z życia swoich bliskich. Młodego człowieka prześladuje obawa, że sam kiedyś stanie się ofiarą legendarnego Boogeymana. Stara się nie dawać mu okazji na spotkanie w jego mieszkaniu nie ma ciemnych kątów ani szaf, a do spania służy materac... Jednak w wyniku dziwnego splotu okoliczności Tim musi wrócić do domu rodzinnego, zaniedbanej i ponuro wyglądającej wiktoriańskiej posiadłości. Stopniowo nabiera pewności, że w miejscu, w którym przeżył największy dramat dzieciństwa czyha na niego ten sam potwór, który zmienił jego życie w koszmar...
+    

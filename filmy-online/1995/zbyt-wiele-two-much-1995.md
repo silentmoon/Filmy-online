@@ -1,0 +1,9 @@
+
+        Zbyt wiele / Two Much 1995 
+        =============
+        
+        [![Zbyt wiele / Two Much 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zbyt-wiele-two-much-1995)
+        
+        
+ One dwie i on jeden... to zbyt wiele, nawet dla gorącokrwistego Hiszpana... Art Dodge pracuje w galerii sztuki. JEst cwaniaczkiem, którego życie traktuje po macoszemu. Pewnego dnia poznaje przepiękną blondynkę Betty, byłą żonę gangstera. Oboje zaczynają się sobą interesować. Betty zaprasza Arta do mieszkania. Tam poznaję go ze swoją siostrą, równie piękną Liz. Art zakochuje się w niej od pierwszego wejrzenia, ale wie że ich romans nie ma szans, gdyż ....nie cierpi cwanego Arta. Ten wpada na iście diabelski pomysł - udawania brata bliźniaka Barta, kóry byłby odpowiedzią na wszystkie potrzeby Liz: inteligenty, romantyczny, czuły.... Problem jest tylko jeden: jak być w dwóch miejscach jednocześnie....?   ... Arta. Ten wpada na iście diabelski pomysł - udawania brata bliźniaka Barta, kóry byłby odpowiedzią na wszystkie potrzeby Liz: inteligenty, romantyczny, czuły.... Problem jest tylko jeden: jak być w dwóch miejscach jednocześnie....?
+    

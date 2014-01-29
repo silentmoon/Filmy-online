@@ -1,0 +1,9 @@
+
+        Pod prąd / Contracorriente 2009 
+        =============
+        
+        [![Pod prąd / Contracorriente 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pod-prad-contracorriente-2009)
+        
+        
+ W małej, peruwiańskiej wiosce rybackiej o silnych tradycjach Miguel i jego piękna żona, Mariela - oboje głęboko wierzący i aktywnie uczestniczący w życiu miasteczka , oczekują pierwszego potomka. Jedocześnie Miguel ma głęboko skrywaną tajemnicę – łączy go namiętny romans z Santiago, malarzem, który opuścił ukochane miasto dla pasji, a z czasem - dla Miguela. Santiago jest wykluczony ze społeczności przez swoją orientację seksualną, co tym bardziej skłania Miguela doo ukrywania znajomości - wbrew oczekiwaniom kochanka. Nieoczekiwany wypadek sprawia, że Miguel i Santiago mogą się sobą cieszyć w przestrzeni publicznej, nie narażając się na ostracyzm reszty mieszkańców. Ta radość nie trwa jednak długo i Miguel staje przed ważną decyzją: czy odżegnać się zupełnie od najważniejszego w jego życiu związku, czy przyznać się do zakazanej miłości i uczcić pamięć Santiago.   ... o ukrywania znajomości - wbrew oczekiwaniom kochanka. Nieoczekiwany wypadek sprawia, że Miguel i Santiago mogą się sobą cieszyć w przestrzeni publicznej, nie narażając się na ostracyzm reszty mieszkańców. Ta radość nie trwa jednak długo i Miguel staje przed ważną decyzją: czy odżegnać się zupełnie od najważniejszego w jego życiu związku, czy przyznać się do zakazanej miłości i uczcić pamięć Santiago.
+    

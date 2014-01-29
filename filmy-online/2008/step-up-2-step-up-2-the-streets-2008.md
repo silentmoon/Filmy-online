@@ -1,0 +1,9 @@
+
+        Step Up 2 / Step Up 2: The Streets 2008 
+        =============
+        
+        [![Step Up 2 / Step Up 2: The Streets 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/step-up-2-step-up-2-the-streets-2008)
+        
+        
+ Kontynuacja wielkiego taneczno-muzycznego przeboju „Step Up: Taniec zmysłów”. Tym razem dwa razy  tańca i dwa razy  muzyki! Ona - Andie (Briana Evigan), przyszywana siostra Tylera Gage'a (Channing Tatum) bohatera pierwszej części 'Step Up -Taniec zmysłów', zbuntowana tancerka z gorszej dzielnicy. On - Chase (Robert Hoffman), najlepszy i najgorętszy tancerz w Akademii Tańca w Maryland. Połączy ich pasja i udział w legendarnym ale nielegalnym turnieju tańca ulicy. Wygrać w nim mogą tylko najlepsi, dlatego Andie i Chase muszą dać z siebie wszystko. Choreografia 'STEP UP 2' została stworzona przez trzy legendy świata hip hopu, kreujące układy taneczne w wideoklipach Ushera, P.Diddiego, Spice Girls, Outcast czy Missy Elliot a także w oryginalnej edycji telewizyjnego programu 'You Can Dance'. Na ścieżce dźwiękowej znalazły się najlepszy hip hop i R&B, w tym takie nazwiska jak: FloRida, T-Pain, Missy Elliott, Akon, Cassie, Scarface.   ... Wygrać w nim mogą tylko najlepsi, dlatego Andie i Chase muszą dać z siebie wszystko. Choreografia 'STEP UP 2' została stworzona przez trzy legendy świata hip hopu, kreujące układy taneczne w wideoklipach Ushera, P.Diddiego, Spice Girls, Outcast czy Missy Elliot a także w oryginalnej edycji telewizyjnego programu 'You Can Dance'. Na ścieżce dźwiękowej znalazły się najlepszy hip hop i R&B, w tym takie nazwiska jak: FloRida, T-Pain, Missy Elliott, Akon, Cassie, Scarface.
+    

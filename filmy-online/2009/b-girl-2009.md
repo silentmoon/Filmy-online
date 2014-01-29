@@ -1,0 +1,9 @@
+
+        B-Girl 2009 
+        =============
+        
+        [![B-Girl 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/b-girl-2009)
+        
+        
+ Porywająca historia młodej pasjonatki tańca Angel (czołowa b-girl Ameryki Jules Urich, rozsławiona przez telewizyjny hit 'America’s Best Dance Crew' i znany 500 tysiącom polskich widzów 'Step Up 2'), która porzuca niebezpieczne ulice Brooklynu, aby spełnić marzenia o karierze breakdancerki w Los Angeles. Pozbawiona oddanych przyjaciół i skłócona z przeciwną jej planom matką (Missy Yager), Angel musi przezwyciężyć kontuzję i nieufność lokalnych tancerzy, aby stanąć do emocjonującej bitwy b-boyów i udowodnić rywalom, że ona po prostu najlepiej tańczy! U boku utalentowanej Urich wystąpili najlepsi b-boye świata: Flipz, FleaRock, Legacy (finalista amerykańskiej edycji 'You Can Dance'), Remedy, Steelo i Rainen, a niesamowitą choreografię do żeńsko-męskiej bitwy tancerzy przygotował Ivan 'Flipz' Velez, gwiazda 'Step Up 3D', 'Honey' i 'Be Cool'.  ... emocjonującej bitwy b-boyów i udowodnić rywalom, że ona po prostu najlepiej tańczy! U boku utalentowanej Urich wystąpili najlepsi b-boye świata: Flipz, FleaRock, Legacy (finalista amerykańskiej edycji 'You Can Dance'), Remedy, Steelo i Rainen, a niesamowitą choreografię do żeńsko-męskiej bitwy tancerzy przygotował Ivan 'Flipz' Velez, gwiazda 'Step Up 3D', 'Honey' i 'Be Cool'.
+    

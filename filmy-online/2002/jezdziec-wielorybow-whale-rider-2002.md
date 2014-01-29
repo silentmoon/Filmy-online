@@ -1,0 +1,9 @@
+
+        Jeździec wielorybów / Whale Rider 2002 
+        =============
+        
+        [![Jeździec wielorybów / Whale Rider 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jezdziec-wielorybow-whale-rider-2002)
+        
+        
+ W małej nadbrzeżnej wiosce Nowej Zelandii zamieszkuje plemię Maori pochodzące od przodka imieniem Paikea, Jeźdźcy Wielorybów. W każdym pokoleniu, jest męski spadkobierca tytułu wodza. Czas próby nadchodzi, gdy rodzą się bliźniaki i jeden z nich umiera (chłopiec), Koro (Rawiri Paratene), obecny przywódca, nie jest w stanie zaakceptować swojej wnuczki, Pai (Keisha Castle-Hughes), jako przyszłego przywódcy. Parę lat później, Koro jest przekonany, że nieszczęście jego ludu zaczęło się od narodzin Pai i wzywa swój lud, aby przyprowadzili swoich synów do jego szkoły w nadziei, że odnajdzie wśród nich nowego przywódcę. Pai kocha Koro bardziej niż ktokolwiek inny na świecie, ale musi przeciwstawić się jemu i tysiącom lat tradycji by pokazać prawdziwą drogę swojemu ludowi. . .   ... zaczęło się od narodzin Pai i wzywa swój lud, aby przyprowadzili swoich synów do jego szkoły w nadziei, że odnajdzie wśród nich nowego przywódcę. Pai kocha Koro bardziej niż ktokolwiek inny na świecie, ale musi przeciwstawić się jemu i tysiącom lat tradycji by pokazać prawdziwą drogę swojemu ludowi. . .
+    

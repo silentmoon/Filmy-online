@@ -1,0 +1,9 @@
+
+        Miasto ślepców / Blindness 2008 
+        =============
+        
+        [![Miasto ślepców / Blindness 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/miasto-slepcow-blindness-2008)
+        
+        
+ Thriller o tajemniczej epidemii ślepoty, która dotknęła ludzkość, powstał na podstawie powieści noblisty Jose Saramago. W niewyjaśnionych okolicznościach mieszkańcy pewnego miasta tracą wzrok. Nagła choroba rozprzestrzenia się z taką prędkością, że wkrótce porzucone zostają wszelkie próby znalezienia lekarstwa, gdyż każdy kontakt z zarażonym powoduje utratę wzroku. Wśród ludzi wybucha panika. Władze są coraz bardziej bezradne, w obliczu szerzącej się epidemii decydują się odizolować chorych w opuszczonym szpitalu psychiatrycznym i poddać ich kwarantannie. Wraz z gwałtownie rosnącą liczbą pacjentów dramatycznie pogarsza się ich sytuacja. Stopniowo wyczerpują się zapasy jedzenia, zaczyna się walka o władzę. Jeden ze zbuntowanych pacjentów (Gael Garcia Bernal) posuwa się do niewyobrażalnej brutalności stając się samozwańczym przywódcą jednej z grup. Do szpitala trafia także kobieta (Julianne Moore), która pozorując utratę wzroku, postanawia towarzyszyć swojemu mężowi.  ... odizolować chorych w opuszczonym szpitalu psychiatrycznym i poddać ich kwarantannie. Wraz z gwałtownie rosnącą liczbą pacjentów dramatycznie pogarsza się ich sytuacja. Stopniowo wyczerpują się zapasy jedzenia, zaczyna się walka o władzę. Jeden ze zbuntowanych pacjentów (Gael Garcia Bernal) posuwa się do niewyobrażalnej brutalności stając się samozwańczym przywódcą jednej z grup. Do szpitala trafia także kobieta (Julianne Moore), która pozorując utratę wzroku, postanawia towarzyszyć swojemu mężowi.
+    

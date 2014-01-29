@@ -1,0 +1,9 @@
+
+        Druga młodość 1938 
+        =============
+        
+        [![Druga młodość 1938 ](http://vidos.pl/images/player.gif)](http://vidos.pl/druga-mlodosc-1938)
+        
+        
+ Irena jest żoną bogatego przemysłowca Ludwika Mohorta. Wyszła za mąż w wieku 16 lat, ma dwóch dorosłych synów i niedosyt miłości. Zaniedbywana przez męża, który przez 25 lat małżeństwa nie miał dla niej nigdy czasu, rozpaczliwie próbuje coś zmienić w swoim życiu. Przypadkowo poznaje Jerzego, przyjaciela jej syna Ryszarda. Ten dla żartu przedstawia matkę jako swoją siostrę. Jerzy zakochuje się w niej bez pamięci, a złakniona miłości Irena odwzajemnia to uczucie. Prawda wychodzi na jaw, ale uczucie Jerzego do Ireny nie wygasa.Ogarnięta  miłosnym uniesieniem Irena opuszcza dom i wyjeżdża z Jerzym do Zakopanego. Przeżywa tam najpiękniejszy okres swego życia. Idylla jednak wkrótce się kończy. Jerzy podczas górskiej wycieczki poznaje piękną i młodą Tamarę, w której się zakochuje. Zrozpaczona Irena widząc, że straciła miłość kochanka, wyjeżdża. Przez 6 lat podróżuje po Europie a gdy zostaje bez grosza, stara i schorowana, wraca do Warszawy...   ... wychodzi na jaw, ale uczucie Jerzego do Ireny nie wygasa.Ogarnięta  miłosnym uniesieniem Irena opuszcza dom i wyjeżdża z Jerzym do Zakopanego. Przeżywa tam najpiękniejszy okres swego życia. Idylla jednak wkrótce się kończy. Jerzy podczas górskiej wycieczki poznaje piękną i młodą Tamarę, w której się zakochuje. Zrozpaczona Irena widząc, że straciła miłość kochanka, wyjeżdża. Przez 6 lat podróżuje po Europie a gdy zostaje bez grosza, stara i schorowana, wraca do Warszawy...
+    

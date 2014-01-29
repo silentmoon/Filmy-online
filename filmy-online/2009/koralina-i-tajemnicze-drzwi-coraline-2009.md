@@ -1,0 +1,9 @@
+
+        Koralina i tajemnicze drzwi / Coraline 2009 
+        =============
+        
+        [![Koralina i tajemnicze drzwi / Coraline 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/koralina-i-tajemnicze-drzwi-coraline-2009)
+        
+        
+ Film zrealizowany na podstawie książki Neila Gaimana „Koralina”. Pewnego dnia, kiedy Koralina zwiedza nowy dom, odkrywa, że jej mieszkanie ma 14 drzwi. 13 drzwi otwiera się bez problemu i prowadzi do rzeczywistych miejsc w mieszkaniu. Czternaste drzwi znajdują się w odległym kącie pracowni i są zamknięte. Drzwi prowadzą do ciemnego przejścia, a stąd do niespokojnego miejsca spowitego mgłą i zamieszkałego przez alternatywną wersję jej sąsiadów i rodziców. Ci rodzice, jej druga mama i drugi tata, chcą by została z nimi. Zapewniają ją że będzie kochana bardziej, niż w rzeczywistości, że jedzenie będzie o wiele lepsze, niż w rzeczywistym świecie. I wszystko początkowo jest lepsze aż do chwili gdy jej druga mama chce zatrzymać Koralinę na zawsze, używając do tego magii i przemocy, i porywa jej prawdziwych rodziców. Koralina musi stawić czoło własnemu strachowi i uwolnić rodziców i dusze trzech martwych dzieci. Na szczęście znajduje w tym pomocnika-czarnego, mówiącego kota.  ... mama i drugi tata, chcą by została z nimi. Zapewniają ją że będzie kochana bardziej, niż w rzeczywistości, że jedzenie będzie o wiele lepsze, niż w rzeczywistym świecie. I wszystko początkowo jest lepsze aż do chwili gdy jej druga mama chce zatrzymać Koralinę na zawsze, używając do tego magii i przemocy, i porywa jej prawdziwych rodziców. Koralina musi stawić czoło własnemu strachowi i uwolnić rodziców i dusze trzech martwych dzieci. Na szczęście znajduje w tym pomocnika-czarnego, mówiącego kota.
+    

@@ -1,0 +1,9 @@
+
+        Dwa miliony dolarów napiwku / It Could Happen to You 1994 
+        =============
+        
+        [![Dwa miliony dolarów napiwku / It Could Happen to You 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dwa-miliony-dolarow-napiwku-it-could-happen-to-you-1994)
+        
+        
+ W czasie pełnienia służby nowojorski policjant Charlie Lang (Nicolas Cage) wstępuje do małego baru na filiżankę kawy. Podczas płacenia rachunku, okazuje się, że zabrakło mu pieniędzy na napiwek dla sympatycznej kelnerki Yvonne (Bridget Fonda). W zamian chce wręczyć miłej dziewczynie kupiony przed kilkunastoma minutami los, jednak ona odmawia. Charlie obiecuje więc Yvonne, że odda jej połowę wygranej. Los płata mu figla, gdyż okazuje się, że właśnie wygrał 4 miliony dolarów. Zgodnie z umową zamierza wypłacić Yvonne obiecaną kwotę. Wówczas do akcji wkracza jego chciwa żona, która nie ma ochoty dzielić się pieniędzmi...   ... Zgodnie z umową zamierza wypłacić Yvonne obiecaną kwotę. Wówczas do akcji wkracza jego chciwa żona, która nie ma ochoty dzielić się pieniędzmi...
+    

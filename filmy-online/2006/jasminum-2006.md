@@ -1,0 +1,9 @@
+
+        Jasminum 2006 
+        =============
+        
+        [![Jasminum 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jasminum-2006)
+        
+        
+ Dziejące się współcześnie 'Jasminum' (łacińska nazwa jaśminu) opowiada historię tajemniczą i magiczną, pełną zmysłowych zapachów, wypełnioną szczególnym światłem jakie roztacza wokół siebie miłość. Klasztor, w którym toczy się akcja filmu, nie różniłby się od innych, gdyby nie fakt, że trzech mieszkających tam zakonników posiada pewną niezwykłą cechę. Każdy z nich pachnie innym, owocowym zapachem: jeden czeremchą, drugi czereśnią, a trzeci śliwą, a zapachy te mają szczególne właściwości... Pewnego dnia do klasztoru przyjeżdża młoda konserwatorka malarstwa, która otrzymuje zlecenie odnowienia tamtejszych obrazów. Natasza pojawia się w Jaśminowie wraz ze swoją 5-letnią córką Gienią. Urok i dociekliwość dziewczynki wprowadzają wiele zamętu w spokojne dotąd życie mnichów. W tej historii i ludzie i budynki i zapachy mają swoje tajemnice.  ... właściwości... Pewnego dnia do klasztoru przyjeżdża młoda konserwatorka malarstwa, która otrzymuje zlecenie odnowienia tamtejszych obrazów. Natasza pojawia się w Jaśminowie wraz ze swoją 5-letnią córką Gienią. Urok i dociekliwość dziewczynki wprowadzają wiele zamętu w spokojne dotąd życie mnichów. W tej historii i ludzie i budynki i zapachy mają swoje tajemnice.
+    

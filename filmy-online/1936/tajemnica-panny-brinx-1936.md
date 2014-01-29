@@ -1,0 +1,9 @@
+
+        Tajemnica Panny Brinx 1936 
+        =============
+        
+        [![Tajemnica Panny Brinx 1936 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tajemnica-panny-brinx-1936)
+        
+        
+ Tłem akcji tego filmu są góry. Tam właśnie rozgrywają się najważniejsze wydarzenia. Oto młoda kobieta, aktorka, Wanda Tarska idzie na wycieczkę z przygodnie poznaną w pociągu Amerykanką Ketty Brinx. Podczas tej wyprawy ma miejsce nieszczęśliwe wydarzenie: Ketty wpada w przepaść. Na Wandę spada podejrzenie o zabójstwo, gdyż na miejscu wypadku zostaje znaleziona przecięta nożem lina. Do akcji wkraczają detektywi, ale rozwikłanie zagadki okazuje się bardzo trudne. Jedyną wskazówką, są słowa: 'Henry Gieras' - czyjeś imię i nazwisko, które Katty wykrzyknęła przed upadkiem. W tym czasie przybywa do Polski Henryk Malewicz. Okazuje się, że jest on kuzynem Ketty i przyjeżdża właśnie po to, by ją odnaleźć. W czasie swych poszukiwań, poznaje zaś Wandę Tarską...   ... wskazówką, są słowa: 'Henry Gieras' - czyjeś imię i nazwisko, które Katty wykrzyknęła przed upadkiem. W tym czasie przybywa do Polski Henryk Malewicz. Okazuje się, że jest on kuzynem Ketty i przyjeżdża właśnie po to, by ją odnaleźć. W czasie swych poszukiwań, poznaje zaś Wandę Tarską...
+    

@@ -1,0 +1,9 @@
+
+        Krucjata Bourne'a / The Bourne Supremacy 2004 
+        =============
+        
+        [![Krucjata Bourne'a / The Bourne Supremacy 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krucjata-bourne-a-the-bourne-supremacy-2004)
+        
+        
+ W roku 2002 widzowie w kinach na całym świecie poznali Jasona Bourne'a - bohatera sfilmowanego bestsellera Roberta Ludluma 'Tożsamość Bourne'a'. Teraz Jason Bourne powraca w drugiej części - 'Krucjata Bourne'a'. Dwa lata temu Bourne'owi (Matt Damon) wydawało się, że zdołał uciec przed przeszłością. Wraz z Marią (Franka Potente) przenosili się z miasta do miasta, ścigani urywkami wspomnień, których nie rozumieli. Uciekali przed nocnymi koszmarami, których znaczenia nie znali. Przypadkowe spojrzenie nieznajomego, pomyłkowy telefon - w każdej sekundzie, bez ostrzeżenia przeszłość mogła wrócić. I ta przeszłość powróciła. Ale... Bourne został wyszkolony na zawodowego zabójcę. Ci, którzy go ścigali, powinni byli zostawić go w spokoju. Przekonają się o tym.  ... Przypadkowe spojrzenie nieznajomego, pomyłkowy telefon - w każdej sekundzie, bez ostrzeżenia przeszłość mogła wrócić. I ta przeszłość powróciła. Ale... Bourne został wyszkolony na zawodowego zabójcę. Ci, którzy go ścigali, powinni byli zostawić go w spokoju. Przekonają się o tym.
+    

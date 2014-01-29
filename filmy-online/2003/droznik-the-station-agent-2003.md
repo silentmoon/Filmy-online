@@ -1,0 +1,9 @@
+
+        Dróżnik / The Station Agent 2003 
+        =============
+        
+        [![Dróżnik / The Station Agent 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/droznik-the-station-agent-2003)
+        
+        
+ Samotnik Fin (Peter Dinklage) to karzeł zafascynowany wszystkim co jest związane z kolejnictwem - pociągami, torami i dworcami. Po śmierci właściciela sklepu z kolejkami dla dzieci - swego szefa - dziedziczy po nim małą, opuszczoną stację w zachodnim New Jersey. Miasteczko Newfoundland to dziura tak zapadła, że przyjazd Fina, ku jego przerażeniu, staje się ogromnym wydarzeniem dla jego mieszkańców. Nowy nabytek miał być dla niego oazą spokoju, pustelnią o której zawsze marzył. Tymczasem, przypadek sprawia, że zaprzyjaźnia się z równie jak on samotną malarką Olivią (Patricia Clarkson), oraz rozwrzeszczanym, spragnionym towarzystwa sprzedawcą hot - dogów - Joe (Bobby Cannavale).  ... marzył. Tymczasem, przypadek sprawia, że zaprzyjaźnia się z równie jak on samotną malarką Olivią (Patricia Clarkson), oraz rozwrzeszczanym, spragnionym towarzystwa sprzedawcą hot - dogów - Joe (Bobby Cannavale).
+    

@@ -1,0 +1,9 @@
+
+        Don Juan DeMarco 1994 
+        =============
+        
+        [![Don Juan DeMarco 1994 ](http://vidos.pl/images/player.gif)](http://vidos.pl/don-juan-demarco-1994)
+        
+        
+ Dawniej lekarz-psychiatra, potem scenarzysta - Jeremy Leven filmem 'Don Juan De Marco' w 1995 r. zadebiutował jako reżyser. Pomysł oparł na swych własnych zawodowych doświadczeniach terapeuty. I tak narodziła się opowieść o starzejącym się psychiatrze, przeżywającym kryzys duchowy i jego młodym pacjencie, wyobrażającym sobie, że jest najsławniejszym uwodzicielem wszech czasów, który uwiódł ponad tysiąc kobiet. Właśnie zamierza popełnić samobójstwo - rzucić się ze szczytu tablicy reklamowej. Szaleniec? Ocenić ma to psychiatra - doktor Jack Mikler, stary, doświadczony lekarz. Sprawa nie jest jednak łatwa - lekarz ma ze swym pacjentem duży kłopot. W jego urojonym świecie sam czuje się tak dobrze, jak jeszcze nigdy dotąd. Uwierzywszy w sens, jaki nadaje życiu tajemniczy Don Juan DeMarco, odnajduje dawno zapomniane szczęście, radość i siły witalne. Jest to liryczna, refleksyjna i przepełniona ciepłym humorem opowieść o miłości, a właściwie o głęboko ludzkiej potrzebie przeżywania tego najpiękniejszego z uczuć. To z tego filmu pochodzi popularna piosenka Briana Adamsa 'Have You Ever Really Loved A Woman?'.   ... tablicy reklamowej. Szaleniec? Ocenić ma to psychiatra - doktor Jack Mikler, stary, doświadczony lekarz. Sprawa nie jest jednak łatwa - lekarz ma ze swym pacjentem duży kłopot. W jego urojonym świecie sam czuje się tak dobrze, jak jeszcze nigdy dotąd. Uwierzywszy w sens, jaki nadaje życiu tajemniczy Don Juan DeMarco, odnajduje dawno zapomniane szczęście, radość i siły witalne. Jest to liryczna, refleksyjna i przepełniona ciepłym humorem opowieść o miłości, a właściwie o głęboko ludzkiej potrzebie przeżywania tego najpiękniejszego z uczuć. To z tego filmu pochodzi popularna piosenka Briana Adamsa 'Have You Ever Really Loved A Woman?'.
+    

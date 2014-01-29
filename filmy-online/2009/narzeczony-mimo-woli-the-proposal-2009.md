@@ -1,0 +1,9 @@
+
+        Narzeczony mimo woli / The Proposal 2009 
+        =============
+        
+        [![Narzeczony mimo woli / The Proposal 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/narzeczony-mimo-woli-the-proposal-2009)
+        
+        
+ Margaret Tate (Sandra Bullock) jest podporą potężnego wydawnictwa w Nowym Jorku. Kiedy wydaje się, że jej kariera będzie się błyskawicznie rozwijać, pojawiają się kłopoty. Jest bowiem Kanadyjką, zaniedbała procedury wizowe i grozi jej deportacja z USA. Margaret ma jednak głowę na karku. Wyjściem jest uzyskanie amerykańskiego obywatelstwa poprzez małżeństwo. Oświadcza więc swoim przełożonym, że właśnie wychodzi za mąż, za swojego asystenta Andrew Paxtona (Ryan Reynolds). Gdy zaskoczony Andrew nie chce zgodzić się na jej propozycję, Margaret stawia mu ultimatum - albo zawrze z nią fikcyjny związek małżeński, albo wyląduje na ulicy. Nie mając wyjścia Andrew musi zabrać Margaret na Alaskę, aby przedstawić ją swoim rodzicom...  ... zaskoczony Andrew nie chce zgodzić się na jej propozycję, Margaret stawia mu ultimatum - albo zawrze z nią fikcyjny związek małżeński, albo wyląduje na ulicy. Nie mając wyjścia Andrew musi zabrać Margaret na Alaskę, aby przedstawić ją swoim rodzicom...
+    

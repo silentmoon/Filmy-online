@@ -1,0 +1,9 @@
+
+        Moje Winnipeg / My Winnipeg 2007 
+        =============
+        
+        [![Moje Winnipeg / My Winnipeg 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/moje-winnipeg-my-winnipeg-2007)
+        
+        
+ Jeden z najoryginalniejszych i najbardziej szalonych filmów ubiegłego roku. Pełna ekscentrycznego humoru podróż do Winnipeg, rodzinnego miasta wielkiego kanadyjskiego reżysera. Dokumentalna fantazja kanadyjskiego reżysera Guya Maddina, znanego polskiej publiczności z festiwalu Era Nowe Horyzonty (w ramach tegorocznej, dziewiątej edycji odbędzie się retrospektywa z jego udziałem). Maddin w swoich obrazach zaciera granice między jawą a snem. Fascynują go: rodzinne miasto Winnipeg, nieme kino, kicz, surrealizm, gotyckie powieści grozy, historie rodzinne i własne, pełne traum, dzieciństwo. Łącząc wszystkie te elementy i dodając do nich wyjątkowe poczucie humoru, stworzył niepowtarzalny styl. Zyskał on wielkie uznanie wśród miłośników kina niezależnego i krytyków na całym świecie, którzy nazywają go 'jednym z nielicznych prawdziwie kultowych reżyserów'.  ... Winnipeg, nieme kino, kicz, surrealizm, gotyckie powieści grozy, historie rodzinne i własne, pełne traum, dzieciństwo. Łącząc wszystkie te elementy i dodając do nich wyjątkowe poczucie humoru, stworzył niepowtarzalny styl. Zyskał on wielkie uznanie wśród miłośników kina niezależnego i krytyków na całym świecie, którzy nazywają go 'jednym z nielicznych prawdziwie kultowych reżyserów'.
+    

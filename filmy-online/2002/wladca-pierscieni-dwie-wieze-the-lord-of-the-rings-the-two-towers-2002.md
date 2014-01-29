@@ -1,0 +1,9 @@
+
+        Władca Pierścieni: Dwie wieże / The Lord of the Rings: The Two Towers 2002 
+        =============
+        
+        [![Władca Pierścieni: Dwie wieże / The Lord of the Rings: The Two Towers 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wladca-pierscieni-dwie-wieze-the-lord-of-the-rings-the-two-towers-2002)
+        
+        
+ Drużyna Pierścienia została rozbita. Z dziewięciu jej członków dwóch zginęło. Merry i Pippin zostają wzięci do niewoli przez orki. Aragorn, Legolas i Gimli ruszają w pościg, by ich odbić. Frodo chce za wszelką cenę wypełnić misję Powiernika Pierścienia, nawet sam. Wie też, że w pojedynkę łatwiej będzie mu umknąć przed ścigającymi na każdym kroku Drużynę Pierścienia szpiegami. W misji tej zdecydowanie pragnie wspierać go Sam, nawet wbrew jego życzeniu. Tak więc rozpoczyna się dużo trudniejszy etap misji Powiernika Pierścienia. Tymczasem Merry i Pippin, po wydostaniu się z niewoli, prowadzą armię pradawnych Entów na Isengardu, gdzie leży siedziba zdrajcy Sarumana. Aragorn, Legolas, Gimli i Gandalf Biały wspierają Rohan w bitwie o Rogaty Gród, mającej odeprzeć najazd Isengardu. Członkowie rozbitej Drużyny Pierścienia rozumieją, że tylko tym sposobem mogą wspomóc Powiernika Pierścienia w jego misji. Niestety wszystko wskazuje na to, że wojna z siłami Mordoru za chwilę się rozpocznie.  ... dużo trudniejszy etap misji Powiernika Pierścienia. Tymczasem Merry i Pippin, po wydostaniu się z niewoli, prowadzą armię pradawnych Entów na Isengardu, gdzie leży siedziba zdrajcy Sarumana. Aragorn, Legolas, Gimli i Gandalf Biały wspierają Rohan w bitwie o Rogaty Gród, mającej odeprzeć najazd Isengardu. Członkowie rozbitej Drużyny Pierścienia rozumieją, że tylko tym sposobem mogą wspomóc Powiernika Pierścienia w jego misji. Niestety wszystko wskazuje na to, że wojna z siłami Mordoru za chwilę się rozpocznie.
+    

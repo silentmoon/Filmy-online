@@ -1,0 +1,9 @@
+
+        Mniejsze zło 2009 
+        =============
+        
+        [![Mniejsze zło 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mniejsze-zlo-2009)
+        
+        
+ Jak być kimś, będąc nikim? Poruszająca opowieść o człowieku gotowym na wszystko dla osiągnięcia sukcesu, osadzona w realiach chwiejącego się w posadach komunizmu w Polsce. Kamil ma jasny cel – chce zostać pisarzem. Nie dlatego, że kocha literaturę, ale ponieważ wie, że bycie pisarzem w ówczesnej Polsce jest równoznaczne z osiągnięciem sukcesu finansowego i prestiżu. Kamil ma też pewien zasadniczy problem – nie potrafi pisać. Będąc na studiach sprytnie udaje nowatorskiego poetę, ale ma świadomość, że na dłuższą metę nie da się być pisarzem nie umiejąc napisać nawet opowiadania. Chyba, że jest się gotowym na wszystko. Kamil, aby utrzymać się na fali musi coraz częściej dopuszczać się oszustw i podłości, manipulować i iść na upokarzające kompromisy. Wszystko to w imię sukcesu. Tymczasem wokół niego ludzie autentycznie w coś wierzą i toczą swoją walkę. W Polsce wybucha stan wojenny, setki ludzi, także kolegów Kamila trafiają do więzień. Kamil zaczyna rozumieć jak niewiele wart jest jego sukces. Ale czy będzie miał dość siły i odwagi, by naprawdę stać się kimś?  ... poetę, ale ma świadomość, że na dłuższą metę nie da się być pisarzem nie umiejąc napisać nawet opowiadania. Chyba, że jest się gotowym na wszystko. Kamil, aby utrzymać się na fali musi coraz częściej dopuszczać się oszustw i podłości, manipulować i iść na upokarzające kompromisy. Wszystko to w imię sukcesu. Tymczasem wokół niego ludzie autentycznie w coś wierzą i toczą swoją walkę. W Polsce wybucha stan wojenny, setki ludzi, także kolegów Kamila trafiają do więzień. Kamil zaczyna rozumieć jak niewiele wart jest jego sukces. Ale czy będzie miał dość siły i odwagi, by naprawdę stać się kimś?
+    

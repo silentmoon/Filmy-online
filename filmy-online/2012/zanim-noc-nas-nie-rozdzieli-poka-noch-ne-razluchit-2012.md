@@ -1,0 +1,9 @@
+
+        Zanim noc nas nie rozdzieli / Poka noch ne razluchit 2012 
+        =============
+        
+        [![Zanim noc nas nie rozdzieli / Poka noch ne razluchit 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zanim-noc-nas-nie-rozdzieli-poka-noch-ne-razluchit-2012)
+        
+        
+ Komedia oparta na autentycznych rozmowach - zarówno zabawnych jak i smutnych - podsłuchanych przez dziennikarkę Olgę Utkin w jednej z najdroższych i najbardziej szpanerskich moskiewskich restauracji. Zabawny i obnażający film: o kobietach, które wybierają między uczuciem a pieniędzmi; producentach filmowych, którzy nie wiedzą, co tak naprawdę filmują i wyczerpanych biznesmenach, którzy czasem mówią 'a pieprzyć to wszystko', wypijają jednego głębszego i zostawiają rachunek do zapłacenia teściowej. Lecz nade wszystko o prawdziwej miłości, która rodzi się w tętniącej gwarem kuchni, a nie w jadalni ze złoconą sztukaterią. Prawdziwe rozmowy stworzyły gotowy okraszony ostrym dowcipem wątek, do którego dodano fabułę z udziałem kelnerów i dużej liczby popularnych postaci - celebrytów - z lokalnego show-biznesu.  ... zapłacenia teściowej. Lecz nade wszystko o prawdziwej miłości, która rodzi się w tętniącej gwarem kuchni, a nie w jadalni ze złoconą sztukaterią. Prawdziwe rozmowy stworzyły gotowy okraszony ostrym dowcipem wątek, do którego dodano fabułę z udziałem kelnerów i dużej liczby popularnych postaci - celebrytów - z lokalnego show-biznesu.
+    

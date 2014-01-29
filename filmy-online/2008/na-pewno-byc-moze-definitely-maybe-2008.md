@@ -1,0 +1,9 @@
+
+        Na pewno, być może / Definitely, Maybe 2008 
+        =============
+        
+        [![Na pewno, być może / Definitely, Maybe 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/na-pewno-byc-moze-definitely-maybe-2008)
+        
+        
+ Historia Willa zaczyna się w 1992 roku, kiedy jako młody aspirujący polityk przenosi się z Wisconsin do Nowego Jorku, aby rozpocząć pracę przy kampanii prezydenckiej. Na życzenie córki, Will ponownie przeżywa swoją przeszłość i wspomina historie romantycznych związków z trzema różnymi kobietami. Usiłując opowiedzieć córce jak najbardziej łagodną wersję swojej historii, zmienia imiona kobiet, dlatego też Maya musi sama dowiedzieć się, kim jest kobieta, którą ojciec ostatecznie poślubił. Czy jej matką to miłość Willa ze szkoły, niezawodna Emily (Banks)? Czy jest nią może jego długoletnia przyjaciółka i powiernica, apolityczna April (Fisher)? A może to niezależna, ambitna dziennikarka Summer (Weisz)? Maya składając w całość kawałki układanki związanej z tajemniczą historią miłosną taty, zaczyna zdawać sobie sprawę, że miłość wcale nie jest taka prosta. Pomaga Willowi zrozumieć, że nigdy nie jest za późno, aby spojrzeć w przeszłość… i być może odnaleźć szczęśliwe zakończenie.  ... poślubił. Czy jej matką to miłość Willa ze szkoły, niezawodna Emily (Banks)? Czy jest nią może jego długoletnia przyjaciółka i powiernica, apolityczna April (Fisher)? A może to niezależna, ambitna dziennikarka Summer (Weisz)? Maya składając w całość kawałki układanki związanej z tajemniczą historią miłosną taty, zaczyna zdawać sobie sprawę, że miłość wcale nie jest taka prosta. Pomaga Willowi zrozumieć, że nigdy nie jest za późno, aby spojrzeć w przeszłość… i być może odnaleźć szczęśliwe zakończenie.
+    

@@ -1,0 +1,9 @@
+
+        Reset / Wrecked 2010 
+        =============
+        
+        [![Reset / Wrecked 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/reset-wrecked-2010)
+        
+        
+ Mężczyzna (Brody) budzi się we wraku samochodu, który znajduje się wewnątrz bezkresnej kanadyjskiej puszczy. Jest ranny, nie pamięta kim jest, jak znalazł się w samochodzie ani co zrobił. Wkrótce odkrywa z tyłu samochodu zwłoki mężczyzny, a w radiu słyszy informację o brutalnym napadzie na bank, w wyniku którego życie stracili kasjerka i strażnik. Dziennikarz wymienia imiona i nazwiska uczestników napadu. Mężczyzna znajduje dokumenty, z których wynika, że brał udział w brutalnym zabójstwie niewinnych ludzi. Bohater filmu podejmuje nierówną walkę z przyrodą i własnym umysłem próbując przeżyć w gigantycznej kanadyjskiej puszczy i dowiedzieć się prawdy o zdarzeniu, które na zawsze zmieniło jego życie.   ... brutalnym zabójstwie niewinnych ludzi. Bohater filmu podejmuje nierówną walkę z przyrodą i własnym umysłem próbując przeżyć w gigantycznej kanadyjskiej puszczy i dowiedzieć się prawdy o zdarzeniu, które na zawsze zmieniło jego życie.
+    

@@ -1,0 +1,9 @@
+
+        Weiser 2000 
+        =============
+        
+        [![Weiser 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/weiser-2000)
+        
+        
+ Film oparty jest na znanej, tłumaczonej na wiele języków, powieści gdańskiego pisarza Pawła Huelle. Jest to przepojona nostalgią i atmosferą tajemnicy historia grupki dzieci, zafascynowanych postacią niejakiego Dawida Weisera, ich rówieśnika zdającego się mieć nadnaturalne, magiczne zdolności. Uzyskując charyzmatyczną władzę nad swymi rówieśnikami Dawid wciąga ich w spisek, który kończy się eksplozją własnoręcznie skonstruowanej bomby. W wypadku tym Dawid przepada bez wieści i żadne śledztwo nie jest w stanie wyjaśnić jego losów... Choć wydarzenia te miały miejsce wiele lat temu, odcisnęły tak silne piętno na psychice bohaterów, że żyją nimi do dziś, nadal ulegli urokowi i tajemnicy Weisera Dawidka.  ... i żadne śledztwo nie jest w stanie wyjaśnić jego losów... Choć wydarzenia te miały miejsce wiele lat temu, odcisnęły tak silne piętno na psychice bohaterów, że żyją nimi do dziś, nadal ulegli urokowi i tajemnicy Weisera Dawidka.
+    

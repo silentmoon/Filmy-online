@@ -1,0 +1,9 @@
+
+        Demakijaż 2009 
+        =============
+        
+        [![Demakijaż 2009 ](http://vidos.pl/images/player.gif)](http://vidos.pl/demakijaz-2009)
+        
+        
+ 'Demakijaż' – to pełnometrażowy film fabularny składający się z trzech półgodzinnych filmów: 'Non stop kolor' w reżyserii Marii Sadowskiej 'Droga wewnętrzna' w reżyserii Doroty Lamparskiej 'Pokój szybkich randek' w reżyserii Anny Maliszewskiej Wszystkie trzy filmy powstały w ramach programu '30 minut' koordynowanego przez Stowarzyszenie Filmowców Polskich - Studio 'Młodzi i Film' im. Andrzeja Munka. Filmy 'Demakijażu' to autorskie wypowiedzi młodych kobiet. Wszystkie trzy reżyserki są przed pełnometrażowym debiutem fabularnym. 'Non stop kolor' Marii Sadowskiej doskonale i z ogromnym wyczuciem pokazuje muzyczne środowisko warszawskiego clubbingu czyli pokolenie bez rewolucji i kultury, kochające muzykę i nieustającą zabawę. 'Droga wewnętrzna' Doroty Lamparskiej jest alegoryczną opowieścią o wyborach młodych ludzi i ograniczeniach, z jakimi się nieustannie spotykają. 'Pokój szybkich randek' Anny Maliszewskiej to przejmująca historia o naturze miłości w obliczu nagłego nieszczęścia i próby czasu.  ... reżyserki są przed pełnometrażowym debiutem fabularnym. 'Non stop kolor' Marii Sadowskiej doskonale i z ogromnym wyczuciem pokazuje muzyczne środowisko warszawskiego clubbingu czyli pokolenie bez rewolucji i kultury, kochające muzykę i nieustającą zabawę. 'Droga wewnętrzna' Doroty Lamparskiej jest alegoryczną opowieścią o wyborach młodych ludzi i ograniczeniach, z jakimi się nieustannie spotykają. 'Pokój szybkich randek' Anny Maliszewskiej to przejmująca historia o naturze miłości w obliczu nagłego nieszczęścia i próby czasu.
+    

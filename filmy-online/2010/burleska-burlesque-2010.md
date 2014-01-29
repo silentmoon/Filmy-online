@@ -1,0 +1,9 @@
+
+        Burleska / Burlesque 2010 
+        =============
+        
+        [![Burleska / Burlesque 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/burleska-burlesque-2010)
+        
+        
+ Ali (Christina Aguilera), dziewczyna z małego miasteczka obdarzona wspaniałym głosem, decyduje się na ucieczkę od codziennych trudów i niepewnej przyszłości i podąża za swoimi marzeniami do Los Angeles. Po serii niepowodzeń, Ali natyka się przypadkiem na The Burlesque Lounge, majestatyczny, ale podupadający teatr, wystawiający rewię. Szokujące kostiumy i śmiała choreografia zachwycają Ali. Zdeterminowana i nieugięta dziewczyna dostaje pracę kelnerki od Tess (Cher), właścicielki klubu i gwiazdy rewii. Wkrótce potem zaprzyjaźnia się z jedną z tancerek (Julianne Hough), znajduje wroga w zazdrosnej o jej talent gwiazdce (Kristen Bell), i zdobywa uczucie Jacka (Cam Gigandet), barmana i muzyka. Dzięki pomocy kierownika sceny (Stanley Tucci) i skrywającego swoją tożsamość płciową gospodarza show (Alan Cumming), Ali pokonuje drogę od baru na scenę. Jej spektakularny głos przywraca The Burlesque Lounge jego dawną świetność, a w międzyczasie pojawia się charyzmatyczny przedsiębiorca (Eric Dane) z atrakcyjną propozycją...   ... właścicielki klubu i gwiazdy rewii. Wkrótce potem zaprzyjaźnia się z jedną z tancerek (Julianne Hough), znajduje wroga w zazdrosnej o jej talent gwiazdce (Kristen Bell), i zdobywa uczucie Jacka (Cam Gigandet), barmana i muzyka. Dzięki pomocy kierownika sceny (Stanley Tucci) i skrywającego swoją tożsamość płciową gospodarza show (Alan Cumming), Ali pokonuje drogę od baru na scenę. Jej spektakularny głos przywraca The Burlesque Lounge jego dawną świetność, a w międzyczasie pojawia się charyzmatyczny przedsiębiorca (Eric Dane) z atrakcyjną propozycją...
+    

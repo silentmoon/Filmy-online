@@ -1,0 +1,9 @@
+
+        Jak zostać królem / The King's Speech 2010 
+        =============
+        
+        [![Jak zostać królem / The King's Speech 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jak-zostac-krolem-the-king-s-speech-2010)
+        
+        
+ Fascynująca opowieść o człowieku, który uratował królestwo i  w przełomowym momencie historii mężnie poprowadził Anglików w walce przeciwko najeźdźcy. Po szokującej abdykacji Edwarda VIII książę Albert musi, mimo wielkich oporów, zasiąść na tronie Anglii jako Jerzy VI. Ogromną przeszkodą w wypełnianiu monarszych obowiązków jest dla niego... problem z wysławianiem się. Jedyną osobą, która może pomóc Jerzemu w odnalezieniu własnego głosu i stawieniu czoła groźbie inwazji hitlerowskiej, okazuje się australijski specjalista o wielce nieortodoksyjnych metodach pracy nad wymową. Wkrótce rodzi się przyjaźń, która odmieni życie dwóch niezwykłych ludzi i zadecyduje o losach największej z wojen.  ... hitlerowskiej, okazuje się australijski specjalista o wielce nieortodoksyjnych metodach pracy nad wymową. Wkrótce rodzi się przyjaźń, która odmieni życie dwóch niezwykłych ludzi i zadecyduje o losach największej z wojen.
+    

@@ -1,0 +1,9 @@
+
+        Zielone lata 1979 
+        =============
+        
+        [![Zielone lata 1979 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zielone-lata-1979)
+        
+        
+ Sosnowiec 1939 roku. Syn robotnika, mały Wojtek, przyjaźni się z rówieśnikami z sąsiedztwa: Erną, córką aptekarza Niemca, i Abramkiem, żydowskim chłopcem. Dzieci bawią się wspólnie na zielonym wzgórzu. Ojciec Wojtka, od pewnego czasu bezrobotny, dostaje wezwanie do wojska. W domu zostaje matka z małą siostrzyczką. 1 Września w Sosnowcu są już regularne oddziały wermachtu. W niektórych oknach wiszą flagi ze swastykami; u rodziców Erny również. Rodzina Abramka zostaje wysiedlona. Ginie ojciec chłopca, ranny Abramek ukrywa się. Odnaleziony przez Ernę i Wojtka zostaje opatrzony i przygarnięty przez znajomego lekarza. W domu Wojtka żandarmi odnajdują radio i działaczy konspiracji. Rozstrzeliwują mężczyzn, aresztują matkę chłopca, palą dom. Wojtek jest bezdomny. I jego również zabiera do siebie lekarz. Chłopiec spotyka się na dawnym miejscu zabaw z Erną- rodzina dziewczynki wyjeżdża do Hamburga. Okupacja rozdziela dzieci, które razem rosły i bawiły się. Uzmysławia im różnice narodowościowe i rasowe, ale zawsze znajdą się ludzie, którzy tych różnic nie uznają. [opis dystrybutora do wydania DVD]   ... wysiedlona. Ginie ojciec chłopca, ranny Abramek ukrywa się. Odnaleziony przez Ernę i Wojtka zostaje opatrzony i przygarnięty przez znajomego lekarza. W domu Wojtka żandarmi odnajdują radio i działaczy konspiracji. Rozstrzeliwują mężczyzn, aresztują matkę chłopca, palą dom. Wojtek jest bezdomny. I jego również zabiera do siebie lekarz. Chłopiec spotyka się na dawnym miejscu zabaw z Erną- rodzina dziewczynki wyjeżdża do Hamburga. Okupacja rozdziela dzieci, które razem rosły i bawiły się. Uzmysławia im różnice narodowościowe i rasowe, ale zawsze znajdą się ludzie, którzy tych różnic nie uznają. [opis dystrybutora do wydania DVD]
+    

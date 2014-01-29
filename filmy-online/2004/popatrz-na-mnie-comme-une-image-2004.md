@@ -1,0 +1,9 @@
+
+        Popatrz na mnie / Comme une image 2004 
+        =============
+        
+        [![Popatrz na mnie / Comme une image 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/popatrz-na-mnie-comme-une-image-2004)
+        
+        
+ 'Popatrz na mnie' to historia 20-letniej Lolity Cassard, która wścieka się na cały świat, ponieważ nie wygląda jak modelki kolorowych czasopism ani jak jej zgrabna macocha. Lolita marzy o tym, aby być piękną, przynajmniej w oczach swojego ojca – gdyby tylko zechciał w ogóle na nią spojrzeć... To także historia Etienne’a Cassarda, który nie poświęca zbyt wiele uwagi innym, ponieważ zajmuje go głównie jego własna osoba. Czuje, że się starzeje, wie, jak to jest być niekochanym i jak ciężko trzeba się napracować, żeby coś w życiu osiągnąć. To również historia Pierre’a Millera, pisarza, który przestał w cokolwiek wierzyć i który jest przekonany, że już nigdy nie odniesie sukcesu. Wierzy w to do czasu, gdy na jego drodze nie stanie Etienne Cassard. To także historia nauczycielki śpiewu, Sylvii Miller, która wierzy w talent swojego męża, ale wątpi we własne umiejętności. Wątpi również w umiejętności swojej uczennicy, Lolity, do czasu, gdy nie zorientuje się, że Lolita jest córką Etienne’a Cassarda, jej ulubionego pisarza.  ... niekochanym i jak ciężko trzeba się napracować, żeby coś w życiu osiągnąć. To również historia Pierre’a Millera, pisarza, który przestał w cokolwiek wierzyć i który jest przekonany, że już nigdy nie odniesie sukcesu. Wierzy w to do czasu, gdy na jego drodze nie stanie Etienne Cassard. To także historia nauczycielki śpiewu, Sylvii Miller, która wierzy w talent swojego męża, ale wątpi we własne umiejętności. Wątpi również w umiejętności swojej uczennicy, Lolity, do czasu, gdy nie zorientuje się, że Lolita jest córką Etienne’a Cassarda, jej ulubionego pisarza.
+    

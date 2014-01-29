@@ -1,0 +1,9 @@
+
+        Tokijska opowieść / Tokyo monogatari 1953 
+        =============
+        
+        [![Tokijska opowieść / Tokyo monogatari 1953 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tokijska-opowiesc-tokyo-monogatari-1953)
+        
+        
+ Dziadkowie udają się w podróż do Tokio. Pragną odwiedzić swoje dorosłe dzieci i wnuki. Są ciekawi jak ułożyło im się życie, czy są szczęśliwi, wreszcie czy udało im się wychować je na porządnych ludzi. Udają się z wizytą do syna, lekarza pediatry, córki prowadzącej swój zakład fryzjerski i synowej, która straciła męża (ich syna) na wojnie. Po kilku dniach do głosu dochodzą żal i zawiedzione ambicje rodziców. Syn okazuje się zwykłym lekarzem domowym, a córka po ślubie stała się oschła i skąpa. Paradoksalnie najcieplejsze przyjęcie spotkało ich ze strony synowej, która mimo ciężkiego losu zachowała godność i optymizm. Ozu w prosty niemal kronikalny sposób odmalowuje życie Japończyków z trzech pokoleń. Początkowa krytyka młodych ludzi ustępuje szybko zrozumieniu i pogodzeniu się ze zmianami jakie przyniosło życie. Znika rozczarowanie i niespełnione nadzieje, a pojawia się spokój i ciepła refleksja nad ludzkim losem i zmianami jakie przynosi życie.  ... się oschła i skąpa. Paradoksalnie najcieplejsze przyjęcie spotkało ich ze strony synowej, która mimo ciężkiego losu zachowała godność i optymizm. Ozu w prosty niemal kronikalny sposób odmalowuje życie Japończyków z trzech pokoleń. Początkowa krytyka młodych ludzi ustępuje szybko zrozumieniu i pogodzeniu się ze zmianami jakie przyniosło życie. Znika rozczarowanie i niespełnione nadzieje, a pojawia się spokój i ciepła refleksja nad ludzkim losem i zmianami jakie przynosi życie.
+    

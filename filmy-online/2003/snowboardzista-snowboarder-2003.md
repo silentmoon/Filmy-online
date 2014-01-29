@@ -1,0 +1,9 @@
+
+        Snowboardzista / Snowboarder 2003 
+        =============
+        
+        [![Snowboardzista / Snowboarder 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/snowboardzista-snowboarder-2003)
+        
+        
+ Gaspard, osiemnastoletni chłopak, w wolnych chwilach jeździ na snowboardzie. Jest utalentowany, ale niestety nie za bardzo ambitny. Mieszka w l'Alpe d'Huez i tam też pracuję w sklepie Beshopa, który jako dawny trener tej dyscypliny sportu, pomaga chłopakowi w treningach. Pewnego dnia życie Gasparda zmienia się diametralnie, kiedy spotyka mistrza snowboardu, Josha Atterssena. Namawia on chłopaka, aby przeniósł się wraz z nim do Gstaad, gdzie tam będzie go trenować. Gepard nie do końca może sobie wyobrazić, żeby kiedykolwiek mógł stać się gwiazdą snowboardu, ale mimo to decyduje się zaryzykować. Kiedy Gaspard przybywa do Gstaad, jego życie wydaję się piękne i łatwe. Codziennie trenuję z Joshem, a pewnego dnia spotyka jego dziewczynę Ethel, w której się zakochuję.. Wszystko nie jest jednak takie piękne jak się Gaspardowi wydaję, ponieważ nie zna on prawdziwych intencji Josha, który zamierza wykorzystać chłopaka do swoich celów...   ... do końca może sobie wyobrazić, żeby kiedykolwiek mógł stać się gwiazdą snowboardu, ale mimo to decyduje się zaryzykować. Kiedy Gaspard przybywa do Gstaad, jego życie wydaję się piękne i łatwe. Codziennie trenuję z Joshem, a pewnego dnia spotyka jego dziewczynę Ethel, w której się zakochuję.. Wszystko nie jest jednak takie piękne jak się Gaspardowi wydaję, ponieważ nie zna on prawdziwych intencji Josha, który zamierza wykorzystać chłopaka do swoich celów...
+    

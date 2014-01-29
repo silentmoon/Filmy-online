@@ -1,0 +1,9 @@
+
+        Trzy pokoje melancholii / Melancholian 3 huonetta 2004 
+        =============
+        
+        [![Trzy pokoje melancholii / Melancholian 3 huonetta 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trzy-pokoje-melancholii-melancholian-3-huonetta-2004)
+        
+        
+ 'Trzy pokoje melancholii' to poetycka podróż przez świat emocji nastoletnich mieszkańców Rosji. Każda z trzech części-pokoi posiada swoją emocjonalną dominantę. Pierwszy pokój wypełniają uczucia kadetów szkoły wojskowej w Petersburgu, gdzie formatowane są przyszłe wojskowe elity Imperium. Kadeci to werbowani 'z ulicy', bezdomni nastolatkowie, lub dzieci z rodzin dysfunkcyjnych. Uczniem szkoły jest też, marzący o karierze oficera, czeczeński chłopiec. W drugim pokoju przedstawieni zostają mieszkańcy zniszczonego Groznego. Ostatni, trzeci pokój przenosi nad granicę Inguszetii. Bohaterem tego epizodu jest zgwałcony przez rosyjskiego żołdaka, nastoletni Rosjanin. Chłopiec przechodzi na Islam i przyłącza się do Czeczeńskich bojowników. Poprzez wystudiowane kadry, wnikliwe portrety bohaterów i monumentalną muzykę chórów cerkiewnych reżyserka buduje kolejne poziomy znaczeń. Przewodnim motywem filmu pozostają jednak emocje - bezgraniczny smutek wypisany na twarzach młodych bohaterów. Czy nonsens wojny doprowadzi ich do spotkania na polu walki?   ... przedstawieni zostają mieszkańcy zniszczonego Groznego. Ostatni, trzeci pokój przenosi nad granicę Inguszetii. Bohaterem tego epizodu jest zgwałcony przez rosyjskiego żołdaka, nastoletni Rosjanin. Chłopiec przechodzi na Islam i przyłącza się do Czeczeńskich bojowników. Poprzez wystudiowane kadry, wnikliwe portrety bohaterów i monumentalną muzykę chórów cerkiewnych reżyserka buduje kolejne poziomy znaczeń. Przewodnim motywem filmu pozostają jednak emocje - bezgraniczny smutek wypisany na twarzach młodych bohaterów. Czy nonsens wojny doprowadzi ich do spotkania na polu walki?
+    

@@ -1,0 +1,9 @@
+
+        Opętanie / Stir of Echoes 1999 
+        =============
+        
+        [![Opętanie / Stir of Echoes 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/opetanie-stir-of-echoes-1999)
+        
+        
+ Film opowiada o człowieku, który pracuje w dużej firmie, prowadzi zwyczajne życie, a gdzieś tam wewnątrz jego duszy drzemie niespełnione marzenie o ... niezwyczajnym życiu.Na jednym z przyjęć zostaje zahipnotyzowany przez swoja szwagierkę. I tu kończy się jego normalne życie. Źle wyprowadzony z hipnozy (o czym wiedzą nawet ci, którzy tą dziedziną medycyny (?) się nie zajmują ) zaczyna mieć dziwne wizje, koszmary, przywidzenia. Jest przerażony, zdziwiony i ... nie jest sam. Pociesza go bowiem kilkuletni syn, który doskonale zdaje sobie sprawę z tego, co dzieje się z jego ojcem. Sam bowiem ma podobne 'właściwości', a z duchem dziewczyny która ukazuje się na krótkie chwile ojcu, chłopiec jest zaprzyjaźniony.Kolejne seanse nie przynoszą ulgi, a wręcz przeciwnie - wciągają go w zagadkę niewyjaśnionych zjawisk i odciągają od codziennego życia, które przestaje go zupełnie interesować. Jego głównym celem staje się rozszyfrowanie informacji przekazywanych z innego wymiaru.   ... Pociesza go bowiem kilkuletni syn, który doskonale zdaje sobie sprawę z tego, co dzieje się z jego ojcem. Sam bowiem ma podobne 'właściwości', a z duchem dziewczyny która ukazuje się na krótkie chwile ojcu, chłopiec jest zaprzyjaźniony.Kolejne seanse nie przynoszą ulgi, a wręcz przeciwnie - wciągają go w zagadkę niewyjaśnionych zjawisk i odciągają od codziennego życia, które przestaje go zupełnie interesować. Jego głównym celem staje się rozszyfrowanie informacji przekazywanych z innego wymiaru.
+    

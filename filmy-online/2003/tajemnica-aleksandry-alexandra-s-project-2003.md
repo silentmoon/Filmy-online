@@ -1,0 +1,9 @@
+
+        Tajemnica Aleksandry / Alexandra's Project 2003 
+        =============
+        
+        [![Tajemnica Aleksandry / Alexandra's Project 2003 ](http://vidos.pl/images/player.gif)](http://vidos.pl/tajemnica-aleksandry-alexandra-s-project-2003)
+        
+        
+ Urodziny Steve'a (Gary Sweet), przeciętnego czterdziestolatka zajmującego kierownicze stanowisko w wielkiej korporacji, zapowiadają się wyjątkowo. Otrzymuje tego dnia długo oczekiwany awans. Wraca do domu, by podzielić się dobrą nowiną z żoną Aleksandrą (Helen Buday) i dwójką dzieci - Emmą i Samem. Zastaje jednak mieszkanie puste i podejrzanie ciche. Przeszukując ciemne pomieszczenia, Steve znajduje zapakowaną w ozdobny papier kasetę wideo z napisem 'Obejrzyj mnie'. Na taśmie nagrane są życzenia od żony i dzieci. Lecz, gdy tylko Emma i Sam znikają z kadru, Aleksandra pojawia się z zupełnie niespodziewanym prezentem urodzinowym: zaczyna w bardzo uwodzicielski sposób tańczyć i rozbierać się. Steve jest zachwycony, dopóki nie zauważa pistoletu przystawionego do głowy swojej żony...   ... nagrane są życzenia od żony i dzieci. Lecz, gdy tylko Emma i Sam znikają z kadru, Aleksandra pojawia się z zupełnie niespodziewanym prezentem urodzinowym: zaczyna w bardzo uwodzicielski sposób tańczyć i rozbierać się. Steve jest zachwycony, dopóki nie zauważa pistoletu przystawionego do głowy swojej żony...
+    

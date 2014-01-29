@@ -1,0 +1,9 @@
+
+        Odważna / The Brave One 2007 
+        =============
+        
+        [![Odważna / The Brave One 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/odwazna-the-brave-one-2007)
+        
+        
+ Erika Bain (Jodie Foster) prowadzi w radio program, w którym opowiada o życiu nowojorskiej ulicy. Pewnej nocy ona i jej narzeczony padają ofiarą napadu. Ukochany Eriki ginie, a ona ledwo uchodzi z życiem. Po tym wstrząsie dziewczynę ogarnia strach przed miastem, po którym kiedyś lubiła się włóczyć. Żeby poczuć się bezpieczniej, Erika kupuje broń. Podświadoma chęć zemsty zaczyna ją popychać do przeciwstawienia się złu i odbierania życia innym. Z czasem na trop Eriki wpada policja. Zaś ona sama coraz częściej zadaje sobie pytanie, czy uleganie żądzy wymierzenia sprawiedliwości jest właściwym rozwiązaniem, czy też może staje się tym, z czym próbuje walczyć?  ... policja. Zaś ona sama coraz częściej zadaje sobie pytanie, czy uleganie żądzy wymierzenia sprawiedliwości jest właściwym rozwiązaniem, czy też może staje się tym, z czym próbuje walczyć?
+    

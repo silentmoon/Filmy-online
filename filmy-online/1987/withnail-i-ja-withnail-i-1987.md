@@ -1,0 +1,9 @@
+
+        Withnail i ja / Withnail & I 1987 
+        =============
+        
+        [![Withnail i ja / Withnail & I 1987 ](http://vidos.pl/images/player.gif)](http://vidos.pl/withnail-i-ja-withnail-i-1987)
+        
+        
+ 'Withnail i ja' portretuje ostatnie wspólne szaleństwa dwóch przyjaciół, niespełnionych młodych aktorów pod koniec 1969 roku. Withnail (Richard E.Grant) i Ja (Paul McGann, który gra alter ego reżysera Bruce'a Robinsona) odkrywają pewnego poranka, że do końca szaleńczej dekady lat sześćdziesiątych zostało tylko 90 dni. Połączeni biedą i marzeniami o sławie dzielą nędzne mieszkanie, a ich codzienna dieta składa się z alkoholu, LSD i marihuany. Spłukani i zagubieni w miejskiej dżungli postanawiają wyruszyć na wieś i spędzić oczyszczający wewnętrznie weekend w prymitywnej chacie ekscentrycznego Monty'ego (Richard Griffith), wuja Withnaila. Od samego początku pobytu wszytko układa się nie tak jak zaplanowano, i choć ich marzenia o idyllicznym ustroniu nie spełnią się, będzie to niezapomniany pobyt, zwłaszcza po niezapowiedzianym przyjeździe Monty'ego.   ... dżungli postanawiają wyruszyć na wieś i spędzić oczyszczający wewnętrznie weekend w prymitywnej chacie ekscentrycznego Monty'ego (Richard Griffith), wuja Withnaila. Od samego początku pobytu wszytko układa się nie tak jak zaplanowano, i choć ich marzenia o idyllicznym ustroniu nie spełnią się, będzie to niezapomniany pobyt, zwłaszcza po niezapowiedzianym przyjeździe Monty'ego.
+    

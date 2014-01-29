@@ -1,0 +1,9 @@
+
+        Klub Baby-Sitter / The Baby-Sitters Club 1995 
+        =============
+        
+        [![Klub Baby-Sitter / The Baby-Sitters Club 1995 ](http://vidos.pl/images/player.gif)](http://vidos.pl/klub-baby-sitter-the-baby-sitters-club-1995)
+        
+        
+ Siedem koleżanek z niewielkiego Stoneybrook postanawia założyć letni obóz dla maluchów. To najlepszy sposób na to, aby ciekawie spędzić wakacje i zarobić nieco grosza, a przy okazji wypróbować, jak silna łączy je przyjaźń. Pomysł chwycił i łąka przed domem Dawn zapełniła się dziećmi. Wkrótce okazało się, że same chęci nie wystarczą - potrzeba pewnych umiejętności, pogody ducha i wspólnego działania. A jak tu wspólnie działać, kiedy Claudia musi zdawać poprawkę z biologii, Stacey myśli o chłopaku z Europy o imieniu Luca, a Kirsty nieoczekiwanie zaczęła się wymykać na spotkania z ojcem, który przed laty opuscił rodzinę. Czy postawiony wobec takich problemów Klub Opiekunek wytrzyma próbę przyjaźni?  ... Stacey myśli o chłopaku z Europy o imieniu Luca, a Kirsty nieoczekiwanie zaczęła się wymykać na spotkania z ojcem, który przed laty opuscił rodzinę. Czy postawiony wobec takich problemów Klub Opiekunek wytrzyma próbę przyjaźni?
+    

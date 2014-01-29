@@ -1,0 +1,9 @@
+
+        7 krasnoludków - Historia prawdziwa / 7 Zwerge 2004 
+        =============
+        
+        [![7 krasnoludków - Historia prawdziwa / 7 Zwerge 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/7-krasnoludkow-historia-prawdziwa-7-zwerge-2004)
+        
+        
+ Po Czerwonym Kapturku przyszedł czas na odkrycie całej prawdy o 7 krasnoludkach i Królewnie Śnieżce... Specjalna komisja śledcza powołana do zbadanie tej sprawy ujawniła fakty, których nikt się nie spodziewał. Za górami, za lasami, siedmiu krasnoludków schroniło się w lesie. Szczycik (Maciej Stuhr), Dołek (Paweł Wilczak), Knedel (Robert Makłowicz), Loczek (Jerzy Kryszak), Prezes (Cezary Morawski), Czak (Jarosław Boberek) i Młotek (Zbigniew Suszyński) wybrali własne towarzystwo nie zakłócane odgłosami łamanych serc. I żyliby sobie dalej tak spokojnie, gdyby nie nagłe pojawienie się Królewny Śnieżki (Joanna Jabłczyńska), która wywróciła do góry nogami ich uporządkowane życie. Ta sytuacja może jednak nie potrwać długo, gdyż na poszukiwanie Śnieżki wyruszył właśnie Wielki Łowczy (detektyw Krzysztof Rutkowski) wysłany przez Złą Królową (Katarzyna Figura). Ale na zamku – poza Złą Królową – czeka na Śnieżkę również wielka miłość w osobie Królewskiego Błazna (Kuba Wojewódzki).  ... towarzystwo nie zakłócane odgłosami łamanych serc. I żyliby sobie dalej tak spokojnie, gdyby nie nagłe pojawienie się Królewny Śnieżki (Joanna Jabłczyńska), która wywróciła do góry nogami ich uporządkowane życie. Ta sytuacja może jednak nie potrwać długo, gdyż na poszukiwanie Śnieżki wyruszył właśnie Wielki Łowczy (detektyw Krzysztof Rutkowski) wysłany przez Złą Królową (Katarzyna Figura). Ale na zamku – poza Złą Królową – czeka na Śnieżkę również wielka miłość w osobie Królewskiego Błazna (Kuba Wojewódzki).
+    

@@ -1,0 +1,9 @@
+
+        Michael Jordan na Maxa / Michael Jordan to the Max 2000 
+        =============
+        
+        [![Michael Jordan na Maxa / Michael Jordan to the Max 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/michael-jordan-na-maxa-michael-jordan-to-the-max-2000)
+        
+        
+ 'Michael Jordan na Maxa' prawdziwa historia życia Michaela Jordana, najsłynniejszego na świecie, najbłyskotliwszego sportowca XX wieku. Widz odbędzie podróż w życie Michaela Jordana, doświadczając dramatycznych zdarzeń i oszałamiających sukcesów w jego koszykarskiej karierze. Pozna też mało znane fakty spoza sportowego życia Michaela. Film pokazuje ostatnie mistrzostwa z udziałem Jordana w drużynie Chicago Bulls, które dzięki niepowtarzalnemu strzałowi supergwiazdora koszykówki w ostatnich minutach meczu, okazały się zwycięskie dla 'Byków'. W tle wydarzeń widz zobaczy fragmenty filmów z przeszłości Jordana: jego obóz koszykarski, rodzinny dom w Północnej Karolinie, a także fragmenty wywiadów i rozmów z ludźmi bliskimi. 'Michael Jordan na Maxa' wykorzystuje podobną technologię do budowania efektów specjalnych jakie wykorzystano w 'Matrix'. Rezultat jest zadziwiający: Michael Jordan w ujęciach jakby całkowicie wyzbytych grawitacji. A wszystko to na gigantycznym ekranie dzięki unikatowej technologii IMAX 2D.   ... koszykówki w ostatnich minutach meczu, okazały się zwycięskie dla 'Byków'. W tle wydarzeń widz zobaczy fragmenty filmów z przeszłości Jordana: jego obóz koszykarski, rodzinny dom w Północnej Karolinie, a także fragmenty wywiadów i rozmów z ludźmi bliskimi. 'Michael Jordan na Maxa' wykorzystuje podobną technologię do budowania efektów specjalnych jakie wykorzystano w 'Matrix'. Rezultat jest zadziwiający: Michael Jordan w ujęciach jakby całkowicie wyzbytych grawitacji. A wszystko to na gigantycznym ekranie dzięki unikatowej technologii IMAX 2D.
+    

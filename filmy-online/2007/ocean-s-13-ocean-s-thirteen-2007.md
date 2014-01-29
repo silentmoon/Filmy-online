@@ -1,0 +1,9 @@
+
+        Ocean's 13 / Ocean's Thirteen 2007 
+        =============
+        
+        [![Ocean's 13 / Ocean's Thirteen 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ocean-s-13-ocean-s-thirteen-2007)
+        
+        
+ Danny Ocean (George Clooney) wraz ze swoim gangiem postanawia pogrążyć finansowo i skompromitować bezwzględnego właściciela kasyn i hoteli, Willy'ego Banka (Al Pacino). Przez niego przyjaciel Danny'ego, a także członek grupy, trafił do szpitala. Odwet ma być zatem srogi. Plan jest skomplikowany, niebezpieczny i niemal niemożliwy do wykonania, ale gdy chodzi o członka ich ekipy, dla jedenastki Oceana nie ma żadnych ograniczeń. Ostateczna rozprawa z Bankiem ma nastąpić w nococ otwarcia jego nowego kasyna. Czy możliwe jest wyrównanie rachunków? Kontynuacja opowieści o kryminalnych wyczynach Danny'ego Oceana i współpracującej z nim szajki oszustów, wyjątkowych w swoim fachu.  ... oc otwarcia jego nowego kasyna. Czy możliwe jest wyrównanie rachunków? Kontynuacja opowieści o kryminalnych wyczynach Danny'ego Oceana i współpracującej z nim szajki oszustów, wyjątkowych w swoim fachu.
+    

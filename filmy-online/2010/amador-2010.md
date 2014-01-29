@@ -1,0 +1,9 @@
+
+        Amador 2010 
+        =============
+        
+        [![Amador 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/amador-2010)
+        
+        
+ Nowe dzieło reżysera 'Księżniczek' i 'Poniedziałków w słońcu' (Fernando León de Aranoa) podejmuje temat ludzkich podobieństw, które mogą wystąpić niezależnie od wieku, narodowości i statusu społecznego.     Marcela mieszka na obrzeżach Madrytu ze swoim chłopakiem Nelsonem. Sfrustrowana niewygórowanymi ambicjami Nelsona, postanawia go zostawić. Wtedy odkrywa, że jest w ciąży. Informacje o niej zachowuje dla siebie. Jest zmuszona do podjęcia pracy a decyzję o odejścia od Nelsona odkłada na później. Rozpoczyna pracę jako opiekunka starego i przykutego do łóżka Amadora, podczas gdy jego rodzina wyjeżdża na wakacje. Na początku ich relacja jest szorstka i sucha, ale zacieśnia się, kiedy poznają swoje głęboko skrywane tajemnice. To podświadome porozumienie dwóch osób dotkniętych zupełnie inną samotnością staje się coraz silniejsze.   ... Nelsona odkłada na później. Rozpoczyna pracę jako opiekunka starego i przykutego do łóżka Amadora, podczas gdy jego rodzina wyjeżdża na wakacje. Na początku ich relacja jest szorstka i sucha, ale zacieśnia się, kiedy poznają swoje głęboko skrywane tajemnice. To podświadome porozumienie dwóch osób dotkniętych zupełnie inną samotnością staje się coraz silniejsze.
+    

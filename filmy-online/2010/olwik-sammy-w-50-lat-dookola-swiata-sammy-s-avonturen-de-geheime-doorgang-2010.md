@@ -1,0 +1,9 @@
+
+        Żółwik Sammy: W 50 lat dookoła świata / Sammy's avonturen: De geheime doorgang 2010 
+        =============
+        
+        [![Żółwik Sammy: W 50 lat dookoła świata / Sammy's avonturen: De geheime doorgang 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/olwik-sammy-w-50-lat-dookola-swiata-sammy-s-avonturen-de-geheime-doorgang-2010)
+        
+        
+ Czyż nie byłoby cudownie podróżować po całym świecie? Sammy jest uroczym, małym żółwiem morskim. Nie jest superbohaterem, lecz zwyczajnym żółwiem, który przeżywa niesamowite przygody. Urodzony w 1959 roku na kalifornijskiej plaży, przez 50 lat podróżuje po oceanach. Podczas swojej długiej wędrówki odkrywa świat i naraża się na wiele niebezpieczeństw. Zostaje maskotką społeczności hippisowskiej, mierzy się z plamą ropy i jest świadkiem wodowania statku kosmicznego Apollo II na Oceanie Spokojnym. Sammy musi stawić czoło przeciwnym nurtom, przypływom i odpływom oraz upływającym latom, by odnaleźć Karolę, miłość swojego życia, którą utracił na plaży, gdzie się urodzili. Jest odważny, ma upodobanie do przygód i potrafi sprostać najtrudniejszym wyzwaniom. Nie boi się walczyć, jest lojalnym przyjacielem, ufa swoim instynktom - jednym słowem, jest żółwim optymistą.   ... Oceanie Spokojnym. Sammy musi stawić czoło przeciwnym nurtom, przypływom i odpływom oraz upływającym latom, by odnaleźć Karolę, miłość swojego życia, którą utracił na plaży, gdzie się urodzili. Jest odważny, ma upodobanie do przygód i potrafi sprostać najtrudniejszym wyzwaniom. Nie boi się walczyć, jest lojalnym przyjacielem, ufa swoim instynktom - jednym słowem, jest żółwim optymistą.
+    

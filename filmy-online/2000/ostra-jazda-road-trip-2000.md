@@ -1,0 +1,9 @@
+
+        Ostra jazda / Road Trip 2000 
+        =============
+        
+        [![Ostra jazda / Road Trip 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ostra-jazda-road-trip-2000)
+        
+        
+ Barry (Tom Green) oprowadzając wycieczkę po Ithaca University, opowiada historię jaka wydarzyła się kiedyś jego kumplom. Jego kolega Josh (Breckin Meyer) zna się z Tiffany (Rachel Blanchard) od dzieciństwa. Jednak szkoły, w których się uczą położone są ok. 1800 mil od siebie. Pewnego dnia Josh poznaje Beth (Amy Smart). Podczas jednej z imprez Beth proponuje Joshowi pójście do jego pokoju, na co ten się zgadza. Następnie spędzają ze sobą całą noc, nagrywając wszystko na kamerze. Następnego ranka Josh dzieli się ze swoimi kumplami tym, co się stało ostatniej nocy. Oni dowiadują się, że wszystko jest nagrane na kasecie. Gdy zaczynają oglądać okazuje się, że jest to kaseta, na której Josh nagrał życzenia urodzinowe dla Tiffany. Rubin (Paulo Costanzo), który miał wysłać życzenia pocztą pomylił kasety i zapakował tą, na której nagrała się upojna noc Josha z Beth. Josh razem z kumplami, Rubinem i E.L. (Seann William Scott) namawiają Kyle'a, aby podążyć jego samochodem do Austin i nie dopuścić do tego, aby paczka dostała się w ręce Tiffany. Jednak muszą się pospieszyć, bo nie mają zbyt wiele czasu...  ... kamerze. Następnego ranka Josh dzieli się ze swoimi kumplami tym, co się stało ostatniej nocy. Oni dowiadują się, że wszystko jest nagrane na kasecie. Gdy zaczynają oglądać okazuje się, że jest to kaseta, na której Josh nagrał życzenia urodzinowe dla Tiffany. Rubin (Paulo Costanzo), który miał wysłać życzenia pocztą pomylił kasety i zapakował tą, na której nagrała się upojna noc Josha z Beth. Josh razem z kumplami, Rubinem i E.L. (Seann William Scott) namawiają Kyle'a, aby podążyć jego samochodem do Austin i nie dopuścić do tego, aby paczka dostała się w ręce Tiffany. Jednak muszą się pospieszyć, bo nie mają zbyt wiele czasu...
+    

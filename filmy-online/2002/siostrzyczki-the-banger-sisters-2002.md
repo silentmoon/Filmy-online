@@ -1,0 +1,9 @@
+
+        Siostrzyczki / The Banger Sisters 2002 
+        =============
+        
+        [![Siostrzyczki / The Banger Sisters 2002 ](http://vidos.pl/images/player.gif)](http://vidos.pl/siostrzyczki-the-banger-sisters-2002)
+        
+        
+ Dwie supergwiazdy Goldie Hawn i Susan Sarandon tworzą wyśmienite kreacje w tej zwariowanej komedii o dwóch kobietach, które niegdyś były sobie bliskie niczym siostry. W późnych latach 60-ych i wiodły szalone życie w środowisku fanów rocka, znały wszystkie muzyczne legendy i sławy, a szczególnie te z chromosomem Y... Ich drogi się jednak rozeszły. Teraz po upływie dwóch dekad Suzette (Hawn) ciągle żyje tak, jakby świat stanął w miejscu - jest beztroska, seksowna i ... bez pracy. Lavinia (Sarandon) natomiast zmieniła się nie do poznania - jest szanowaną żoną prawnika, matką dwóch córek i filarem lokalnej społeczności. Zobacz co się dzieje, kiedy światy dwóch byłych przyjaciółek spotykają się... W filmie występuje także Geoffrey Rush w roli ekscentrycznego pisarza skrywającego mroczny sekret. Siostrzyczki to urocza, nostalgiczna opowieść, która dowodzi, że nigdy nie jesteś za stary na to, aby być młodym.   ... pracy. Lavinia (Sarandon) natomiast zmieniła się nie do poznania - jest szanowaną żoną prawnika, matką dwóch córek i filarem lokalnej społeczności. Zobacz co się dzieje, kiedy światy dwóch byłych przyjaciółek spotykają się... W filmie występuje także Geoffrey Rush w roli ekscentrycznego pisarza skrywającego mroczny sekret. Siostrzyczki to urocza, nostalgiczna opowieść, która dowodzi, że nigdy nie jesteś za stary na to, aby być młodym.
+    

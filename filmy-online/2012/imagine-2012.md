@@ -1,0 +1,9 @@
+
+        Imagine 2012 
+        =============
+        
+        [![Imagine 2012 ](http://vidos.pl/images/player.gif)](http://vidos.pl/imagine-2012)
+        
+        
+ Międzynarodowa koprodukcja 'Imagine', mająca światową premierę na festiwalu w Toronto, to wzruszająca i urzekająca zjawiskowymi zdjęciami Adama Bajerskiego historia Iana (Edward Hogg, podziwiany w ostatnim obrazie Rolanda Emmericha 'Anonimus'), charyzmatycznego instruktora niewidomych, który przybywa do prestiżowego ośrodka w Lizbonie, by uczyć młodych pacjentów trudnej sztuki orientacji w przestrzeni. Jego kontrowersyjne metody przyjmowane są przez podopiecznych początkowo z nieufnością, a potem z rosnącym entuzjazmem. Tymczasem największe zainteresowanie nauczyciela wzbudza piękna, zamknięta w sobie Ewa (Alexandra Maria Lara, pamiętna odtwórczyni roli Traudl Junge, osobistej sekretarki Hitlera w filmie 'Upadek'). Za sprawą niekonwencjonalnych wskazówek i ponadzmysłowej wrażliwości Iana, Ewa przezwycięży lęk i spróbuje samodzielnie postawić pierwsze kroki poza kliniką. Wkrótce przekona się, że w życiu każdy akt odwagi rodzi ryzyko, bez którego nie sposób poznać smaku wolności.   ... początkowo z nieufnością, a potem z rosnącym entuzjazmem. Tymczasem największe zainteresowanie nauczyciela wzbudza piękna, zamknięta w sobie Ewa (Alexandra Maria Lara, pamiętna odtwórczyni roli Traudl Junge, osobistej sekretarki Hitlera w filmie 'Upadek'). Za sprawą niekonwencjonalnych wskazówek i ponadzmysłowej wrażliwości Iana, Ewa przezwycięży lęk i spróbuje samodzielnie postawić pierwsze kroki poza kliniką. Wkrótce przekona się, że w życiu każdy akt odwagi rodzi ryzyko, bez którego nie sposób poznać smaku wolności.
+    

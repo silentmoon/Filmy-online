@@ -1,0 +1,9 @@
+
+        Erin Brockovich 2000 
+        =============
+        
+        [![Erin Brockovich 2000 ](http://vidos.pl/images/player.gif)](http://vidos.pl/erin-brockovich-2000)
+        
+        
+ Nie dałbyś za nią pięciu groszy. Erin Brockovich (Julia Roberts) jest dwukrotną rozwódką i samotnie wychowuje trójkę dzieci. Nie ma pieniędzy, wykształcenia ani szansy na znalezienie pracy. Ma za to wybuchowe usposobienie i ostry język, wali prawdę prosto z mostu i ekstrawagancko się ubiera. I kto by pomyślał, że pewnego dnia rzuci sobie do stóp całe miasteczko i powali na kolana wielka korporację? Erin cudem zdobywa pracę w kancelarii wziętego adwokata Eda Masry (Albert Finney). Wertując akta odkrywa, że potężny koncern doprowadził do zanieczyszczenia wody w małym prowincjonalnym miasteczku, którego mieszkańcy od dawna zapadają na najrozmaitsze choroby. Z pomocą Eda kieruje sprawę do sądu, który przyznaje reprezentowanym przez nią klientom odszkodowanie w wysokości 333 milionów dolarów, największe w historii amerykańskiego wymiaru sprawiedliwości.   ... Finney). Wertując akta odkrywa, że potężny koncern doprowadził do zanieczyszczenia wody w małym prowincjonalnym miasteczku, którego mieszkańcy od dawna zapadają na najrozmaitsze choroby. Z pomocą Eda kieruje sprawę do sądu, który przyznaje reprezentowanym przez nią klientom odszkodowanie w wysokości 333 milionów dolarów, największe w historii amerykańskiego wymiaru sprawiedliwości.
+    

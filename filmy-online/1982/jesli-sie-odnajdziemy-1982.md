@@ -1,0 +1,9 @@
+
+        Jeśli się odnajdziemy 1982 
+        =============
+        
+        [![Jeśli się odnajdziemy 1982 ](http://vidos.pl/images/player.gif)](http://vidos.pl/jesli-sie-odnajdziemy-1982)
+        
+        
+ Historia przedstawiona w tym filmie oparta jest na autentycznym eksperymencie pedagogicznym, którego pomysłodawczynią była Maria Łopatkowa. Małżeństwom i osobom samotnym pragnącym adoptować dzieci proponowano spędzenie urlopu razem z sierotami z domów dziecka. Do ośrodka przyjeżdżają dzieci, które w założeniu nie powinny nic wiedzieć o celu wspólnych wakacji. Są jednak wśród nich takie, które po raz kolejny przyjechały na wczasy - m.in. Kasia, zwana Kukurydzianką ze względu na skazę białkową. W ciągu pierwszych dni dorosłym nie wolno faworyzować żadnego dziecka, jest to czas przeznaczony na wzajemne poznawanie. W rzeczywistości jednak poszczególni uczestnicy eksperymentu mają już swoich faworytów. Maciek, psycholog będący opiekunem grupy i jednocześnie kandydatem na rodzica zauważa, że kierownictwo wczasów akceptuje taki stan rzeczy. Z urywków dziecięcych rozmów Maciek dowiaduje się, że tak naprawdę dzieci doskonale zdają sobie sprawę z tego, w jakim celu tu przyjechały. Jedne z nich biernie czekają na rozwój sytuacji, inne, te sprytniejsze, próbują zadbać o to, by to one zostały wybrane do adopcji.   ... na skazę białkową. W ciągu pierwszych dni dorosłym nie wolno faworyzować żadnego dziecka, jest to czas przeznaczony na wzajemne poznawanie. W rzeczywistości jednak poszczególni uczestnicy eksperymentu mają już swoich faworytów. Maciek, psycholog będący opiekunem grupy i jednocześnie kandydatem na rodzica zauważa, że kierownictwo wczasów akceptuje taki stan rzeczy. Z urywków dziecięcych rozmów Maciek dowiaduje się, że tak naprawdę dzieci doskonale zdają sobie sprawę z tego, w jakim celu tu przyjechały. Jedne z nich biernie czekają na rozwój sytuacji, inne, te sprytniejsze, próbują zadbać o to, by to one zostały wybrane do adopcji.
+    

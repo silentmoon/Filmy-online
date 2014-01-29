@@ -1,0 +1,9 @@
+
+        Dodek na froncie 1936 
+        =============
+        
+        [![Dodek na froncie 1936 ](http://vidos.pl/images/player.gif)](http://vidos.pl/dodek-na-froncie-1936)
+        
+        
+ Jest rok 1916, trwa I Wojna Światowa. Dodek Wędzonka (Adolf Dymsza), jako żołnierz armii austriackiej, w czasie jednej z frontowych potyczek wzięty za rosyjskiego porucznika oswobodzony zostaje przez rosyjski patrol zwiadowczy. Dziwnym zbiegiem okoliczności zostaje zakwaterowany wraz z oddziałem w zarekwirowanym przez Rosjan majątku Majewo, którego dziedzicem jest przełożony Wędzonki, porucznik Majewski (Mieczysław Cybulski). Pod nieobecność męża o dwór troszczy się jego żona Zofia (Alicja Halama) a pomaga jej dzielnie pokojówka Zuzia (Helena Grossówna). Dodek, znający doskonale rosyjski, wodzi za nos swoich nowych przełożonych i przeżywa wiele niesamowitych przygód...   ... Zofia (Alicja Halama) a pomaga jej dzielnie pokojówka Zuzia (Helena Grossówna). Dodek, znający doskonale rosyjski, wodzi za nos swoich nowych przełożonych i przeżywa wiele niesamowitych przygód...
+    

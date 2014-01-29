@@ -1,0 +1,9 @@
+
+        Pracownik miesiąca / Employee of the Month 2006 
+        =============
+        
+        [![Pracownik miesiąca / Employee of the Month 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pracownik-miesiaca-employee-of-the-month-2006)
+        
+        
+ W supermarketach sieci 'Super Club' pracownicy codziennie są sumiennie oceniani i punktowani podczas wykonywania swych obowiązków. Po każdym dniu pracy menadżer honoruje gwiazdką najlepszego pracownika, a kto uzbiera naj gwiazdek w miesiącu dostaje tytuł 'Pracownika Miesiąca'. W jednym ze sklepów tytuł ten przypadł aż 17 razy pod rząd starszemu kasjerowi Vince'owi Downey'owi. By podkreślić ten niezwykły w historii sieci rekord, dyrekcja postanawia sprezentować Vicnce'owi auto, jeśli uda mu się zdobyć tytuł 'Pracownika Miesiąca' po raz 18-ty pod rząd. Do rywalizacji z bezkonkurencyjnym do tej pory Vincem staje pakowacz Zack Bradley, który pragnie zdobyć uznanie w oczach nowo przybyłej do firmy pięknej Amy. Dziewczyna pracowała wcześniej w innej placówce sieci i krążą plotki, że umawiała się właśnie z 'Pracownikami Miesiąca'...  ... Vicnce'owi auto, jeśli uda mu się zdobyć tytuł 'Pracownika Miesiąca' po raz 18-ty pod rząd. Do rywalizacji z bezkonkurencyjnym do tej pory Vincem staje pakowacz Zack Bradley, który pragnie zdobyć uznanie w oczach nowo przybyłej do firmy pięknej Amy. Dziewczyna pracowała wcześniej w innej placówce sieci i krążą plotki, że umawiała się właśnie z 'Pracownikami Miesiąca'...
+    

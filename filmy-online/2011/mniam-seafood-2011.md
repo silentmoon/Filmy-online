@@ -1,0 +1,9 @@
+
+        Mniam! / SeaFood 2011 
+        =============
+        
+        [![Mniam! / SeaFood 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mniam-seafood-2011)
+        
+        
+ Smakowite opowieści żółwicy Magdy (Magda Gessler), zachwalającej specjały kuchni 'nadwodnego' świata, sprawiły, że dwa rekiny - Szczena (Piotr Fronczewski) i mały Olo (Marcin Hycnar) - poczuły smaka na kurczaka. Płetwiaści koneserzy drobiu rozpoczynają łowy na lądzie i sieją postrach w nadmorskich kurnikach, korzystając z rybokopa - machiny kroczącej skonstruowanej przez łebskiego głowonoga Doktora Mackensteina (Jerzy Kryszak). Jednak pierzaści kandydaci na prowiant nie pozostają dłużni i przygotowują płetwiastym kilka jajcarskich niespodzianek. Bo nie ma nic gorszego, niż wkurzona kura! Kiedy wielokrotna miss kurnika Kokosza Nell znajdzie się w zasięgu paszczy żarłocznego Szczeny, do kontrataku ruszą zaprawieni w walkach kogutów mistrzowie kurate Kurczak Norris, Kurambo i Kukurychu (Kabaret Ani Mru Mru). Bo kurczaki nie płaczą!   ... pozostają dłużni i przygotowują płetwiastym kilka jajcarskich niespodzianek. Bo nie ma nic gorszego, niż wkurzona kura! Kiedy wielokrotna miss kurnika Kokosza Nell znajdzie się w zasięgu paszczy żarłocznego Szczeny, do kontrataku ruszą zaprawieni w walkach kogutów mistrzowie kurate Kurczak Norris, Kurambo i Kukurychu (Kabaret Ani Mru Mru). Bo kurczaki nie płaczą!
+    

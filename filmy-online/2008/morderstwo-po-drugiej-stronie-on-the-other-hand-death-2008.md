@@ -1,0 +1,9 @@
+
+        Morderstwo po drugiej stronie / On the Other Hand, Death 2008 
+        =============
+        
+        [![Morderstwo po drugiej stronie / On the Other Hand, Death 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/morderstwo-po-drugiej-stronie-on-the-other-hand-death-2008)
+        
+        
+  Donald Strachey  jest prywatnym detektywem. Staje on właśnie przed kolejną skomplikowaną sprawą. Pewnego dnia Donald idzie na spotkanie ze swoim partnerem Timmym do szkoły. Tam właśnie Timmy  ma się spotkać po latach ze swoim byłym partnerem  Andrew. Andrew jest w szkole ze względu na swoje przyjaciółki Edith i Dorothy. Doroty właśnie w szkole w której pracuje dokonała ujawnienia swojej orientacji seksualnej i teraz już nie wstydzi się swojej seksualności. Jak by problemów było mało starsza para lesbijek Edith i Dorothy nie chcą sprzedać swojego domu potężnemu developerowi, więc zaczynają się ataki wandalizmu.Timothy od swojego byłego chłopaka Andrew dowiaduje się, że ktoś dręczy starsze kobiety. Tylko one nie sprzedały działki wraz z domem owemu developerowi. Donald przyjmuje zlecenie  ze względu na Timmothego, który go o to prosił. Sprawa z czasem staje się coraz bardziej zawiła i pojawiają się trupy. Czy i tym razem detektyw Donald Strachey rozwikła sprawę?   ... orientacji seksualnej i teraz już nie wstydzi się swojej seksualności. Jak by problemów było mało starsza para lesbijek Edith i Dorothy nie chcą sprzedać swojego domu potężnemu developerowi, więc zaczynają się ataki wandalizmu.Timothy od swojego byłego chłopaka Andrew dowiaduje się, że ktoś dręczy starsze kobiety. Tylko one nie sprzedały działki wraz z domem owemu developerowi. Donald przyjmuje zlecenie  ze względu na Timmothego, który go o to prosił. Sprawa z czasem staje się coraz bardziej zawiła i pojawiają się trupy. Czy i tym razem detektyw Donald Strachey rozwikła sprawę?
+    

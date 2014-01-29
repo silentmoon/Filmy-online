@@ -1,0 +1,9 @@
+
+        Z archiwum X: Pokonać przyszłość / The X Files 1998 
+        =============
+        
+        [![Z archiwum X: Pokonać przyszłość / The X Files 1998 ](http://vidos.pl/images/player.gif)](http://vidos.pl/z-archiwum-x-pokonac-przyszlosc-the-x-files-1998)
+        
+        
+ Ziemie północnego Teksasu, 35 tys. lat p.n.e. Jeden z ówczesnych jaskiniowców wpada do szczeliny w lodowej pokrywie ziemi. Zostaje zaatakowany przez tajemniczą czarną substancję i ginie wkrótce potem. Podobny los spotyka kilkuletniego chłopca, który współcześnie wpada do tej samej groty. Pod jego skórę błyskawiczne przenika czarna substancja, która zabija go na miejscu. Tydzień później w siedzibie FBI w Dallas odkryta zostaje bomba. Agenci specjalni: Fox Mulder (David Duchovny) i Dana Scully (Gillian Anderson) próbują unieszkodliwić ładunek wybuchowy, ale bez powodzenia. Dochodzi do eksplozji. Tymczasem Mulder spotyka tajemniczego mężczyznę z papierosem w dłoni, podającego się za dawnego przyjaciela jego ojca, i dowiaduje się od niego w sekrecie o istnieniu międzynarodowego spisku...   ... Duchovny) i Dana Scully (Gillian Anderson) próbują unieszkodliwić ładunek wybuchowy, ale bez powodzenia. Dochodzi do eksplozji. Tymczasem Mulder spotyka tajemniczego mężczyznę z papierosem w dłoni, podającego się za dawnego przyjaciela jego ojca, i dowiaduje się od niego w sekrecie o istnieniu międzynarodowego spisku...
+    

@@ -1,0 +1,9 @@
+
+        Trzy Siostry T / Three Sisters T 2011 
+        =============
+        
+        [![Trzy Siostry T / Three Sisters T 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/trzy-siostry-t-three-sisters-t-2011)
+        
+        
+ Film 'Trzy siostry T' jest opartą na faktach czarną komedią z elementami thrillera psychologicznego. Opowiada historię Roberta, 35-letniego mężczyzny, który wydaje się być upośledzony. Od urodzenia spędza czas w domu z nadopiekuńczą matką i jej dwoma siostrami, które traktują Roberta jak dziecko. Rodzina wydaje się być konwencjonalna, bardzo dbająca o dobrą reputację, ale za tą woalką, kryje się prawdziwe zło. Szybko okazuje się, że mieszkanie jest siedliskiem trzech wynaturzonych kobiet, morderczyń i dewiantek, które znęcają się fizycznie i psychicznie nad Robertem. Ich dom odwiedza piękna fryzjerka Marianna, której młodość, niewinność i inność inspiruje Roberta do uwolnienia się z koszmaru, w którym żyje. 'Trzy siostry T' są fabularnym debiutem Macieja Kowalewskiego. Scenariusz do filmu został oparty na sztuce jego autorstwa, pt. “Trzy siostrzyczki Trupki”.  ... wynaturzonych kobiet, morderczyń i dewiantek, które znęcają się fizycznie i psychicznie nad Robertem. Ich dom odwiedza piękna fryzjerka Marianna, której młodość, niewinność i inność inspiruje Roberta do uwolnienia się z koszmaru, w którym żyje. 'Trzy siostry T' są fabularnym debiutem Macieja Kowalewskiego. Scenariusz do filmu został oparty na sztuce jego autorstwa, pt. “Trzy siostrzyczki Trupki”.
+    

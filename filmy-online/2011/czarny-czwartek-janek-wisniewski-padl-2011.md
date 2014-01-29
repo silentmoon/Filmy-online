@@ -1,0 +1,9 @@
+
+        Czarny Czwartek. Janek Wiśniewski padł 2011 
+        =============
+        
+        [![Czarny Czwartek. Janek Wiśniewski padł 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/czarny-czwartek-janek-wisniewski-padl-2011)
+        
+        
+ Jedna z największych i najbardziej oczekiwanych polskich produkcji od czasu filmu 'Popiełuszko. Wolność jest w nas'. W przejmującym obrazie, porównywanym do nagrodzonej Złotym Niedźwiedziem 'Krwawej niedzieli' Paula Greengrassa, Antoni Krauze przypomina jedną z najmroczniejszych kart z historii PRL-u. Widowiskową rekonstrukcję dramatycznych wydarzeń w Gdyni, zakończonych brutalną pacyfikacją manifestantów przez oddziały wojska i milicji w 1970 roku, wyróżniają nie tylko rozmach inscenizacyjny i trzymająca w napięciu akcja. Warto zwrócić uwagę na wybitne kreacje Piotra Fronczewskiego jako Zenona Kliszki oraz Wojciecha Pszoniaka jako Władysława Gomułki, a także wzruszające role debiutującej na ekranie Marty Honzatko i znanego z 'U Pana Boga za miedzą' Michała Kowalskiego. Muzykę do filmu skomponował Michał Lorenc ('Śluby panieńskie'). 'Balladę o Janku Wiśniewskim' - porywający motyw przewodni do 'Czarnego czwartku' - zaśpiewał Kazik Staszewski.   ... rozmach inscenizacyjny i trzymająca w napięciu akcja. Warto zwrócić uwagę na wybitne kreacje Piotra Fronczewskiego jako Zenona Kliszki oraz Wojciecha Pszoniaka jako Władysława Gomułki, a także wzruszające role debiutującej na ekranie Marty Honzatko i znanego z 'U Pana Boga za miedzą' Michała Kowalskiego. Muzykę do filmu skomponował Michał Lorenc ('Śluby panieńskie'). 'Balladę o Janku Wiśniewskim' - porywający motyw przewodni do 'Czarnego czwartku' - zaśpiewał Kazik Staszewski.
+    

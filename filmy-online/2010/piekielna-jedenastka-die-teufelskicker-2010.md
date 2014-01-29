@@ -1,0 +1,9 @@
+
+        Piekielna jedenastka / Die Teufelskicker 2010 
+        =============
+        
+        [![Piekielna jedenastka / Die Teufelskicker 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/piekielna-jedenastka-die-teufelskicker-2010)
+        
+        
+ Dwunastoletni Moritz (Henry Horn) gra w klubie piłkarskim, w którym trenerem jest jego ojciec (Benno Fürmann). Matka (Diana Amft) z zapałem mu kibicuje, ale nie ma żadnego pojęcia o piłce nożnej. Przypadkowo zauważa ona męża całującego się z inną kobietą. Natychmiast pakuje się, zabiera syna i wyjeżdża do ojca, dawniej piłkarza, obecnie stróża nocnego imieniem Rudi (Reiner Schöne). Moritz szybko znajduje kolegów dzięki pomocy sympatycznego rówieśnika Enesa (Kaan Aydogdu). Kompletuje też drużynę, ponieważ nie może się dostać do miejscowego klubu FVB przez konflikt z jednym z zawodników - Markiem (Tim Troeger). Do drużyny Moritza przyłącza się grupa parkour na czele z Wariatem (Marvin Schlatter), a także siostra Marka Catrina (Cosima Henman). Piekielna jedenastka dostaje się do turnieju i dzięki pomocy Rudiego trenuje nocami w centrum handlowym. Dzieciaki muszą zwyciężyć nie tylko drużynę FVB z Markiem na czele, ale też drużynę ojca Moritza, który jest zdecydowany odzyskać żonę i syna.  ... Kompletuje też drużynę, ponieważ nie może się dostać do miejscowego klubu FVB przez konflikt z jednym z zawodników - Markiem (Tim Troeger). Do drużyny Moritza przyłącza się grupa parkour na czele z Wariatem (Marvin Schlatter), a także siostra Marka Catrina (Cosima Henman). Piekielna jedenastka dostaje się do turnieju i dzięki pomocy Rudiego trenuje nocami w centrum handlowym. Dzieciaki muszą zwyciężyć nie tylko drużynę FVB z Markiem na czele, ale też drużynę ojca Moritza, który jest zdecydowany odzyskać żonę i syna.
+    

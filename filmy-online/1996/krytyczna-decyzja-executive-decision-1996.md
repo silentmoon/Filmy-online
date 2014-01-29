@@ -1,0 +1,9 @@
+
+        Krytyczna decyzja / Executive Decision 1996 
+        =============
+        
+        [![Krytyczna decyzja / Executive Decision 1996 ](http://vidos.pl/images/player.gif)](http://vidos.pl/krytyczna-decyzja-executive-decision-1996)
+        
+        
+ Arabska grupa terrorystyczna porywa lecący nad oceanem pasażerski samolot Boeing 747. Jak się okazuje, na pokładzie samolotu oprócz 400 pasażerów i załogi znajduje się także śmiercionośny gaz DZ-5, który w odpowiedni sposób wykorzystany przez terrorystów, może zabić miliony ludzi. Konieczne jest przeprowadzenie akcji odbicia samolotu z rąk terrorystów i to jak najszybciej, dopóki samolot znajduje się nad oceanem, w przeciwnym wypadku konieczne będzie jego zestrzelenie przez siły powietrzne USA. Operacją dowodzi doświadczony płk. Austin Travis (w tej roli Steven Seagal), a konsultantem pomocniczym jest David Grant (Kurt Russell), jedna z nielicznych osób, która już miała do czynienia z przywódcą terrorystów przebywających na pokładzie samolotu. Zaplanowana akcja z użyciem wszelkich dostępnych środków technicznych ma duże szanse zakończyć się sukcesem... Tymczasem podczas próby przedostania się na pokład porwanego samolotu dochodzi do nieprzewidzianych komplikacji....  ... siły powietrzne USA. Operacją dowodzi doświadczony płk. Austin Travis (w tej roli Steven Seagal), a konsultantem pomocniczym jest David Grant (Kurt Russell), jedna z nielicznych osób, która już miała do czynienia z przywódcą terrorystów przebywających na pokładzie samolotu. Zaplanowana akcja z użyciem wszelkich dostępnych środków technicznych ma duże szanse zakończyć się sukcesem... Tymczasem podczas próby przedostania się na pokład porwanego samolotu dochodzi do nieprzewidzianych komplikacji....
+    

@@ -1,0 +1,9 @@
+
+        Wino truskawkowe 2008 
+        =============
+        
+        [![Wino truskawkowe 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wino-truskawkowe-2008)
+        
+        
+ Realizm magiczny połączony z subtelnym poczuciem humoru w ekranizacji 'Opowieści galicyjskich' Andrzeja Stasiuka, z udziałem znanych polskich i czeskich aktorów: Jiříego Macháčka ('Samotni'), Macieja Stuhra ('33 sceny z życia'), Mariana Dziędziela ('Wesele') i Roberta Więckiewicza ('Wszystko będzie dobrze'). 'Wino truskawkowe' to komedia obyczajowa wprowadzająca nas w magiczny świat prawdziwego środka Europy. Miłość, zbrodnia, pokuta są tu naturalnymi składnikami życia, tak jak pory roku. Główny bohater, Andrzej, porzuca wielkomiejskie życie i przenosi się na galicyjską prowincję, aby tam odnaleźć wewnętrzny spokój i harmonię. Mała mieścina, w jakiej się znalazł, rządzi się swoimi niezmiennymi prawami. Komendant policji od lat jest tu ciągle ten sam, mężczyźni przesiadują w knajpie nad kuflem piwa a w niedzielę wszyscy idą na mszę. Jest też lokalna piękność, Słowaczka Lubica, w której kocha się pół miasteczka, a ona kusi swymi wdziękami niczym Malena z filmu Giuseppe Tornatore.  ... jak pory roku. Główny bohater, Andrzej, porzuca wielkomiejskie życie i przenosi się na galicyjską prowincję, aby tam odnaleźć wewnętrzny spokój i harmonię. Mała mieścina, w jakiej się znalazł, rządzi się swoimi niezmiennymi prawami. Komendant policji od lat jest tu ciągle ten sam, mężczyźni przesiadują w knajpie nad kuflem piwa a w niedzielę wszyscy idą na mszę. Jest też lokalna piękność, Słowaczka Lubica, w której kocha się pół miasteczka, a ona kusi swymi wdziękami niczym Malena z filmu Giuseppe Tornatore.
+    

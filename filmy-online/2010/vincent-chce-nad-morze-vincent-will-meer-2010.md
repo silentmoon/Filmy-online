@@ -1,0 +1,9 @@
+
+        Vincent chce nad morze / Vincent will Meer 2010 
+        =============
+        
+        [![Vincent chce nad morze / Vincent will Meer 2010 ](http://vidos.pl/images/player.gif)](http://vidos.pl/vincent-chce-nad-morze-vincent-will-meer-2010)
+        
+        
+ Dwudziestokilkuletni Vincent cierpi na zespół Tourette'a, objawiający się nerwowymi tikami, niepohamowanym wykrzykiwaniem wulgaryzmów i zachowaniem wskazującym, że w jego komórki nerwowe co chwilę – jak sam stwierdza – załatwia się gromada klaunów. Kiedy umiera jego ukochana matka, trafia do zakładu psychiatrycznego. Ojciec, polityk walczący o reelekcję, uznaje, że chory syn przeszkodziłby mu w kampanii wyborczej. W ośrodku chłopak poznaje cierpiącego na nerwicę natręctw, pedantycznego Alexa i weterankę anoreksji Marie. Osamotniony Vincent, pozostawiony na uboczu toczącego się życia, postanawia uciec z zakładu i jechać nad morze, gdzie chciałby rozsypać prochy matki. Chłopak wspólnie z przyjaciółmi kradnie samochód szefowej ośrodka i wraz z nimi wyrusza w stronę Morza Śródziemnego. Tak zaczyna się ich wspaniała droga ku wolności. Są szczęśliwi i w końcu mogą myśleć o tym co dla nich najważniejsze: miłości, przyjaźni, odpowiedzialności...   ... pedantycznego Alexa i weterankę anoreksji Marie. Osamotniony Vincent, pozostawiony na uboczu toczącego się życia, postanawia uciec z zakładu i jechać nad morze, gdzie chciałby rozsypać prochy matki. Chłopak wspólnie z przyjaciółmi kradnie samochód szefowej ośrodka i wraz z nimi wyrusza w stronę Morza Śródziemnego. Tak zaczyna się ich wspaniała droga ku wolności. Są szczęśliwi i w końcu mogą myśleć o tym co dla nich najważniejsze: miłości, przyjaźni, odpowiedzialności...
+    

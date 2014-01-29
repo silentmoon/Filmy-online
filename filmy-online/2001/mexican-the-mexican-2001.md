@@ -1,0 +1,9 @@
+
+        Mexican / The Mexican 2001 
+        =============
+        
+        [![Mexican / The Mexican 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mexican-the-mexican-2001)
+        
+        
+ Jerry Welbach otrzymuje podwójne ultimatum. Jego szef gangster żąda, żeby Jerry pojechał do Meksyku i przywiózł stamtąd bezcenny, zabytkowy pistolet nazywany 'The Mexican', w innym wypadku poniesie srogie konsekwencje niesubordynacji. Drugie ultimatum stawia Jerry'emu jego dziewczyna, Samantha, która domaga się, żeby zerwał wszelkie kontakty z przestępczym światem. Jerry uzmysławia sobie, że woli pozostać przy życiu, nawet za cenę kłopotów ze swoją dziewczyną, wyrusza więc do Meksyku. Okazuje się, że samo znalezienie pistoletu nie jest takim problemem, jak przewiezienie go do kraju. Pistolet zdaje się przynosić nieszczęście, zwłaszcza, gdy Samantha zostaje zakładniczką płatnego zabójcy, Leroya, który przetrzymuje ją jako gwarancję bezpiecznego zwrotu pistoletu przez Jerry'ego.   ... Meksyku. Okazuje się, że samo znalezienie pistoletu nie jest takim problemem, jak przewiezienie go do kraju. Pistolet zdaje się przynosić nieszczęście, zwłaszcza, gdy Samantha zostaje zakładniczką płatnego zabójcy, Leroya, który przetrzymuje ją jako gwarancję bezpiecznego zwrotu pistoletu przez Jerry'ego.
+    

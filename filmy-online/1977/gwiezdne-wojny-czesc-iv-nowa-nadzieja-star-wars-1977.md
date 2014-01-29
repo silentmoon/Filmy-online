@@ -1,0 +1,9 @@
+
+        Gwiezdne wojny: Część IV - Nowa nadzieja / Star Wars 1977 
+        =============
+        
+        [![Gwiezdne wojny: Część IV - Nowa nadzieja / Star Wars 1977 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gwiezdne-wojny-czesc-iv-nowa-nadzieja-star-wars-1977)
+        
+        
+ Dawno, dawno temu w odległej galaktyce...  Rycerze Jedi zostali wytępieni, a Imperium żelazną ręka sprawuje rządy nad całą galaktyką. Mała grupa Rebeliantów podejmuje walkę kradnąc tajne plany najpotężniejszej broni Imperium - tzw. Gwiazdy Śmierci. Najbardziej zaufany sługa Imperatora - Darth Vader musi odzyskać plany i odnaleźć ukrytą bazę buntowników. Księżniczka Leia - wzięta do niewoli przywódczyni Rebeliantów, wysyła sygnał z wezwaniem pomocy, który zostaje przechwycony przez zwykłego chłopaka z farmy - Luke'a Skywalkera. Wychodząc naprzeciw swemu przeznaczeniu, Luke podejmuje wyzwanie i rusza na ratunek Księżniczce chcąc pomóc Rebeliantom w obaleniu Imperium. W misji pomagają mu niezwykli sojusznicy - mądry Obi-Wan Kenobi, nieco arogancki gwiezdny awanturnik Han Solo i jego lojalny towarzysz Chewbacca a także dwa droidy R2-D2 i C-3PO.   ... przez zwykłego chłopaka z farmy - Luke'a Skywalkera. Wychodząc naprzeciw swemu przeznaczeniu, Luke podejmuje wyzwanie i rusza na ratunek Księżniczce chcąc pomóc Rebeliantom w obaleniu Imperium. W misji pomagają mu niezwykli sojusznicy - mądry Obi-Wan Kenobi, nieco arogancki gwiezdny awanturnik Han Solo i jego lojalny towarzysz Chewbacca a także dwa droidy R2-D2 i C-3PO.
+    

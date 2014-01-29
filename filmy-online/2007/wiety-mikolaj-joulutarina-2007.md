@@ -1,0 +1,9 @@
+
+        Święty Mikołaj / Joulutarina 2007 
+        =============
+        
+        [![Święty Mikołaj / Joulutarina 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiety-mikolaj-joulutarina-2007)
+        
+        
+ Dawno, dawno temu w małej wiosce w Laponii, żył chłopiec o imieniu Mikołaj. Pewnego dnia pod saniami jego rodziców załamał się lód na jeziorze. Mikołaj stał się sierotą Mieszkańcy wioski postanowili wspólnie zaopiekować się chłopcem. Każda rodzina gościła go u siebie przez cały rok. A zawsze w Boże Narodzenie Mikołaj przenosił się do następnego domu. Żeby okazać wdzięczność, chłopiec postanowił obdarowywać dzieci swoich gospodarzy własnoręcznie wykonanymi prezentami - zabawkami. Z biegiem czasu prezenty pojawiały się na progach większości domostw, bo prawie wszyscy gościli Mikołaja. Kiedy pewnego razu w wiosce zaczęło brakować jedzenia, mieszkańcy, postanowili wysłać Mikołaja na naukę zawodu  do stolarza - pustelnika o imieniu Lisakki. Pod czujnym okiem srogiego nauczyciela Mikołaj szybko się uczył. Coraz sprawniej wykonywał zabawki i były one coraz piękniejsze. Jednak Lisakki, który nie lubił dzieci, postanowił zakazać Mikołajowi wykonywania prezentów. Świąteczna tradycja obdarowywania się prezentami została zagrożona.   ... zabawkami. Z biegiem czasu prezenty pojawiały się na progach większości domostw, bo prawie wszyscy gościli Mikołaja. Kiedy pewnego razu w wiosce zaczęło brakować jedzenia, mieszkańcy, postanowili wysłać Mikołaja na naukę zawodu  do stolarza - pustelnika o imieniu Lisakki. Pod czujnym okiem srogiego nauczyciela Mikołaj szybko się uczył. Coraz sprawniej wykonywał zabawki i były one coraz piękniejsze. Jednak Lisakki, który nie lubił dzieci, postanowił zakazać Mikołajowi wykonywania prezentów. Świąteczna tradycja obdarowywania się prezentami została zagrożona.
+    

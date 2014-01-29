@@ -1,0 +1,9 @@
+
+        Potwór / Alien Lockdown 2004 
+        =============
+        
+        [![Potwór / Alien Lockdown 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/potwor-alien-lockdown-2004)
+        
+        
+ W tajnym laboratorium rządowym doktor Alan Woodman (Savage) prowadzi eksperymenty mające na celu przekształcenie potężnego obcego w rewolucyjną maszynę do walki. Próba kończy się niepowodzeniem i potwór wydostaje się poza laboratorium zabijając wszystkich po drodze. Tylko Woodmanowi i jego asystentowi Charliemu udaje się przeżyć. Po zamknięciu budynku wzywają pomocy, na który odpowiada ściśle tajna jednostka wojskowa. Dowodzona przez piękną lecz nieustępliwą i odważną Ritę Talon (Goh) drużyna ma za zadanie zlokalizowanie i zniszczenie potwora. Współpracując z Woodmanem i Charlim zaczynają polowanie lecz szybko zdają sobie sprawę, że mają do czynienia z czymś  niż tylko potworem.  ... Talon (Goh) drużyna ma za zadanie zlokalizowanie i zniszczenie potwora. Współpracując z Woodmanem i Charlim zaczynają polowanie lecz szybko zdają sobie sprawę, że mają do czynienia z czymś więcej niż tylko potworem.
+    

@@ -1,0 +1,9 @@
+
+        Pokémon 2: Uwierz w swoją siłę / Gekijô-ban poketto monsutâ: Maboroshi no pokemon: Rugia bakutan 1999 
+        =============
+        
+        [![Pokémon 2: Uwierz w swoją siłę / Gekijô-ban poketto monsutâ: Maboroshi no pokemon: Rugia bakutan 1999 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pokmon-2-uwierz-w-swoja-sile-gekij-ban-poketto-monsut-maboroshi-no-pokemon-rugia-bakutan-1999)
+        
+        
+ Pod tytułem Pokemon 2 kryją się dwie kreskówki: 22-minutowy Pikachu Wybawca oraz pełnometrażowy Uwierz w swoją siłę. Pierwszy film to bezdialogowa etiuda o przygodach Pikachu i jego przyjaciół (wyłącznie Pokemonów - ludzie się tu nie pojawiają) w konarach gigantycznego, rajskiego drzewa. W drugiej kreskówce ludzie i Pokemony muszą stawić czoło śmiertelnemu niebezpieczeństwu, które grozi światu. Zły kolekcjoner Pokemonów Jirarudan pragnie schwytać trzy legendarne, skrzydlate Pokemony reprezentujące żywioły ognia, mrozu i elektryczności. Mając je w ręku będzie mógł się dobrać do Lugii - najpotężniejszego Pokemona na świecie, uosabiającego majestat Oceanu. Jirarudan chce zapanować nad Lugią, by z jego pomocą zdobyć władzę nad światem. Swoimi działaniami zaburza równowagę klimatyczną naszej planety. Ziemi grozi zagłada. Na ratunek wyruszają Pokemony i ich trenerzy - najważniejsze ale i najtrudniejsze zadanie przypadnie oczywiście w udziale Ashowi i Pikachu.   ... Pokemony reprezentujące żywioły ognia, mrozu i elektryczności. Mając je w ręku będzie mógł się dobrać do Lugii - najpotężniejszego Pokemona na świecie, uosabiającego majestat Oceanu. Jirarudan chce zapanować nad Lugią, by z jego pomocą zdobyć władzę nad światem. Swoimi działaniami zaburza równowagę klimatyczną naszej planety. Ziemi grozi zagłada. Na ratunek wyruszają Pokemony i ich trenerzy - najważniejsze ale i najtrudniejsze zadanie przypadnie oczywiście w udziale Ashowi i Pikachu.
+    

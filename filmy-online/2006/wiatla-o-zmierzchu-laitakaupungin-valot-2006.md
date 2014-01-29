@@ -1,0 +1,9 @@
+
+        Światła o zmierzchu / Laitakaupungin valot 2006 
+        =============
+        
+        [![Światła o zmierzchu / Laitakaupungin valot 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/wiatla-o-zmierzchu-laitakaupungin-valot-2006)
+        
+        
+ Podobnie jak Mały Włóczęga Chaplina, bohater filmu, niejaki Koistinen,usiłuje przebić anonimową skorupę otaczającego go świata, który jak gdyby sprzysiągł się, aby zmiażdżyć jego nadzieje na lepsze życie. Przestępcy wykorzystują jego tęsknotę za prawdziwą miłością i posadę nocnego stróża, aby zorganizować śmiały skok. Wszystko to dzieje się za sprawą najokrutniejszej femme fatale w historii kina od czasu bohaterki 'Wszystko o Ewie' Josepha L. Mankiewicza z 1950 roku. Kositinen szybko wpada w jej sidła. Blondwłosa Maria z łatwością nim manipuluje i wplątuje go w przestępstwo, a potem pozostawia go zupełnie samego z konsekwencjami. Szczęśliwie dla naszego bohatera, Kaurismaki słynie ze swojego sentymentalizmu i miękkiego serca. Możemy się więc spodziewać, że w ostatniej scenie dla Koistinena zabłyśnie światełko w tunelu.  ... Kositinen szybko wpada w jej sidła. Blondwłosa Maria z łatwością nim manipuluje i wplątuje go w przestępstwo, a potem pozostawia go zupełnie samego z konsekwencjami. Szczęśliwie dla naszego bohatera, Kaurismaki słynie ze swojego sentymentalizmu i miękkiego serca. Możemy się więc spodziewać, że w ostatniej scenie dla Koistinena zabłyśnie światełko w tunelu.
+    

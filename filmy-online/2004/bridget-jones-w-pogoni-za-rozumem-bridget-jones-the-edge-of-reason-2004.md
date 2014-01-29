@@ -1,0 +1,9 @@
+
+        Bridget Jones: W pogoni za rozumem / Bridget Jones: The Edge of Reason 2004 
+        =============
+        
+        [![Bridget Jones: W pogoni za rozumem / Bridget Jones: The Edge of Reason 2004 ](http://vidos.pl/images/player.gif)](http://vidos.pl/bridget-jones-w-pogoni-za-rozumem-bridget-jones-the-edge-of-reason-2004)
+        
+        
+ W tej kontynuacji pamiętnika odnajdujemy Bridget, tam gdzie ją zostawiliśmy - w ramionach przystojnego prawnika Marka Darcy (Colin Firth). Mark toleruje (prawie) wszystkie ataki zazdrości Bridget. Dlaczego bowiem każda kobieta w Londynie, łącznie z nową długonogą stażystką pracującą z Markiem, nie miałaby pragnąć odebrać takiego faceta pulchnej, popełniającej gafy Bridget ? Wraz z pojawieniem się zagrożenia, różowe obłoczki nad głową Bridget stają się ciemnymi chmurami, a jej związek z Darcy'm musi przejść poważną próbę. Kiedy wydaje się, że burza jest nieunikniona, na horyzoncie pojawia się były szef Bridget i niepoprawny kobieciarz Daniel Cleaver (Hugh Grant). Panna Jones - symboliczna bohaterka samotnych, pracujących kobiet - dryfuje wśród krępujących sytuacji i romantycznych nieporozumień, przez cały czas usiłując radzić sobie z zawirowaniami otaczającego ją świata.  ... jej związek z Darcy'm musi przejść poważną próbę. Kiedy wydaje się, że burza jest nieunikniona, na horyzoncie pojawia się były szef Bridget i niepoprawny kobieciarz Daniel Cleaver (Hugh Grant). Panna Jones - symboliczna bohaterka samotnych, pracujących kobiet - dryfuje wśród krępujących sytuacji i romantycznych nieporozumień, przez cały czas usiłując radzić sobie z zawirowaniami otaczającego ją świata.
+    

@@ -1,0 +1,9 @@
+
+        Piękne istoty / Beautiful Creatures 2013 
+        =============
+        
+        [![Piękne istoty / Beautiful Creatures 2013 ](http://vidos.pl/images/player.gif)](http://vidos.pl/piekne-istoty-beautiful-creatures-2013)
+        
+        
+ 'Piękne istoty' to film oparty na pierwszej części powieści autorstwa Kami Garcii oraz Margaret Stohl. Opowiada historię szesnastoletniego Ethana Wate'a, który mieszka na południu Stanów Zjednoczonych. W małym miasteczku Gatlin w Karolinie Południowej czas stanął w miejscu, a ludzie ciągle postrzegają wojnę secesyjną poprzez pryzmat 'północnej agresji'. Jednakże pierwszego dnia kolejnego roku szkolnego Wate (Alden Ehrenreich) spotyka tajemniczą Lenę Duchannes (Alice Englert), siostrzenicę lokalnego odludka (Jeremy Irons), a także... dziewczynę swoich marzeń. Ethan szybko odkrywa, że Lena nie jest typową nastolatką, a ich rodzący się związek nie opiera się tylko i wyłącznie na fizycznym przyciąganiu, lecz również na tajemniczej więzi, która już niedługo zmieni ich życie.  ... siostrzenicę lokalnego odludka (Jeremy Irons), a także... dziewczynę swoich marzeń. Ethan szybko odkrywa, że Lena nie jest typową nastolatką, a ich rodzący się związek nie opiera się tylko i wyłącznie na fizycznym przyciąganiu, lecz również na tajemniczej więzi, która już niedługo zmieni ich życie.
+    

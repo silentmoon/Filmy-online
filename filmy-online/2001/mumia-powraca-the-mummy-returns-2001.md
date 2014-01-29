@@ -1,0 +1,9 @@
+
+        Mumia powraca / The Mummy Returns 2001 
+        =============
+        
+        [![Mumia powraca / The Mummy Returns 2001 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mumia-powraca-the-mummy-returns-2001)
+        
+        
+ Jest rok 1935. Rick O'Connell i Evelyn są szczęśliwą parą małżeńską. Mieszkają w Londynie, gdzie wychowują ośmioletniego synka Alexa. Ciąg nieprzewidzianych wypadków sprawia, że zabalsamowane ciało Imhotepa powraca do życia w statecznych salach British Museum. Imhotep - Mumia nie daje za wygraną i gotowy jest zrobić wszystko, aby zapewnić sobie nieśmiertelność. W tym samym czasie, w innym zakątku ziemi na wolność wydostaje się jeszcze jedna mroczna siła, powołana do życia dzięki tajemniczym rytuałom staroegipskiego mistycyzmu. Swoją mocą jest ona w stanie dorównać, a może i prześcignąć Imhotepa. Kiedy dwie siły podejmują ze sobą walkę, losy całego świata wiszą na włosku. Jedynym ratunkiem może okazać się bezzwłoczna interwencja O'Connellów, którzy w desperacji podejmują próbę uwolnienia globu spod panowania czarnych sił, jednocześnie walcząc o uratowanie swojego syna Alexa. Czasu jest niewiele, a przeciwnik zbudził się ze swojego wielowiekowego snu...   ... dzięki tajemniczym rytuałom staroegipskiego mistycyzmu. Swoją mocą jest ona w stanie dorównać, a może i prześcignąć Imhotepa. Kiedy dwie siły podejmują ze sobą walkę, losy całego świata wiszą na włosku. Jedynym ratunkiem może okazać się bezzwłoczna interwencja O'Connellów, którzy w desperacji podejmują próbę uwolnienia globu spod panowania czarnych sił, jednocześnie walcząc o uratowanie swojego syna Alexa. Czasu jest niewiele, a przeciwnik zbudził się ze swojego wielowiekowego snu...
+    

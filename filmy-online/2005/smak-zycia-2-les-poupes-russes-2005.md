@@ -1,0 +1,9 @@
+
+        Smak życia 2 / Les Poupées russes 2005 
+        =============
+        
+        [![Smak życia 2 / Les Poupées russes 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/smak-zycia-2-les-poupes-russes-2005)
+        
+        
+ Xavier zamierza poświęcić się karierze urzędnika. Po pełnym wrażeń roku na stypendium w Barcelonie zmienia zdanie. Postanawia podążać za marzeniami - zostaje pisarzem. Tak kończy się pierwsza część filmu. Pięć lat po niezwykłych studiach w Barcelonie Xavier ma przed sobą nowe wyzwania. Bank, który udzielił mu kredytu, zaczyna stwarzać problemy. Xavierowi, oprócz pieniędzy, brakuje też szczęścia w miłości. Zawody i dziewczyny nasz bohater zmienia jak rękawiczki... Robi wszystko, by odnaleźć życiowe spełnienie. Bez skutku. Sprawy komplikują się na dobre, kiedy Xavier traci pracę, musi opiekować się dzieckiem byłej dziewczyny oraz swoim dziadkiem. W końcu rewiduje nieco swoje marzenia. Bardziej pragmatyczny, zostaje dziennikarzem. Podróże, nie tylko do miast Europy stają się jego codziennością. Los rzuca Xaviera do Londynu a następnie do Sankt Petersburga. Sprawy przybierają niespodziewany obrót. [opis dystrybutora]  ... wszystko, by odnaleźć życiowe spełnienie. Bez skutku. Sprawy komplikują się na dobre, kiedy Xavier traci pracę, musi opiekować się dzieckiem byłej dziewczyny oraz swoim dziadkiem. W końcu rewiduje nieco swoje marzenia. Bardziej pragmatyczny, zostaje dziennikarzem. Podróże, nie tylko do miast Europy stają się jego codziennością. Los rzuca Xaviera do Londynu a następnie do Sankt Petersburga. Sprawy przybierają niespodziewany obrót. [opis dystrybutora]
+    

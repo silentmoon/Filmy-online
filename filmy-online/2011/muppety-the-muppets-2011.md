@@ -1,0 +1,9 @@
+
+        Muppety / The Muppets 2011 
+        =============
+        
+        [![Muppety / The Muppets 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/muppety-the-muppets-2011)
+        
+        
+ Walt Disney Studios przedstawia dalsze losy kultowych pluszowych bohaterów, którym tym razem na planie będą partnerować takie gwiazdy jak Jason Segel (serial Jak poznałem waszą matkę), Amy Adams (Wątpliwość, Fighter) i Chris Cooper (Adaptacja). „Muppety” to przezabawny i zakręcony film, który zachwyci ciebie i całą twoją rodzinę! Podczas wakacji w Los Angeles Walter – największy fan Muppetów na świecie – oraz Gary (Segel) i jego dziewczyna Mary (Adams) wpadają na trop diabolicznej intrygi uknutej przez chciwego Texa Richmana (Cooper), który planuje zburzyć Teatr Muppetów i wykorzystać zdobyty teren pod odwierty naftowe. By powstrzymać nikczemnego milionera, przyjaciele będą musieli zjednoczyć starą ekipę i skłonić Kermita, Pannę Piggy, Misia Faziego oraz resztę paczki do powrotu na scenę. Zobacz triumfalny comeback Muppetów w produkcji pełnej niezapomnianej muzyki, żartów i śmiechu. To pozycja obowiązkowa dla każdego fana szalonych pluszaków! Film został nagrodzony Oscarem za Najlepszą piosenkę 'Man ora Muppet'   ... diabolicznej intrygi uknutej przez chciwego Texa Richmana (Cooper), który planuje zburzyć Teatr Muppetów i wykorzystać zdobyty teren pod odwierty naftowe. By powstrzymać nikczemnego milionera, przyjaciele będą musieli zjednoczyć starą ekipę i skłonić Kermita, Pannę Piggy, Misia Faziego oraz resztę paczki do powrotu na scenę. Zobacz triumfalny comeback Muppetów w produkcji pełnej niezapomnianej muzyki, żartów i śmiechu. To pozycja obowiązkowa dla każdego fana szalonych pluszaków! Film został nagrodzony Oscarem za Najlepszą piosenkę 'Man ora Muppet'
+    

@@ -1,0 +1,9 @@
+
+        Ciekawy przypadek Benjamina Buttona / The Curious Case of Benjamin Button 2008 
+        =============
+        
+        [![Ciekawy przypadek Benjamina Buttona / The Curious Case of Benjamin Button 2008 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ciekawy-przypadek-benjamina-buttona-the-curious-case-of-benjamin-button-2008)
+        
+        
+ 'Urodziłem się w okolicznościach niezwykłych.' - i tak też zaczyna się 'Benjamin Button', adaptacja klasycznej noweli F. Scotta Fitzgeralda z lat dwudziestych XX wieku o człowieku, który przychodzi na świat jako osiemdziesięciolatek i stopniowo młodnieje. O człowieku, który – podobnie jak my wszyscy – nie potrafi zatrzymać upływu czasu. Jego osobistą historię, osadzoną w Nowym Orleanie, śledzimy od końca I Wojny Światowej w 1918 roku aż po XXI wiek, przeżywając jego los równie niezwykły, jak bywa los każdego człowieka. Wyreżyserowany przez Davida Finchera, z Bradem Pittem, Cate Blanchett, Tildą Swinton, Taraji P. Henson, Jasonem Flemyngiem, Eliasem Koteasem i Julią Ormond w rolach głównych, film 'Ciekawy przypadek Benjamina Buttona' jest w istocie opowieścią podróżnika w czasie, o ludziach i o miejscach, które napotyka, o odnalezionych i utraconych miłościach, o radości życia i smutku śmierci, a także o tym, czego czas nie zmienia.  ... równie niezwykły, jak bywa los każdego człowieka. Wyreżyserowany przez Davida Finchera, z Bradem Pittem, Cate Blanchett, Tildą Swinton, Taraji P. Henson, Jasonem Flemyngiem, Eliasem Koteasem i Julią Ormond w rolach głównych, film 'Ciekawy przypadek Benjamina Buttona' jest w istocie opowieścią podróżnika w czasie, o ludziach i o miejscach, które napotyka, o odnalezionych i utraconych miłościach, o radości życia i smutku śmierci, a także o tym, czego czas nie zmienia.
+    

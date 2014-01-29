@@ -1,0 +1,9 @@
+
+        Życie to jest to / La Chispa de la vida 2011 
+        =============
+        
+        [![Życie to jest to / La Chispa de la vida 2011 ](http://vidos.pl/images/player.gif)](http://vidos.pl/ycie-to-jest-to-la-chispa-de-la-vida-2011)
+        
+        
+ Kolejna zwariowana komedia twórcy HISZPAŃSKIEGO CYRKU - mistrza czarnego humoru, brawurowej satyry i zjadliwej ironii. Tym razem Álex de la Iglesia bierze na warsztat medialny cyrk i pragnienie sławy, opowiadając historię Roberto - speca od marketingu i autora powszechnie znanego hasła reklamowego Coca-Coli sprzed lat. Dziś jednak nikt o tym nie pamięta, a sfrustrowanego Roberto nikt nie chce zatrudnić. Szansa na zmianę złej passy pojawia się, gdy mężczyzna spada z rusztowania w ruinach rzymskiego amfiteatru w Kartagenie. Zawieszony pomiędzy życiem a śmiercią, z prętem wbitym w głowę, staje się natychmiast pożywką dla dziennikarzy, podczas gdy ekipy ratunkowe głowią się, jak go uwolnić. Zdesperowany Roberto postanawia wykorzystać sytuację: zatrudnia agenta, by zbić fortunę na ekskluzywnych wywiadach i zapewnić rodzinie lepszą przyszłość. Intrydze sprzeciwia się jego kochająca żona (nominowana do Nagrody Goya Salma Hayek), podczas gdy żądny sukcesu agent dochodzi do wniosku, że uratowanie jego klienta to koniec lukratywnego biznesu...   ... rusztowania w ruinach rzymskiego amfiteatru w Kartagenie. Zawieszony pomiędzy życiem a śmiercią, z prętem wbitym w głowę, staje się natychmiast pożywką dla dziennikarzy, podczas gdy ekipy ratunkowe głowią się, jak go uwolnić. Zdesperowany Roberto postanawia wykorzystać sytuację: zatrudnia agenta, by zbić fortunę na ekskluzywnych wywiadach i zapewnić rodzinie lepszą przyszłość. Intrydze sprzeciwia się jego kochająca żona (nominowana do Nagrody Goya Salma Hayek), podczas gdy żądny sukcesu agent dochodzi do wniosku, że uratowanie jego klienta to koniec lukratywnego biznesu...
+    

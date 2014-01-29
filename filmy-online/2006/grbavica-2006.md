@@ -1,0 +1,9 @@
+
+        Grbavica 2006 
+        =============
+        
+        [![Grbavica 2006 ](http://vidos.pl/images/player.gif)](http://vidos.pl/grbavica-2006)
+        
+        
+ Opowieść o współczesnej, niepełnej rodzinie i jednocześnie poruszające studium 'pamięci i zapomnienia' o cierpieniu, o bólu, o niemożności pogodzenia się z doznanymi krzywdami ofiar wojny na Bałkanach. Film przypomina jeden ze wstydliwych epizodów tej wojny - gwałty dokonywane przez serbskich żołnierzy na więzionych w obozach bośniackich kobietach. Wdowa po bośniackim żołnierzu, Esma (Mirjana Karanović), mieszka wraz z nastoletnią córką Sarą (Luna Mijović) w jednej z dzielnic Sarajewa, Grbavicy. Dziewczynka właśnie weszła w trudny okres dojrzewania - staje się bardziej świadoma otaczającego świata, zadaje pytania, szuka odpowiedzi. Drobne zdarzenie - niechęć matki do pójścia po urzędowe zaświadczenie stwierdzające, że ojciec Sary był bohaterem wojennym a co za tym idzie nie uzyskanie przez córkę zniżki na wymarzoną wycieczkę, staje się początkiem ostrego konfliktu pomiędzy nimi. Sara za wszelką cenę, posługując się nawet drastycznymi środkami, stara się zmusić matkę do powiedzenia prawdy o swoim pochodzeniu.   ... Sarajewa, Grbavicy. Dziewczynka właśnie weszła w trudny okres dojrzewania - staje się bardziej świadoma otaczającego świata, zadaje pytania, szuka odpowiedzi. Drobne zdarzenie - niechęć matki do pójścia po urzędowe zaświadczenie stwierdzające, że ojciec Sary był bohaterem wojennym a co za tym idzie nie uzyskanie przez córkę zniżki na wymarzoną wycieczkę, staje się początkiem ostrego konfliktu pomiędzy nimi. Sara za wszelką cenę, posługując się nawet drastycznymi środkami, stara się zmusić matkę do powiedzenia prawdy o swoim pochodzeniu.
+    

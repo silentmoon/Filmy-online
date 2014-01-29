@@ -1,0 +1,9 @@
+
+        Gdzie jesteś, Amando / Gone Baby Gone 2007 
+        =============
+        
+        [![Gdzie jesteś, Amando / Gone Baby Gone 2007 ](http://vidos.pl/images/player.gif)](http://vidos.pl/gdzie-jestes-amando-gone-baby-gone-2007)
+        
+        
+ Na robotniczych przedmieściach Bostonu, Dorchester, zaginęła bez śladu czteroletnia Amanda McCready. Policja wkrótce daje za wygrana, jednak zdesperowani ciotka i wuj zaginionej, opiekunowie dziewczynki, zlecają poszukiwania parze młodych detektywów, związanych ze sobą także w życiu prywatnym, Patrickowi Kenzie i Angie Genarro. Okazuje się, że matka dziewczynki jest mocno uzależniona od alkoholu i narkotyków, co nie ułatwia dochodzenia. Detektywi wpadają na trop sieci dealerów w Dorchester, odkrywają także przypadki molestowania seksualnego. Ale niestety nie przybliża ich to ani na krok do odkrycia zagadki zniknięcia Amandy. Sprawą interesują się media, para tropicieli zaczyna więc współpracować z policją, z detektywem Remym Bressantem i kapitanem Jackiem Boylem, który stoi na czele wydziału do walki z przestępczością skierowaną przeciw dzieciom. Kenzie w końcu wpada na szokujący trop... [opis dystrybutora]  ... dealerów w Dorchester, odkrywają także przypadki molestowania seksualnego. Ale niestety nie przybliża ich to ani na krok do odkrycia zagadki zniknięcia Amandy. Sprawą interesują się media, para tropicieli zaczyna więc współpracować z policją, z detektywem Remym Bressantem i kapitanem Jackiem Boylem, który stoi na czele wydziału do walki z przestępczością skierowaną przeciw dzieciom. Kenzie w końcu wpada na szokujący trop... [opis dystrybutora]
+    

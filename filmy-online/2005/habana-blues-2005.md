@@ -1,0 +1,9 @@
+
+        Habana Blues 2005 
+        =============
+        
+        [![Habana Blues 2005 ](http://vidos.pl/images/player.gif)](http://vidos.pl/habana-blues-2005)
+        
+        
+ Ruy (Alberto Joel Garcia) i Tito (Roberto San-Martin), dwaj młodzi Kubańczycy, przyjaciele od dzieciństwa, marzą, by zrobić karierę w świecie muzyki, osiągnąć sukces i zdobyć sławę. Tito mieszka ze swoją babcią, wielką damą muzyki, stateczną elegantką. Ruy mieszka ze swą dziewczyną Caridad (Yailene Sierra), z którą ma dwójkę dzieci. Mimo, że się kochają, nie układa się między nimi. Caridad udaje się utrzymywać ich 'rodzinę' dzięki swym zdolnościom plastycznym. Pewnego dnia zjawia się znana para hiszpańskich producentów muzycznych, Martha i Lorenzo, poszukujący nowych, obiecujących talentów muzycznych na Kubie. Kilka tygodni wcześniej usłyszeli grę Ruya i Tita i składają im propozycję zrobienia międzynarodowej kariery. Ruy i Tito na taką okazję właśnie czekali. Okazuje się jednak, że producenci z 'wolnego świata' nie są tak bezinteresowni, jak się początkowo wydawało. Muzycy zostają postawieni przed trudnym wyborem. Czy będą zdolni porzucić swój dotychczasowy świat, rodzinę i wspaniałych przyjaciół aby wyruszyć w nieznane i spróbować spełnić swe marzenie?  ... zjawia się znana para hiszpańskich producentów muzycznych, Martha i Lorenzo, poszukujący nowych, obiecujących talentów muzycznych na Kubie. Kilka tygodni wcześniej usłyszeli grę Ruya i Tita i składają im propozycję zrobienia międzynarodowej kariery. Ruy i Tito na taką okazję właśnie czekali. Okazuje się jednak, że producenci z 'wolnego świata' nie są tak bezinteresowni, jak się początkowo wydawało. Muzycy zostają postawieni przed trudnym wyborem. Czy będą zdolni porzucić swój dotychczasowy świat, rodzinę i wspaniałych przyjaciół aby wyruszyć w nieznane i spróbować spełnić swe marzenie?
+    
