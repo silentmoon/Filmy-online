@@ -1,0 +1,5 @@
+JAG - Wojskowe Biuro Śledcze s10e04 sezon 10 odcinek 4 Whole New Ball Game
+=============
+[![JAG - Wojskowe Biuro Śledcze s10e04 sezon 10 odcinek 4 Whole New Ball Game](http://vidos.pl/images/player.gif)](http://vidos.pl/jag-wojskowe-biuro-ledcze-s10e04-sezon-10-odcinek-4-whole-new-ball-game)
+
+ Główni bohaterowie tego serialu to komandor Harmon Rabb i major Sarah MacKenzie - prawnicy Wojskowego Biura Śledczego JAG. Sprawy, jakie mają rozwiązać są wielorakie: od typowych, jak dezercja, czy nie wykonanie poleceń przełożonego - niesubordynacja, po gwałty, przemyt i morderstwa. Często prowadzenie dochodzenia jest trudne, bo zamieszane są grube ryby z armii. Zdarza się, że kompetencje wojskowe nie wystarczają... Choć w życiu prywatnym są przyjaciółymi, to w pracy czesto muszą stanąć po przeciwnych stronach barykady. Ale sądowe waśnie szybko mijają, szczególnie, że atmosfera panująca w ich biurze sprzyja dobrej i sumiennej pracy.  ... muszą stanąć po przeciwnych stronach barykady. Ale sądowe waśnie szybko mijają, szczególnie, że atmosfera panująca w ich biurze sprzyja dobrej i sumiennej pracy.

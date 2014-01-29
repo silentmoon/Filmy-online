@@ -1,0 +1,5 @@
+Więzy krwi s01e11 sezon 1 odcinek 11 Post Partum
+=============
+[![Więzy krwi s01e11 sezon 1 odcinek 11 Post Partum](http://vidos.pl/images/player.gif)](http://vidos.pl/wiezy-krwi-s01e11-sezon-1-odcinek-11-post-partum)
+
+ Vicki Nelson była policjantką, jednak musiała zrezygnować z pracy w wydziale zabójstw z powodu postępującej choroby oczu. Otworzyła własne biuro detektywistyczne, podczas pierwszej ze spraw poznała Henry'ego Fitzroya - wampira. Na początku nie mogła uwierzyć w istnienie nadprzyrodzonych mocy, jednak z czasem, w związku ze sprawami, pogodziła się z istnieniem różnych mocy i nadprzyrodzonych stworzeń. Od tej pory Vicki została specjalistką od spraw dziwnych, nie dających się racjonalnie wytłumaczyć. Podczas śledztw zawsze może liczyć na pomoc Henry'ego, Mike - jej byłego partnera zawodowego jak i życiowego oraz na Coreen, jej sekretarkę, która jako jedna z nielicznych wierzy w siły nadprzyrodzone.  ... racjonalnie wytłumaczyć. Podczas śledztw zawsze może liczyć na pomoc Henry'ego, Mike - jej byłego partnera zawodowego jak i życiowego oraz na Coreen, jej sekretarkę, która jako jedna z nielicznych wierzy w siły nadprzyrodzone.

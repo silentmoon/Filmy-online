@@ -1,0 +1,5 @@
+Sekirei s01e05 sezon 1 odcinek 5 The Water Sekirei
+=============
+[![Sekirei s01e05 sezon 1 odcinek 5 The Water Sekirei](http://vidos.pl/images/player.gif)](http://vidos.pl/sekirei-s01e05-sezon-1-odcinek-5-the-water-sekirei)
+
+ Minato Sahashi przeciętny zdolny młodzieniec po raz drugi nie dostaje się do wymarzonej uczelni. Przez co w rezultacie wszyscy zaczynają uważać go za idiotę i nieudacznika. Po rozmowie ze swoja zawiedzioną tą sytuacja mamą spotyka nagle wpadającą na niego dziewczynę o imieniu Musubi, która ucieka będąc atakowana przez kilka kobiet. Przez splot wypadków zaczynają razem ucieczkę. Okazuje się że Musubi to tak zwana Ashikabi jedna z tajemniczych 108 kobiet, która naturalnie przyciągają sztucznie stworzone kobiety zwane Sekirejami, po to by przy użyciu wszystkich sił stoczyć miedzy sobą walkę. Za całym tym zjawiskiem stoi tajemnicza korporacja MBI.  ... przyciągają sztucznie stworzone kobiety zwane Sekirejami, po to by przy użyciu wszystkich sił stoczyć miedzy sobą walkę. Za całym tym zjawiskiem stoi tajemnicza korporacja MBI.

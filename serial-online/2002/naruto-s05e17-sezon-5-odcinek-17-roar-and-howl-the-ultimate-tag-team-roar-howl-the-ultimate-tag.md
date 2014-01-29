@@ -1,0 +1,5 @@
+Naruto s05e17 sezon 5 odcinek 17 Roar and Howl! The Ultimate Tag Team! / Roar! Howl! The Ultimate Tag
+=============
+[![Naruto s05e17 sezon 5 odcinek 17 Roar and Howl! The Ultimate Tag Team! / Roar! Howl! The Ultimate Tag](http://vidos.pl/images/player.gif)](http://vidos.pl/naruto-s05e17-sezon-5-odcinek-17-roar-and-howl-the-ultimate-tag-team-roar-howl-the-ultimate-tag)
+
+ Akcja serialu rozpoczyna się od ataku demona zwanego Dziewięcioogoniastym Demonicznym Lisem, który - posiadając dużą moc - mógł zniszczyć wszystko co było w okolicy. W walce z potworem wzięło udział wielu ninja, ale tylko jeden pokonał monstrum. Był nim 'Czwarty Hokage'. Głównym bohaterem jest Uzumaki Naruto, chłopiec, na którego została nałożona pieczęć, wiążąca z nim pokonanego demona. Marzeniem bohatera jest zostać ninja, a dokładnie osiągnąć najwyższy stopień wojownika - Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.   ... Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.

@@ -1,0 +1,5 @@
+Working!! s01e07 sezon 1 odcinek 7 A well-missed Oto and, the new part-timer = Yamada (!?)
+=============
+[![Working!! s01e07 sezon 1 odcinek 7 A well-missed Oto and, the new part-timer = Yamada (!?)](http://vidos.pl/images/player.gif)](http://vidos.pl/working-s01e07-sezon-1-odcinek-7-a-well-missed-oto-and-the-new-part-timer-yamada)
+
+ Szesnastoletni uczeń szkoły średniej Takanashi Sōta rozpoczyna pracę w restauracji 'Wagnaria'. Jego koledzy i koleżanki z pracy okazują się bardzo interesującymi postaciami. Kelnerka Taneshima Popura jest starsza od niego o rok, jednak ze względu na wzrost można by ją pomylić z uczennicą szkoły podstawowej, Shirafuji Kyoko jest kierowniczką restauracji, lecz jej głównym zajęciem nie jest praca tylko jedzenie deserów, Yachiyo Todorki nie rozstaje się ze swoja kataną, kucharz Jun Satou ma problemy miłosne, jego pomocnik Hiroomi Soma ma haka na każdego w restauracji, a jedna z kelnerek - Mahiru Inami ma androfobię czyli lęk przed mężczyznami.   ... Jun Satou ma problemy miłosne, jego pomocnik Hiroomi Soma ma haka na każdego w restauracji, a jedna z kelnerek - Mahiru Inami ma androfobię czyli lęk przed mężczyznami.

@@ -1,0 +1,5 @@
+Doktor Hart s03e19 sezon 3 odcinek 19 
+=============
+[![Doktor Hart s03e19 sezon 3 odcinek 19 ](http://vidos.pl/images/player.gif)](http://vidos.pl/doktor-hart-s03e19-sezon-3-odcinek-19)
+
+ Doktor Zoe Hart marzy o karierze kardiochirurga. Najpierw jednak postanawia odbyć praktykę w niewielkiej miejscowości Bluebell.

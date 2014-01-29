@@ -1,0 +1,5 @@
+Naruto s09e01 sezon 9 odcinek 1 Kurenai's Decision: Squad 8 Left Behind
+=============
+[![Naruto s09e01 sezon 9 odcinek 1 Kurenai's Decision: Squad 8 Left Behind](http://vidos.pl/images/player.gif)](http://vidos.pl/naruto-s09e01-sezon-9-odcinek-1-kurenai-s-decision-squad-8-left-behind)
+
+ Akcja serialu rozpoczyna się od ataku demona zwanego Dziewięcioogoniastym Demonicznym Lisem, który - posiadając dużą moc - mógł zniszczyć wszystko co było w okolicy. W walce z potworem wzięło udział wielu ninja, ale tylko jeden pokonał monstrum. Był nim 'Czwarty Hokage'. Głównym bohaterem jest Uzumaki Naruto, chłopiec, na którego została nałożona pieczęć, wiążąca z nim pokonanego demona. Marzeniem bohatera jest zostać ninja, a dokładnie osiągnąć najwyższy stopień wojownika - Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.   ... Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.

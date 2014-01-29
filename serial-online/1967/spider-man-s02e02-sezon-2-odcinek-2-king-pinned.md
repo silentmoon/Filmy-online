@@ -1,0 +1,5 @@
+Spider-Man s02e02 sezon 2 odcinek 2 King Pinned
+=============
+[![Spider-Man s02e02 sezon 2 odcinek 2 King Pinned](http://vidos.pl/images/player.gif)](http://vidos.pl/spider-man-s02e02-sezon-2-odcinek-2-king-pinned)
+
+ Serial przedstawia przygody nastolatka Petera Parkera, który po ugryzieniu przez radioaktywnego pająka odkrywa w sobie niezwykłą siłę i niesamowite pajęcze zdolności. Postanawia walczyć z przestępczością jako zamaskowany superbohater,  jednocześnie borykając się z problemami osobistymi związanymi z byciem nastolatkiem. W pierwszym sezonie mamy do czynienia głównie z konfrontacjami  Spider-Mana z przeciwnikami znanymi nam z  kadrów komiksów, są to min: Vulture,  Sandman, Scorpion, Electro, Dr. Magneto, Dr. Octopus i Lizard. W kolejnych sezonach Spider-Man zmuszony jest  stawiać czoło wszelkiego rodzaju magicznym postaciom i stworom.    ... Scorpion, Electro, Dr. Magneto, Dr. Octopus i Lizard. W kolejnych sezonach Spider-Man zmuszony jest  stawiać czoło wszelkiego rodzaju magicznym postaciom i stworom. 

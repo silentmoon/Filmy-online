@@ -1,0 +1,5 @@
+Diagnoza morderstwo s07e03 sezon 7 odcinek 3 Bringing Up Barbie
+=============
+[![Diagnoza morderstwo s07e03 sezon 7 odcinek 3 Bringing Up Barbie](http://vidos.pl/images/player.gif)](http://vidos.pl/diagnoza-morderstwo-s07e03-sezon-7-odcinek-3-bringing-up-barbie)
+
+ Na razie nikt nie dodał streszczenia fabuły tego serialu. Możesz być pierwszy! Zamieść swój opis.

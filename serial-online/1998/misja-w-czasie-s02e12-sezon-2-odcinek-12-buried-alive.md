@@ -1,0 +1,5 @@
+Misja w czasie s02e12 sezon 2 odcinek 12 Buried Alive
+=============
+[![Misja w czasie s02e12 sezon 2 odcinek 12 Buried Alive](http://vidos.pl/images/player.gif)](http://vidos.pl/misja-w-czasie-s02e12-sezon-2-odcinek-12-buried-alive)
+
+ 'Chcielibyście ponownie przeżyć ubiegły tydzień?? Ja robię to cały czas. W ramach tajnego rządu cofam się w czasie. Kiedy coś nawali skacze w przeszłość, żeby to naprawić, niestety mogę się cofać tylko o 7 dni.' Misja w czasie pokazuje przygody Franka Parkera - chrononauty wyznaczonego dla amerykańskiego rządu 'Misja w czasie'. Frank cofa się wsiadając do niebieskiej kuli, stworzonej przez dr. Mentora, Vukavitch i Ballarda dzięki cudzoziemskiej technologii zdobytej w Roswell. Pozaziemska siła pozwala cofać się o 7 dni, tak, więc kiedy pojawia się kryzys, rząd nakazuje agentowi Frankowi Parkerowi skakać w przeszłość, by zapobiec katastrofie.  ... Roswell. Pozaziemska siła pozwala cofać się o 7 dni, tak, więc kiedy pojawia się kryzys, rząd nakazuje agentowi Frankowi Parkerowi skakać w przeszłość, by zapobiec katastrofie.

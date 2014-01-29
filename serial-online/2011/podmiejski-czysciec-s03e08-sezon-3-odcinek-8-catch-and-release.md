@@ -1,0 +1,5 @@
+Podmiejski czyściec s03e08 sezon 3 odcinek 8 Catch and Release
+=============
+[![Podmiejski czyściec s03e08 sezon 3 odcinek 8 Catch and Release](http://vidos.pl/images/player.gif)](http://vidos.pl/podmiejski-czysciec-s03e08-sezon-3-odcinek-8-catch-and-release)
+
+ Świetny sitcom ukazujący w krzywym zwierciadle życie amerykańskiej prowincji. Jego bohaterką jest nastolatka, która wraz z ojcem opuszcza Nowy Jork i przeprowadza się na eleganckie przedmieścia. Samotny ojciec (Jeremy Sisto) postanawia uciec z Nowego Jorku na przedmieścia, po tym jak niespodziewanie znajduje w szafce swojej piętnastoletniej córki Tessy (Jane Levy) paczkę prezerwatyw. Przerażony mężczyzna wierzy, że na prowincji uda mu się uchronić dziecko przed przedwczesnym dorastaniem. Ojciec i córka przenoszą się do tytułowego Suburgatory - pełnego fasad i pozornej perfekcji podmiejskiego świata, w którym królują „nabotoksowane” gospodynie domowe.  ... dorastaniem. Ojciec i córka przenoszą się do tytułowego Suburgatory - pełnego fasad i pozornej perfekcji podmiejskiego świata, w którym królują „nabotoksowane” gospodynie domowe.

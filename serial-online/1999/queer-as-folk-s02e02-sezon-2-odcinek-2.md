@@ -1,0 +1,5 @@
+Queer as Folk s02e02 sezon 2 odcinek 2 
+=============
+[![Queer as Folk s02e02 sezon 2 odcinek 2 ](http://vidos.pl/images/player.gif)](http://vidos.pl/queer-as-folk-s02e02-sezon-2-odcinek-2)
+
+ Mini-serial opowiadający o gejach z Manchesteru. Stuart Alan Jones to zbliżający się do 30-tki mężczyzna, który odnosi sukcesy zarówno w życiu zawodowym jak i prywatnym. Jego wycieczki na Canal Street zawsze kończą się w łóżku, nikt mu nie odmówi. Vince Tyler to jego najlepszy przyjaciel. Swój homoseksualizm ukrywa w pracy. Przed najlepszym przyjacielem ukrywa, że jest w nim zakochany. Pozostaje mu tylko humor i kasety ze wszystkimi odcinkami 'Dr Who'. Nathan Maloney zaś ma ledwie 16 lat i dopiero się ujawnił. Pełen pasji i młodzieńczej buntowniczości porzuca dom, by na Canal Street poznać, czym jest życie geja. Tak wmiesza się w życie Stuarta i Vince'a i zmieni wszystko w ich życiu.  ... ledwie 16 lat i dopiero się ujawnił. Pełen pasji i młodzieńczej buntowniczości porzuca dom, by na Canal Street poznać, czym jest życie geja. Tak wmiesza się w życie Stuarta i Vince'a i zmieni wszystko w ich życiu.

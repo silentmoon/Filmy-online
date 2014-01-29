@@ -1,0 +1,5 @@
+Drew Carey Show s04e10 sezon 4 odcinek 10 Drew's Dance Party
+=============
+[![Drew Carey Show s04e10 sezon 4 odcinek 10 Drew's Dance Party](http://vidos.pl/images/player.gif)](http://vidos.pl/drew-carey-show-s04e10-sezon-4-odcinek-10-drew-s-dance-party)
+
+ Drew Carey jest życiowym nieudacznikiem - mimo, że ma 40 lat nie jest żonaty, od kilkunastu lat nie dostał awansu a na dodatek życie zobacz pełny opis

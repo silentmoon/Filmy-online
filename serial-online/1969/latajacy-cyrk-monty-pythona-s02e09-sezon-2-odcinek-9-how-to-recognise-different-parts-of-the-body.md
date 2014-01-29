@@ -1,0 +1,5 @@
+Latający Cyrk Monty Pythona s02e09 sezon 2 odcinek 9 How to Recognise Different Parts of the Body
+=============
+[![Latający Cyrk Monty Pythona s02e09 sezon 2 odcinek 9 How to Recognise Different Parts of the Body](http://vidos.pl/images/player.gif)](http://vidos.pl/latajacy-cyrk-monty-pythona-s02e09-sezon-2-odcinek-9-how-to-recognise-different-parts-of-the-body)
+
+ Grupę Monty Pythona tworzyło pięciu Brytyjczyków (Terry Jones, John Cleese, Eric Idle, Graham Chapman, Michael Palin) oraz jeden Amerykanin (Terry Gilliam). Ich sztandarowe dzieło, czyli serial 'Latający Cyrk Monty Pythona' tworzą krótkie niezwiązane ze sobą scenki, przesycone absurdalnym, czarnym humorem. Do historii telewizji przeszły skecze 'Hiszpańska Inkwizycja', 'Ministerstwo głupich kroków' i wiele innych. Poszczególne skecze przerywane są zabawnymi animacjami autorstwa Terry'ego Gilliama. Serial był realizowany przez ponad 5 lat dla kanału BBC. Powstało 45 odcinków.   ... autorstwa Terry'ego Gilliama. Serial był realizowany przez ponad 5 lat dla kanału BBC. Powstało 45 odcinków.

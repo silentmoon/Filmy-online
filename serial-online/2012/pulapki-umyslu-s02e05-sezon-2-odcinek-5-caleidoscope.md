@@ -1,0 +1,5 @@
+Pułapki umysłu s02e05 sezon 2 odcinek 5 Caleidoscope
+=============
+[![Pułapki umysłu s02e05 sezon 2 odcinek 5 Caleidoscope](http://vidos.pl/images/player.gif)](http://vidos.pl/pulapki-umyslu-s02e05-sezon-2-odcinek-5-caleidoscope)
+
+ Głównym bohaterem 'Pułapek umysłu' jest dr Daniel Pierce (Eric McCormack), ekscentryczny i genialny neurobiolog. Potrafi on odczytywać ludzkie emocje i ma doskonałą wiedzę na temat ludzkich zachowań. Niestety, cierpi również na schizofrenię. Wywołuje to u niego halucynacje i omamy, które często naprowadzają go na trop pozwalający zakończyć skomplikowane sprawy. Umiejętności te sprowadzają do niego jego byłą studentkę Kate Moretti (Rachael Leigh Cook), obecnie agentkę FBI. Potrzebuje ona pomocy w rozwiązywaniu zawikłanych spraw kryminalnych. Dzięki swojemu unikalnemu spojrzeniu na otaczający go świat, Daniel pomaga rozwiązywać skomplikowane sprawy kryminalne.   ... Potrzebuje ona pomocy w rozwiązywaniu zawikłanych spraw kryminalnych. Dzięki swojemu unikalnemu spojrzeniu na otaczający go świat, Daniel pomaga rozwiązywać skomplikowane sprawy kryminalne.

@@ -1,0 +1,5 @@
+Internat s06e05 sezon 6 odcinek 5 El baile de los culpables
+=============
+[![Internat s06e05 sezon 6 odcinek 5 El baile de los culpables](http://vidos.pl/images/player.gif)](http://vidos.pl/internat-s06e05-sezon-6-odcinek-5-el-baile-de-los-culpables)
+
+ Serial opowiada o grupie nastolatków odbierającej staranne wychowanie w zamkniętej, elitarnej szkole z internatem. Młodzież ma zakaz opuszczania murów uczelni, co sprawia, że każda eskapada w głąb lasu, który otacza internat, smakuje jak zakazany owoc. Za bramą kryje się pewna tajemnica na ślad której wpada jeden z wykładowców. Chce on dowieść, iż kilkanaście lat temu w owym lesie kilkoro uczniów zostało zamordowanych. Znajduje on tajemniczy bunkier, gdzie kryją się zwłoki zaginionych. Ktoś, bądź coś nie chce jednak, by ta sprawa ujrzała światło dzienne, a naukowiec i grupa jego uczniów narażeni są na śmiertelne niebezpieczeństwo.  ... zaginionych. Ktoś, bądź coś nie chce jednak, by ta sprawa ujrzała światło dzienne, a naukowiec i grupa jego uczniów narażeni są na śmiertelne niebezpieczeństwo.

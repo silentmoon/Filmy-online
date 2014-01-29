@@ -1,0 +1,5 @@
+Kuroshitsuji 2 s01e12 sezon 1 odcinek 12 Black butler
+=============
+[![Kuroshitsuji 2 s01e12 sezon 1 odcinek 12 Black butler](http://vidos.pl/images/player.gif)](http://vidos.pl/kuroshitsuji-2-s01e12-sezon-1-odcinek-12-black-butler)
+
+ Wydarzenia mają miejsce w XIX-wiecznej Anglii, rok i trzy miesiące po dramatycznych wydarzeniach, które zakończyły pierwszą serię. Kuroshitsuji II przedstawia nam nowych bohaterów: Alois Trancy (Nana Mizuki) to młody, piękny panicz z pozornie niewinną twarzyczką. W swoim życiu doświadczył wielu traumatycznych przeżyć - w dzieciństwie został porwany i zmuszony do pracy jako niewolnik. Stracił też swoich rodziców, najlepszego przyjaciela oraz wszystkich, których znał. Alois powraca do swej posiadłości w dziwnych okolicznościach, całkowicie odmieniony. Towarzyszy mu tajemniczy mężczyzna, Claude Faustus (Takahiro Sakurai). Okazuje się on być jego lokajem o bardzo niespotykanym talencie...  ... powraca do swej posiadłości w dziwnych okolicznościach, całkowicie odmieniony. Towarzyszy mu tajemniczy mężczyzna, Claude Faustus (Takahiro Sakurai). Okazuje się on być jego lokajem o bardzo niespotykanym talencie...

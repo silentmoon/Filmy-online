@@ -1,0 +1,5 @@
+4400 s04e11 sezon 4 odcinek 11 Ghost in the Machine
+=============
+[![4400 s04e11 sezon 4 odcinek 11 Ghost in the Machine](http://vidos.pl/images/player.gif)](http://vidos.pl/4400-s04e11-sezon-4-odcinek-11-ghost-in-the-machine)
+
+ Produkcja nawiązująca do komiksowej serii 'Rising Stars'. Podczas ostatniego stulecia, z powierzchni Ziemi - w niewytłumaczalny sposób - zniknęło kilka tysięcy osób. Okazuje się, że uprowadziło je UFO. Teraz zaś, w równie tajemniczych okolicznościach, 4400 porwanych powróciło na naszą planetę. Władze, obawiając się reakcji na to niespodziewane wydarzenie, postanowiły poddać bohaterów obserwacji. Po krótkim czasie jednak wypuszczono ich na wolność. I wtedy zaczęły się problemy. Okazało się bowiem, że ofiary 'kosmitów' zyskały dziwne, nadludzkie właściwości. Czy ich moc stanowi zagrożenie dla Ziemian? Wszystko na to wskazuje. Tym bardziej, że zaczynają używać swych umiejętności przeciwko sobie...  ... problemy. Okazało się bowiem, że ofiary 'kosmitów' zyskały dziwne, nadludzkie właściwości. Czy ich moc stanowi zagrożenie dla Ziemian? Wszystko na to wskazuje. Tym bardziej, że zaczynają używać swych umiejętności przeciwko sobie...

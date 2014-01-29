@@ -1,0 +1,5 @@
+Szał na Amandę s01e11 sezon 1 odcinek 11 
+=============
+[![Szał na Amandę s01e11 sezon 1 odcinek 11 ](http://vidos.pl/images/player.gif)](http://vidos.pl/szal-na-amande-s01e11-sezon-1-odcinek-11)
+
+ 'Szał na Amandę' (The Amanda Show) to amerykański serial komediowy, w którym główną rolę gra Amanda Bynes. Program kręcony był w latach 1999-2002. Każdy odcinek składa się z kilkunastu skeczy, w które są parodią popularnych amerykańskich programów i reklam. Amanda Bynes wciela się w nich postać m.in. sędziny Trudy (parodia programu Judge Judy), Moody -tytułowej bohaterki segmentu pod tytułem Moody's Point (satyry na telenowele typu Jezioro marzeń) czy Penelopy Taynt, która jest największa fanką Amandy, lecz nigdy nie udaje jej się spotkać swojej idolki. W programie Amandzie towarzyszy kilkunastu innch, zwykle młodych aktorów. Są to m.in. Drake Bell i Josh Peck, późniejsi bohaterowie serialu Drake i Josh.  ... jest największa fanką Amandy, lecz nigdy nie udaje jej się spotkać swojej idolki. W programie Amandzie towarzyszy kilkunastu innch, zwykle młodych aktorów. Są to m.in. Drake Bell i Josh Peck, późniejsi bohaterowie serialu Drake i Josh.

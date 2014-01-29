@@ -1,0 +1,5 @@
+Jumanji s01e09 sezon 1 odcinek 9 Stormy Weather
+=============
+[![Jumanji s01e09 sezon 1 odcinek 9 Stormy Weather](http://vidos.pl/images/player.gif)](http://vidos.pl/jumanji-s01e09-sezon-1-odcinek-9-stormy-weather)
+
+ Rodzeństwo Peter i Judy borykają się z typowymi dla młodych ludzi problemami: szkołą i nudą. Na dodatek muszą dbać o to, aby nie naprzykrzać się wiecznie naburmuszonej ciotce Norze (Aunt Nora). Pewnego dnia znajdują lekarstwo na wszystkie problemy: magiczną grę planszową 'Jumanji'. Za każdym rzutem kostką Peter i Judy otrzymują od gry zagadkową frazę i zostają wessani do niebezpiecznego świata, niewiele różniącego się od afrykańskiej dżungli. Spotykają tam poprzedniego gracza, Alana, przedziwne plemię dzikich, myśliwego, zwierzęta; wrogów i przyjaciół. Aby opuścić grę, trzeba rozwiązać otrzymaną zagadkę, ale przedtem czeka na graczy przynajmniej jedna przygoda w świecie Jumaji...  ... gracza, Alana, przedziwne plemię dzikich, myśliwego, zwierzęta; wrogów i przyjaciół. Aby opuścić grę, trzeba rozwiązać otrzymaną zagadkę, ale przedtem czeka na graczy przynajmniej jedna przygoda w świecie Jumaji...

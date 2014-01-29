@@ -1,0 +1,5 @@
+Scooby-Doo i brygada detektywów s02e04 sezon 2 odcinek 4 Web of the Dreamweaver
+=============
+[![Scooby-Doo i brygada detektywów s02e04 sezon 2 odcinek 4 Web of the Dreamweaver](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-i-brygada-detektywow-s02e04-sezon-2-odcinek-4-web-of-the-dreamweaver)
+
+ Ku rozpaczy rodziców, mających własne plany na przyszłość dzieci, 'Tajemnicza Spółka', czyli Fred, Daphne, Velma, Kudłaty i Scooby, wplątują się w kolejną niezwykłą przygodę. Przyjaciele odnajdują liczne wskazówki, mające pomóc im w rozwiązaniu zagadki i tajemnic ich rodzinnego Kryształowego Zdroju. We wszystko miesza się tajemniczy Pan E. Ale kim on jest? Czy to możliwe, że w Kryształowym Zdroju działała kiedyś inna 'Tajemnicza Spółka'? Co się stało z zaginionymi przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?   ... przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?

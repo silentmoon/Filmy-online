@@ -1,0 +1,5 @@
+Power Rangers w Kosmosie s01e05 sezon 1 odcinek 5 Never Stop Searching
+=============
+[![Power Rangers w Kosmosie s01e05 sezon 1 odcinek 5 Never Stop Searching](http://vidos.pl/images/player.gif)](http://vidos.pl/power-rangers-w-kosmosie-s01e05-sezon-1-odcinek-5-never-stop-searching)
+
+ Najpotężniejsze siły zła wszechświata - Rita i Lord Zedd, Imperium Maszyn i Divatox - zawierają sojusz z władcą zła, Dark Specterem. Dark Specter więzi Zordona i zamierza wykorzystać jego moce do rozprzestrzenienia zła po wszechświecie. Tymczasem Cassie, Ashley, Carlos i T.J. - czworo z pięciorga nowych Power Rangers - wyruszają w kosmos by połączyć z Androsem, człowiekiem z kosmicznej kolonii KO-35 i uratować Zordona. Podczas podróży walczą z siłami najlojalniejszej poddanej Dark Spectera, Astronemą - księżniczką zła. Ona i jej armia potworów, gwiezdnych wojowników i Quantronów zamierzają za wszelką cenę powstrzymać Power Rangers przed dotarciem do Zordona...  ... Dark Spectera, Astronemą - księżniczką zła. Ona i jej armia potworów, gwiezdnych wojowników i Quantronów zamierzają za wszelką cenę powstrzymać Power Rangers przed dotarciem do Zordona...

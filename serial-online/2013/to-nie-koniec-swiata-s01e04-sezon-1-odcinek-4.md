@@ -1,0 +1,5 @@
+To nie koniec świata! s01e04 sezon 1 odcinek 4 
+=============
+[![To nie koniec świata! s01e04 sezon 1 odcinek 4 ](http://vidos.pl/images/player.gif)](http://vidos.pl/to-nie-koniec-swiata-s01e04-sezon-1-odcinek-4)
+
+ Koniec świata! Tylko gdzie on jest? W Australii, Arktyce, a może zwyczajnie… w Białej Podlaskiej? Będzie miał okazję przekonać się o tym warszawski manager piłkarski Paweł Anuszkiewicz (Krystian Wieczorek), który pewnego dnia, w wyniku niezbyt fortunnego splotu okoliczności i co tu ukrywać - czujnego ucha swojego klienta - traci prawie wszystko: pracę, mieszkanie i pozycję w środowisku.  Prawie… bo zostaje mu jeszcze: dom, a właściwie jego połowa oraz dług w postaci wysokiej kary umownej dla byłego pracodawcy. Sęk w tym, że dom znajduje się w okolicach Białej Podlaskiej, czyli na prawdziwym końcu świata! Cóż… w pewnych sytuacjach trzeba się poświęcić i na ów koniec udać. A jak on wygląda?   ... wysokiej kary umownej dla byłego pracodawcy. Sęk w tym, że dom znajduje się w okolicach Białej Podlaskiej, czyli na prawdziwym końcu świata! Cóż… w pewnych sytuacjach trzeba się poświęcić i na ów koniec udać. A jak on wygląda?

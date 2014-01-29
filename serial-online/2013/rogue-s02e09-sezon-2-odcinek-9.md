@@ -1,0 +1,5 @@
+Rogue s02e09 sezon 2 odcinek 9 
+=============
+[![Rogue s02e09 sezon 2 odcinek 9 ](http://vidos.pl/images/player.gif)](http://vidos.pl/rogue-s02e09-sezon-2-odcinek-9)
+
+ Grace Travis (Thandie Newton) jest detektywem pracującym pod przykrywką. Kiedy jej syn ginie w strzelaninie, kobietę zaczynają dręczyć wyrzuty sumienia gdyż uważa, że przyczyną mogła być jej praca. W poszukiwaniu prawdy Grace przenika do organizacji z półświatka przestępczego kierowanej przez wpływowego gangstera Jimmy'ego Laszlo (Marton Csokas), który, jej zdaniem, może doprowadzić ją do mordercy syna. Starając się godzić obowiązki żony i matki, której rodzina bardzo potrzebuje, Grace dodatkowo komplikuje swoje życie zakazanym związkiem z Jimmym. By odkryć, kto stoi za śmiercią jej syna, musi najpierw pomóc mężczyźnie znaleźć zdrajcę w szeregach jego gangu, pamiętając przy tym, że mógł on odegrać istotną rolę w jej tragedii.  ... potrzebuje, Grace dodatkowo komplikuje swoje życie zakazanym związkiem z Jimmym. By odkryć, kto stoi za śmiercią jej syna, musi najpierw pomóc mężczyźnie znaleźć zdrajcę w szeregach jego gangu, pamiętając przy tym, że mógł on odegrać istotną rolę w jej tragedii.

@@ -1,0 +1,5 @@
+Życie w Cranford s01e03 sezon 1 odcinek 3 November 1842
+=============
+[![Życie w Cranford s01e03 sezon 1 odcinek 3 November 1842](http://vidos.pl/images/player.gif)](http://vidos.pl/ycie-w-cranford-s01e03-sezon-1-odcinek-3-november-1842)
+
+ Historia, będąca adaptacją trzech powieści Elizabeth Gaskell, w ciepły i zabawny sposób pokazuje niedorzeczności i poruszające dramaty w życiu mieszkańców Cranford, które miały miejsce w ciągu jednego, niezwykłego roku. Anglia, lata '40 XIX wieku. Cranford, małe miasteczko handlowe w hrabstwie Cheshire, staje w obliczu zmian. Rozbudowująca się kolej przynosi zagrożenie napływu robotników i zakłócenie ładu i porządku, zaś przyjazd nowego, przystojnego lekarza z Londynu, Franka Harrisona, wywołuje poruszenie, nie tylko z powodu rewolucyjnych metod medycznych, ale ze względu na wrażenie, jakie zrobił na wielu kobietach w miasteczku...  ... Harrisona, wywołuje poruszenie, nie tylko z powodu rewolucyjnych metod medycznych, ale ze względu na wrażenie, jakie zrobił na wielu kobietach w miasteczku...

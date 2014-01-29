@@ -1,0 +1,5 @@
+Odlotowe agentki s03e11 sezon 3 odcinek 11 Escape From WOOHP Island
+=============
+[![Odlotowe agentki s03e11 sezon 3 odcinek 11 Escape From WOOHP Island](http://vidos.pl/images/player.gif)](http://vidos.pl/odlotowe-agentki-s03e11-sezon-3-odcinek-11-escape-from-woohp-island)
+
+ Ten animowany serial opowiada o przygodach agentów - dziewczyn. Trzy koleżanki: Alex, Sam i Clover zostały wybrane przez Jerry'ego, szefa tajnego wywiadu, na agentki, które będą mogły rozwiązywać trudne sprawy. Dziewczyny trafiają na różne dziwne i niebezpieczne wypadki, raz spotykają ufo, raz walczą z porywaczami używającymi działa przeciw grawitacyjnego, raz muszą pokonać rycerza z przeszłości. W rozwiązaniu tych spraw pomagają im różne gad żety, podarowane im przez Jerry'ego. Lecz Alex, Sam i Clover muszą chodzić do szkoły i spotykać się z Mandy - ich największym wrogiem w szkole. Dotychczas wyprodukowano 52 odcinki serialu.  ... Jerry'ego. Lecz Alex, Sam i Clover muszą chodzić do szkoły i spotykać się z Mandy - ich największym wrogiem w szkole. Dotychczas wyprodukowano 52 odcinki serialu.

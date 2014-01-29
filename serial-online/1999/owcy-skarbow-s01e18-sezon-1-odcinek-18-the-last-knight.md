@@ -1,0 +1,5 @@
+Łowcy skarbów s01e18 sezon 1 odcinek 18 The Last Knight
+=============
+[![Łowcy skarbów s01e18 sezon 1 odcinek 18 The Last Knight](http://vidos.pl/images/player.gif)](http://vidos.pl/owcy-skarbow-s01e18-sezon-1-odcinek-18-the-last-knight)
+
+ Sydney Fox, główna bohaterka serialu, jest niekonwencjonalnym historykiem, nauczycielem akademickim oraz błyskotliwą i piękną kobietą. Podróżuje po świecie w poszukiwaniu owianych legendą zaginionych skarbów i skradzionych dzieł sztuki. Sydney potrafi odnaleźć skarby uważane wcześniej za bezpowrotnie zaginione.Towarzyszem jej niebezpiecznych podróży jest Nigel Bailey. Nigel to typ intelektualisty, który zdecydowanie woli ślęczeć w bibliotekach nad pokrytymi kurzem manuskryptami niż wystawiać się na niewygody podróży.Drugim zaufanym współpracownikiem Sydney jest jej studentka i sekretarka Claudia,która mocno stąpa po ziemi. Jeden z najciekawszych seriali przygodowych.  ... manuskryptami niż wystawiać się na niewygody podróży.Drugim zaufanym współpracownikiem Sydney jest jej studentka i sekretarka Claudia,która mocno stąpa po ziemi. Jeden z najciekawszych seriali przygodowych.

@@ -1,0 +1,5 @@
+Gdzie pachną stokrotki s01e04 sezon 1 odcinek 4 Pigeon
+=============
+[![Gdzie pachną stokrotki s01e04 sezon 1 odcinek 4 Pigeon](http://vidos.pl/images/player.gif)](http://vidos.pl/gdzie-pachna-stokrotki-s01e04-sezon-1-odcinek-4-pigeon)
+
+ Ned - właściciel ciastkarni posiada niezwykły talent. Jego dotyk ożywia martwe owoce i daje im trwały, wieczny smak. Życie cukiernika zmienia się, kiedy prywatny detektyw Emerson Cod odkrywa jego sekret. Cod przekonuje bankrutującego Neda, aby ten za odpowiednią opłatą użył swego daru przy rozwiązywaniu sprawy zabójstw. Rola Neda ma polegać na chwilowym ożywianiu martwych ofiar i uzyskiwaniu od nich imion ich morderców. Pewnego razu jedną z ofiar okazuje się dawna miłość Neda - Charlotte (nazywana przez niego - Chuck). Postanawia on, że pozostawi ją przy życiu. Musi jednak pamiętać, że jeśli kiedykolwiek ją dotknie, wówczas kobieta umrze na zawsze.  ... - Charlotte (nazywana przez niego - Chuck). Postanawia on, że pozostawi ją przy życiu. Musi jednak pamiętać, że jeśli kiedykolwiek ją dotknie, wówczas kobieta umrze na zawsze.

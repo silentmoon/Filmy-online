@@ -1,0 +1,5 @@
+Ojciec Mateusz s10e06 sezon 10 odcinek 6 Dzień papieski
+=============
+[![Ojciec Mateusz s10e06 sezon 10 odcinek 6 Dzień papieski](http://vidos.pl/images/player.gif)](http://vidos.pl/ojciec-mateusz-s10e06-sezon-10-odcinek-6-dzien-papieski)
+
+ Akcja serialu rozgrywa się w Sandomierzu i jego okolicach. Każdy z odcinków opowiada odrębną historię. Powracający z misji na Białorusi ksiądz Mateusz (Artur Żmijewski) zostaje wezwany przez biskupa (Sławomir Orzechowski). Na spotkaniu w kurii dowiaduje się, że obejmie probostwo w niewielkiej miejscowej parafii. Na pierwszej mszy odprawianej przez Mateusza poznajemy barwne grono jego parafian. Jest wśród nich jego gospodyni Natalia (Kinga Preis), Piotr – kościelny i organista w jednej osobie (Łukasz Lewandowski) i policjant Nocul (Michał Piela). Gdy niezwykły detektywistyczny talent nowego proboszcza ujawni się, aspirant Nocul stanie się częstym gościem na plebanii.  ... w jednej osobie (Łukasz Lewandowski) i policjant Nocul (Michał Piela). Gdy niezwykły detektywistyczny talent nowego proboszcza ujawni się, aspirant Nocul stanie się częstym gościem na plebanii.

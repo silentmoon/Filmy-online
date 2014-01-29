@@ -1,0 +1,5 @@
+Złotka s03e18 sezon 3 odcinek 18 And Ma Makes Three
+=============
+[![Złotka s03e18 sezon 3 odcinek 18 And Ma Makes Three](http://vidos.pl/images/player.gif)](http://vidos.pl/zlotka-s03e18-sezon-3-odcinek-18-and-ma-makes-three)
+
+ Historia oparta na życiu i wzajemnych relacjach czterech starszych kobiet, które po przeżyciach związanych z rozwodami lub śmiercią małżonków zostają współlokatorkami. Głównym celem Dorothy (Bea Arthur) jest znalezienie nowego towarzysza życia, podczas gdy jej matka, Sophia (Estelle Getty), chcąc 'upiększyć' córkę nadaje jej w istocie zabawny wygląd. Rose (Betty White) natomiast staje się coraz bardziej staromodną, aczkolwiek niezwykle przemiłą kobietą. Jedyną rzeczą, która zmienia się praktycznie niemal w każdym epizodzie, jest obiekt zalotów Blanche (Rue McClanahan), która z kolei jest za mało konkretna ze względu na własne dobro.  ... zmienia się praktycznie niemal w każdym epizodzie, jest obiekt zalotów Blanche (Rue McClanahan), która z kolei jest za mało konkretna ze względu na własne dobro.

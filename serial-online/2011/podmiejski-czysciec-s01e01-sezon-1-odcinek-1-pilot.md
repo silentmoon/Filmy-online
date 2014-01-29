@@ -1,0 +1,5 @@
+Podmiejski czyściec s01e01 sezon 1 odcinek 1 Pilot
+=============
+[![Podmiejski czyściec s01e01 sezon 1 odcinek 1 Pilot](http://vidos.pl/images/player.gif)](http://vidos.pl/podmiejski-czysciec-s01e01-sezon-1-odcinek-1-pilot)
+
+ Świetny sitcom ukazujący w krzywym zwierciadle życie amerykańskiej prowincji. Jego bohaterką jest nastolatka, która wraz z ojcem opuszcza Nowy Jork i przeprowadza się na eleganckie przedmieścia. Samotny ojciec (Jeremy Sisto) postanawia uciec z Nowego Jorku na przedmieścia, po tym jak niespodziewanie znajduje w szafce swojej piętnastoletniej córki Tessy (Jane Levy) paczkę prezerwatyw. Przerażony mężczyzna wierzy, że na prowincji uda mu się uchronić dziecko przed przedwczesnym dorastaniem. Ojciec i córka przenoszą się do tytułowego Suburgatory - pełnego fasad i pozornej perfekcji podmiejskiego świata, w którym królują „nabotoksowane” gospodynie domowe.  ... dorastaniem. Ojciec i córka przenoszą się do tytułowego Suburgatory - pełnego fasad i pozornej perfekcji podmiejskiego świata, w którym królują „nabotoksowane” gospodynie domowe.

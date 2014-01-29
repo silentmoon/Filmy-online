@@ -1,0 +1,5 @@
+JAG - Wojskowe Biuro Śledcze s06e06 sezon 6 odcinek 6 The Princess and the Petty Officer
+=============
+[![JAG - Wojskowe Biuro Śledcze s06e06 sezon 6 odcinek 6 The Princess and the Petty Officer](http://vidos.pl/images/player.gif)](http://vidos.pl/jag-wojskowe-biuro-ledcze-s06e06-sezon-6-odcinek-6-the-princess-and-the-petty-officer)
+
+ Główni bohaterowie tego serialu to komandor Harmon Rabb i major Sarah MacKenzie - prawnicy Wojskowego Biura Śledczego JAG. Sprawy, jakie mają rozwiązać są wielorakie: od typowych, jak dezercja, czy nie wykonanie poleceń przełożonego - niesubordynacja, po gwałty, przemyt i morderstwa. Często prowadzenie dochodzenia jest trudne, bo zamieszane są grube ryby z armii. Zdarza się, że kompetencje wojskowe nie wystarczają... Choć w życiu prywatnym są przyjaciółymi, to w pracy czesto muszą stanąć po przeciwnych stronach barykady. Ale sądowe waśnie szybko mijają, szczególnie, że atmosfera panująca w ich biurze sprzyja dobrej i sumiennej pracy.  ... muszą stanąć po przeciwnych stronach barykady. Ale sądowe waśnie szybko mijają, szczególnie, że atmosfera panująca w ich biurze sprzyja dobrej i sumiennej pracy.

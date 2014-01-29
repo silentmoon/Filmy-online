@@ -1,0 +1,5 @@
+Nowe przygody Kubusia Puchatka s02e05 sezon 2 odcinek 5 Up, Up And Awry
+=============
+[![Nowe przygody Kubusia Puchatka s02e05 sezon 2 odcinek 5 Up, Up And Awry](http://vidos.pl/images/player.gif)](http://vidos.pl/nowe-przygody-kubusia-puchatka-s02e05-sezon-2-odcinek-5-up-up-and-awry)
+
+ Najbardziej znana z ekranizacji przygód sympatycznego pluszowego misia - Kubusia Puchatka. Jej popularność jest spowadowana głównie tym iż jest to serial, a nie jak inne z wielu produkcji pojedynczy film. A w tym serialu możemy przez wiele odcinków podziwiać ciekawe przygody małego chłopca Krzysia oraz jeo pupili ze Stumilowego lasu. A są to konkretnie : wspomniany już Kubuś Puchatek, strachliwy Prosiaczek, rozbrykany Tygrysek, pracowity Królik, smutny Kłapouchy, przemądrzała Sowa, troskliwa Kangurzyca ze swoim synkiem Maleństwem oraz Gofer. Serial bardzo uniwersalny - mogą go oglądać zarówno dzieci jak i ich rodzice czy dziadkowie.  ... przemądrzała Sowa, troskliwa Kangurzyca ze swoim synkiem Maleństwem oraz Gofer. Serial bardzo uniwersalny - mogą go oglądać zarówno dzieci jak i ich rodzice czy dziadkowie.

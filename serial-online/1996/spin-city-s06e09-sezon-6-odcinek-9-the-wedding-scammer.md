@@ -1,0 +1,5 @@
+Spin City s06e09 sezon 6 odcinek 9 The Wedding Scammer
+=============
+[![Spin City s06e09 sezon 6 odcinek 9 The Wedding Scammer](http://vidos.pl/images/player.gif)](http://vidos.pl/spin-city-s06e09-sezon-6-odcinek-9-the-wedding-scammer)
+
+ Na razie nikt nie dodał streszczenia fabuły tego serialu. Możesz być pierwszy! Zamieść swój opis.

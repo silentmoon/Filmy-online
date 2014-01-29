@@ -1,0 +1,5 @@
+JAG - Wojskowe Biuro Śledcze s04e08 sezon 4 odcinek 8 Mr. Rabb Goes to Washington
+=============
+[![JAG - Wojskowe Biuro Śledcze s04e08 sezon 4 odcinek 8 Mr. Rabb Goes to Washington](http://vidos.pl/images/player.gif)](http://vidos.pl/jag-wojskowe-biuro-ledcze-s04e08-sezon-4-odcinek-8-mr-rabb-goes-to-washington)
+
+ Główni bohaterowie tego serialu to komandor Harmon Rabb i major Sarah MacKenzie - prawnicy Wojskowego Biura Śledczego JAG. Sprawy, jakie mają rozwiązać są wielorakie: od typowych, jak dezercja, czy nie wykonanie poleceń przełożonego - niesubordynacja, po gwałty, przemyt i morderstwa. Często prowadzenie dochodzenia jest trudne, bo zamieszane są grube ryby z armii. Zdarza się, że kompetencje wojskowe nie wystarczają... Choć w życiu prywatnym są przyjaciółymi, to w pracy czesto muszą stanąć po przeciwnych stronach barykady. Ale sądowe waśnie szybko mijają, szczególnie, że atmosfera panująca w ich biurze sprzyja dobrej i sumiennej pracy.  ... muszą stanąć po przeciwnych stronach barykady. Ale sądowe waśnie szybko mijają, szczególnie, że atmosfera panująca w ich biurze sprzyja dobrej i sumiennej pracy.

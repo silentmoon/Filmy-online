@@ -1,0 +1,5 @@
+Oggy i karaluchy s02e20 sezon 2 odcinek 20 Nouveau nez
+=============
+[![Oggy i karaluchy s02e20 sezon 2 odcinek 20 Nouveau nez](http://vidos.pl/images/player.gif)](http://vidos.pl/oggy-i-karaluchy-s02e20-sezon-2-odcinek-20-nouveau-nez)
+
+ 'Oggy i karaluchy' to niezwykle zabawna opowieść o Oggy'm, który jest spokojnym, grubym kotem. Marzy on o leżeniu na swojej różowej poduszce i oglądaniu zabawnych programów w telewizji. Niestesty w idylli przeszkadza mu trzech rozrabiajacych w jego domku karaluchach: Joey, Marky i DeeDee. Są one najbrzydszymi i najbardziej dokuczliwymi i złośliwymi stworami pod słońcem. Oggy jest ciągle przez nie atakowany. Nie chce mu się jednak z nimi walczyć i dlatego próbuje rozwiązywać konflikty ugodowo. Niestety jednak czasami jest to niemożliwe i Oggy musi stanąć do walki. Oggy ma kuzyna Jack'a, który czasem przyjeżdża pomóc w łapaniu natrętnych pożeraczy zawartości lodówki.   ... konflikty ugodowo. Niestety jednak czasami jest to niemożliwe i Oggy musi stanąć do walki. Oggy ma kuzyna Jack'a, który czasem przyjeżdża pomóc w łapaniu natrętnych pożeraczy zawartości lodówki.

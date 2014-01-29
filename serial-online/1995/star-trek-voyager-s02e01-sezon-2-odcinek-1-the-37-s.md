@@ -1,0 +1,5 @@
+Star Trek: Voyager s02e01 sezon 2 odcinek 1 The 37's
+=============
+[![Star Trek: Voyager s02e01 sezon 2 odcinek 1 The 37's](http://vidos.pl/images/player.gif)](http://vidos.pl/star-trek-voyager-s02e01-sezon-2-odcinek-1-the-37-s)
+
+ Serial poprzedza długometrażowy film wprowadzający widzów w historię Voyagera. Statek Federacji USS Voyager podczas pościgu za statkiem rebelii Maquis, wkracza na niebezpieczną przestrzeń kosmiczną znaną jako Badlands. Oba statki w tajemniczy sposób zostają przeniesione do kwadrantu Delta, 75000 lat świetlnych od przestrzeni Federacji. Po zniszczeniu statku rebelii, uratowani ludzie zaczynają służbę na statku Voyager. Jak się okazuję podróż do domu z maksymalną prędkością zajmie około 75 lat. Od tego momentu zjednoczona załoga rozpoczyna swoją tułaczkę po kosmosie poszukując szybszego sposobu powrotu... Serial składa się ze 172 odcinków.  ... zajmie około 75 lat. Od tego momentu zjednoczona załoga rozpoczyna swoją tułaczkę po kosmosie poszukując szybszego sposobu powrotu... Serial składa się ze 172 odcinków.

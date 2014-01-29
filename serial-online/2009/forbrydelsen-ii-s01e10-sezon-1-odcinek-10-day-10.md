@@ -1,0 +1,5 @@
+Forbrydelsen II s01e10 sezon 1 odcinek 10 Day 10
+=============
+[![Forbrydelsen II s01e10 sezon 1 odcinek 10 Day 10](http://vidos.pl/images/player.gif)](http://vidos.pl/forbrydelsen-ii-s01e10-sezon-1-odcinek-10-day-10)
+
+ Dobra zagadka kryminalna nie daje się łatwo rozwiązać. Pod każdą odpowiedzią kryją się kolejne pytania... 'Forbrydelsen II' z mistrzowską precyzją odsłania kolejne warstwy tajemnic i mylnych tropów. W drugim sezonie śledzimy kolejną sprawę prowadzoną przez detektyw Sarah Lund. Tym razem bohaterka pomoże policji z Kopenhagi rozwiązać zagadkę zabójstwa prawniczki. W tym czasie w rządowym budynku nowo wybrany minister sprawiedliwości Thomas Buch przewodniczy ważnym politycznym negocjacjom. W serialu pojawia się jeszcze jedna kluczowa postać - były żołnierz Jens Peter Raben, który czeka na warunkowe zwolnienie z więziennego oddziału psychiatrycznego. Czy coś łączy prawniczkę, polityka i oficera?  ... negocjacjom. W serialu pojawia się jeszcze jedna kluczowa postać - były żołnierz Jens Peter Raben, który czeka na warunkowe zwolnienie z więziennego oddziału psychiatrycznego. Czy coś łączy prawniczkę, polityka i oficera?

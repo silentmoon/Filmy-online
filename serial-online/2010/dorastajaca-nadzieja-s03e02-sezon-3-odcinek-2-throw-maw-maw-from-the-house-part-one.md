@@ -1,0 +1,5 @@
+Dorastająca nadzieja s03e02 sezon 3 odcinek 2 Throw Maw Maw from the House, Part One
+=============
+[![Dorastająca nadzieja s03e02 sezon 3 odcinek 2 Throw Maw Maw from the House, Part One](http://vidos.pl/images/player.gif)](http://vidos.pl/dorastajaca-nadzieja-s03e02-sezon-3-odcinek-2-throw-maw-maw-from-the-house-part-one)
+
+ 23 letni Jimmy (Lucas Neff) pracuje czyszcząc baseny, a wieczorami imprezuje z przyjaciółmi. Wszystko zmienia się, gdy spędza noc z Lucy, która okazuje się być poszukiwaną morderczynią. 9 miesięcy później rodzi się Hope, którą Jimmy sam musi wychować, gdyż jej matka zostaje stracona na krześle elektrycznym. Pomocą służą mu jego rodzice Burt (Garret Dillahunt) i Virginia (Martha Plimpton). Razem z nimi mieszka jego prababcia (Cloris Leachman), która cierpi na chorobę Alzheimera. Jimmy nieszczęśliwie zakochuje się w Sabrinie (Shannon Woodward), która ma już chłopaka. Żeby spędzać z nią  czasu zatrudnia się w supermarkecie, w którym ona pracuje.   ... Alzheimera. Jimmy nieszczęśliwie zakochuje się w Sabrinie (Shannon Woodward), która ma już chłopaka. Żeby spędzać z nią więcej czasu zatrudnia się w supermarkecie, w którym ona pracuje.

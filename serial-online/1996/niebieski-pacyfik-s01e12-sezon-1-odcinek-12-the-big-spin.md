@@ -1,0 +1,5 @@
+Niebieski Pacyfik s01e12 sezon 1 odcinek 12 The Big Spin
+=============
+[![Niebieski Pacyfik s01e12 sezon 1 odcinek 12 The Big Spin](http://vidos.pl/images/player.gif)](http://vidos.pl/niebieski-pacyfik-s01e12-sezon-1-odcinek-12-the-big-spin)
+
+ Na razie nikt nie dodał streszczenia fabuły tego serialu. Możesz być pierwszy! Zamieść swój opis.

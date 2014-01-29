@@ -1,0 +1,5 @@
+Graceland s01e07 sezon 1 odcinek 7 Goodbye High
+=============
+[![Graceland s01e07 sezon 1 odcinek 7 Goodbye High](http://vidos.pl/images/player.gif)](http://vidos.pl/graceland-s01e07-sezon-1-odcinek-7-goodbye-high)
+
+ Oparty na prawdziwych zdarzeniach serial opowiada o grupie agentów FBI, DEA oraz ICE działających pod przykrywką i zamieszkujących razem domek plażowy w Południowej Kalifornii. Siedziba ta została przejęta przez USA od barona narkotykowego i jest nieoficjalnie nazywana „Graceland”. Gdy jeden z agentów zostaje postrzelony, jego miejsce w domu zajmuje Mike Warren (Aaron Tveit), najlepszy absolwent z Quantico. Nad jego treningiem czuwa legendarny, starszy agent Paul Briggs (Daniel Sunjata), który kilka lat wcześniej wziął tajemniczy urlop. Sekretna misja Mike’a polegająca na inwigilowaniu Paula może pomóc w wyjawieniu prawdy o nim, ale może też skomplikować życie ekipy z „Graceland”...   ... (Daniel Sunjata), który kilka lat wcześniej wziął tajemniczy urlop. Sekretna misja Mike’a polegająca na inwigilowaniu Paula może pomóc w wyjawieniu prawdy o nim, ale może też skomplikować życie ekipy z „Graceland”...

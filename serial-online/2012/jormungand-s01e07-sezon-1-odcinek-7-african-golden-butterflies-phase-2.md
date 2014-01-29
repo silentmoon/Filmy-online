@@ -1,0 +1,5 @@
+Jormungand s01e07 sezon 1 odcinek 7 African Golden Butterflies (Phase 2)
+=============
+[![Jormungand s01e07 sezon 1 odcinek 7 African Golden Butterflies (Phase 2)](http://vidos.pl/images/player.gif)](http://vidos.pl/jormungand-s01e07-sezon-1-odcinek-7-african-golden-butterflies-phase-2)
+
+ Koko Hekmatyar jest młodą kobietą pracującą dla dużej korporacji handlowej HCLI. Nie sprzedaje ona jednak ubrań, żywności, czy samochodów. Koko jest handlarzem broni, zaczynając od prostych kałasznikowów, poprzez śmigłowce, a na rakietach ziemia-powietrze kończąc. Jako że jej działalność jest przez większość cywilizowanego świata uznana za nielegalną Koko musi działać w ukryciu. Nawet zwykłe negocjacje z kontrahentem w tej branży są jak spacer po linie, dlatego towarzyszy jej oddział ochroniarzy, składający się głównie z byłych wojskowych. Najnowszym nabytkiem drużyny jest młody chłopiec imieniem Jonah, który stracił swoich rodziców podczas działań wojennych.   ... oddział ochroniarzy, składający się głównie z byłych wojskowych. Najnowszym nabytkiem drużyny jest młody chłopiec imieniem Jonah, który stracił swoich rodziców podczas działań wojennych.

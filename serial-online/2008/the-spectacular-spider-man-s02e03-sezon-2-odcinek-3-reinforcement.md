@@ -1,0 +1,5 @@
+The Spectacular Spider-Man s02e03 sezon 2 odcinek 3 Reinforcement
+=============
+[![The Spectacular Spider-Man s02e03 sezon 2 odcinek 3 Reinforcement](http://vidos.pl/images/player.gif)](http://vidos.pl/the-spectacular-spider-man-s02e03-sezon-2-odcinek-3-reinforcement)
+
+ 'The Spectacular Spider-Man' jest animowanym serialem produkcji Culver Entertainment, bazującym na popularnym komiksie Stana Lee oraz Steve'a Ditko. Rozpoczyna się on w noc poprzedzającą początek przedostatniego roku szkoły średniej Petera Parkera (Spider-Mana). Uzyskał on w prawdzie swoje moce cztery miesiące wcześniej, lecz dopiero teraz będzie miał szanse w pełni je wykorzystać, używając ich przeciw super-łotrom takim jak Shocker, Lizard, Electro, Vulture czy Doctor Octopus. W serialu przewija się wiele postaci znanych z komiksów, m.in.: Flash Thompson, Gwen Stacy, Mary Jane Watson, Betty Brant, Harry Osborn, J. Jonah Jameson i Ciocia May.  ... Octopus. W serialu przewija się wiele postaci znanych z komiksów, m.in.: Flash Thompson, Gwen Stacy, Mary Jane Watson, Betty Brant, Harry Osborn, J. Jonah Jameson i Ciocia May.

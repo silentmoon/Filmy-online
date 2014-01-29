@@ -1,0 +1,5 @@
+Arrow s02e21 sezon 2 odcinek 21 
+=============
+[![Arrow s02e21 sezon 2 odcinek 21 ](http://vidos.pl/images/player.gif)](http://vidos.pl/arrow-s02e21-sezon-2-odcinek-21)
+
+ Serial „Arrow” to współczesna historia Zielonej Strzały, superbohatera komiksów DC Comics. Po 5 latach od katastrofy morskiej miliarder Oliver Queen (Stephen Amell), jak dotąd uznawany za zmarłego, zostaje odnaleziony na bezludnej wyspie na Pacyfiku. Kiedy powraca do domu, rodzina zauważa, że pobyt na wyspie bardzo go odmienił. Oliver próbuje pojednać się z najbliższymi i swoją byłą dziewczyną Laurel Lance (Katie Cassidy), jednocześnie kreując swoją sekretną tożsamość. Odtąd za dnia Oliver jest bogatym, beztroskim i nieostrożnym kobieciarzem, jakim zwykł być, natomiast pod osłoną nocy jako Zielona Strzała walczy ze złem i stara się przywrócić miasto do jego dawnej świetności.   ... za dnia Oliver jest bogatym, beztroskim i nieostrożnym kobieciarzem, jakim zwykł być, natomiast pod osłoną nocy jako Zielona Strzała walczy ze złem i stara się przywrócić miasto do jego dawnej świetności.

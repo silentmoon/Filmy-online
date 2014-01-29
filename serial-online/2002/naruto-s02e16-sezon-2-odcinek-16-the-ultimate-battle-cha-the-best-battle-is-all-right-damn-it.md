@@ -1,0 +1,5 @@
+Naruto s02e16 sezon 2 odcinek 16 The Ultimate Battle: Cha! / The Best Battle is All Right, Damn it!!
+=============
+[![Naruto s02e16 sezon 2 odcinek 16 The Ultimate Battle: Cha! / The Best Battle is All Right, Damn it!!](http://vidos.pl/images/player.gif)](http://vidos.pl/naruto-s02e16-sezon-2-odcinek-16-the-ultimate-battle-cha-the-best-battle-is-all-right-damn-it)
+
+ Akcja serialu rozpoczyna się od ataku demona zwanego Dziewięcioogoniastym Demonicznym Lisem, który - posiadając dużą moc - mógł zniszczyć wszystko co było w okolicy. W walce z potworem wzięło udział wielu ninja, ale tylko jeden pokonał monstrum. Był nim 'Czwarty Hokage'. Głównym bohaterem jest Uzumaki Naruto, chłopiec, na którego została nałożona pieczęć, wiążąca z nim pokonanego demona. Marzeniem bohatera jest zostać ninja, a dokładnie osiągnąć najwyższy stopień wojownika - Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.   ... Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.

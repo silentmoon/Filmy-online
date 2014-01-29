@@ -1,0 +1,5 @@
+Scooby-Doo i brygada detektywów s01e09 sezon 1 odcinek 9 Battle Of The Humungonauts
+=============
+[![Scooby-Doo i brygada detektywów s01e09 sezon 1 odcinek 9 Battle Of The Humungonauts](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-i-brygada-detektywow-s01e09-sezon-1-odcinek-9-battle-of-the-humungonauts)
+
+ Ku rozpaczy rodziców, mających własne plany na przyszłość dzieci, 'Tajemnicza Spółka', czyli Fred, Daphne, Velma, Kudłaty i Scooby, wplątują się w kolejną niezwykłą przygodę. Przyjaciele odnajdują liczne wskazówki, mające pomóc im w rozwiązaniu zagadki i tajemnic ich rodzinnego Kryształowego Zdroju. We wszystko miesza się tajemniczy Pan E. Ale kim on jest? Czy to możliwe, że w Kryształowym Zdroju działała kiedyś inna 'Tajemnicza Spółka'? Co się stało z zaginionymi przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?   ... przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?

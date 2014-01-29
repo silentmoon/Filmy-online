@@ -1,0 +1,5 @@
+Bogaci bankruci s04e15 sezon 4 odcinek 15 Blockheads
+=============
+[![Bogaci bankruci s04e15 sezon 4 odcinek 15 Blockheads](http://vidos.pl/images/player.gif)](http://vidos.pl/bogaci-bankruci-s04e15-sezon-4-odcinek-15-blockheads)
+
+ Michael Bluth, wdowiec z 13-letnim synem George'm Michaelem, musi ratować swoją dużą i dysfunkcyjną rodzinę po tym, jak jego ojciec zostaje aresztowany za podejrzane działania księgowe w prowadzonej przez niego korporacji a środki finansowe rodziny zostają zamrożone, wprawiając w przerażenie wszystkich członków owej ekscentrycznej rodziny. Matka Michaela, snobka Lucille, mieszka sama w apartamencie bez środków finansowych na utrzymanie go, podczas gdy dwaj bracia Michaela, GOB i Buster, oraz siostra Lindsay z mężem Tobiasem i córką Maeby również zostają zmuszeni do zmiany swojego stylu życia aby dostosować się do nowej sytuacji finansowej.   ... GOB i Buster, oraz siostra Lindsay z mężem Tobiasem i córką Maeby również zostają zmuszeni do zmiany swojego stylu życia aby dostosować się do nowej sytuacji finansowej.

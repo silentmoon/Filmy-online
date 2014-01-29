@@ -1,0 +1,5 @@
+Alphas s02e13 sezon 2 odcinek 13 God's Eye
+=============
+[![Alphas s02e13 sezon 2 odcinek 13 God's Eye](http://vidos.pl/images/player.gif)](http://vidos.pl/alphas-s02e13-sezon-2-odcinek-13-god-s-eye)
+
+ Pięcioro z pozoru zwyczajnych ludzi, tworzy niezwykły zespół o nazwie 'Alphas', który prowadzi wybitny neurolog i psychiatra dr Lee Rosen (David Strathairn). Każdy z bohaterów posiada zdolność jedyną w swoim rodzaju, dzięki której rozwiązywanie zagadek kryminalnych staje się dużo prostsze. Nina (Laura Mennell) potrafi manipulować umysłem rozmówcy, Bill Harken (Malik Yoba) ma nadludzką siłę.  Niezwykłe zdolności motoryczne należą do Camerona Hicksa (Warren Christie). Gary Bell (Ryan Cartwright) potrafi wychwycić i odczytać wszystkie częstotliwości, natomiast Rachel Pirzad (Azita Ghanizada) potrafi wyostrzyć jeden ze zmysłów zagłuszając przy tym pozostałe zmysły.   ... (Ryan Cartwright) potrafi wychwycić i odczytać wszystkie częstotliwości, natomiast Rachel Pirzad (Azita Ghanizada) potrafi wyostrzyć jeden ze zmysłów zagłuszając przy tym pozostałe zmysły.

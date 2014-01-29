@@ -1,0 +1,5 @@
+Skandal s02e02 sezon 2 odcinek 2 The Other Woman
+=============
+[![Skandal s02e02 sezon 2 odcinek 2 The Other Woman](http://vidos.pl/images/player.gif)](http://vidos.pl/skandal-s02e02-sezon-2-odcinek-2-the-other-woman)
+
+ Olivia Pope (Kerry Washington) poświęciła swoje życie chroniąc wizerunku państwowej elity i pilnując, żeby ich sekrety nie wyszły na światło dzienne. Olivia była doradcą prezydenta USA ds. mediów, ale odeszła, ponieważ zdecydowała się otworzyć własną firmę specjalizującą się w zarządzaniu kryzysowym. Pragnie zacząć nowy rozdział w życiu, ale okazuje się, że nie może zupełnie odciąć się od przeszłości. Zespół Olivii łączy Stephena Fincha (Henry Ian Cusick), kobieciarza rozważającego w końcu się ustatkować, Harrisona Wrighta (Columbus Short), zręcznego  prawnika procesowego, Abby Whelan (Darby Stanchfield),panią detektyw, Hucka (Guillermo Diaz), hakera z przeszłością w CIA i Quinn Perkins (Katie Lowes).   ... rozważającego w końcu się ustatkować, Harrisona Wrighta (Columbus Short), zręcznego  prawnika procesowego, Abby Whelan (Darby Stanchfield),panią detektyw, Hucka (Guillermo Diaz), hakera z przeszłością w CIA i Quinn Perkins (Katie Lowes).

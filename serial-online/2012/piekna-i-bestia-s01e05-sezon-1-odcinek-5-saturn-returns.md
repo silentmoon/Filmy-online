@@ -1,0 +1,5 @@
+Piękna i bestia s01e05 sezon 1 odcinek 5 Saturn Returns
+=============
+[![Piękna i bestia s01e05 sezon 1 odcinek 5 Saturn Returns](http://vidos.pl/images/player.gif)](http://vidos.pl/piekna-i-bestia-s01e05-sezon-1-odcinek-5-saturn-returns)
+
+ Catherine Chandler (Kristin Kreuk) jest mądrą i uczciwą panią detektyw z wydziału zabójstw. Matka Catherine została zamordowana przez dwóch uzbrojonych bandytów, kiedy była nastolatką. Chcieli zabić również Catherine, lecz ktoś lub coś uratowało ją. Z upływem czasu Catherine stała się silną policjantką, mającą utalentowaną partnerkę - Tess O'Malley (Nina Lisandrello). Podczas śledztwa w sprawie morderstwa, Catherine odkrywa, że lekarz o nazwisku Vincent Keller (Jay Ryan) uratował ją wiele lat temu. Vincent ukrywał się przez ostatnie 10 lat, strzegąc swojego sekretu: gdy jest zły, zamienia się w przerażającą bestię i nie potrafi zapanować nad swoją siłą i wyostrzonymi zmysłami.   ... uratował ją wiele lat temu. Vincent ukrywał się przez ostatnie 10 lat, strzegąc swojego sekretu: gdy jest zły, zamienia się w przerażającą bestię i nie potrafi zapanować nad swoją siłą i wyostrzonymi zmysłami.

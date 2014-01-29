@@ -1,0 +1,5 @@
+The White Queen s01e02 sezon 1 odcinek 2 The Price of Power
+=============
+[![The White Queen s01e02 sezon 1 odcinek 2 The Price of Power](http://vidos.pl/images/player.gif)](http://vidos.pl/the-white-queen-s01e02-sezon-1-odcinek-2-the-price-of-power)
+
+ 'The White Queen'' to historia kobiety uwikłanej w trwający konflikt o tron między najbardziej bezwzględnymi graczami w historii, których nic nie powstrzyma przed dojściem do celu. Jest rok 1464. Anglia jest w stanie wojny od dziewięciu lat. Walki toczą się między dwoma stronami tej samej rodziny, Yorków i Lancasterów o to, kto jest prawowitym królem Anglii. Za pomocą manipulacji Lorda Warwicka, królem Anglii zostaje Edward IV z Yorków. Edward jednak szybko zakochuje się i poślubia piękną plebejkę, młodą wdowę Elizabeth Woodville. Tym samym plan Warwicka o wpływy na Edwarda zaczyna wymykać się spod kontroli i nie cofnie się on przed niczym, by utrzymać kontrolę nad królem.  ... zakochuje się i poślubia piękną plebejkę, młodą wdowę Elizabeth Woodville. Tym samym plan Warwicka o wpływy na Edwarda zaczyna wymykać się spod kontroli i nie cofnie się on przed niczym, by utrzymać kontrolę nad królem.

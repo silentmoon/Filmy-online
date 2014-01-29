@@ -1,0 +1,5 @@
+Młodzi jeźdźcy s02e20 sezon 2 odcinek 20 Face of the Enemy
+=============
+[![Młodzi jeźdźcy s02e20 sezon 2 odcinek 20 Face of the Enemy](http://vidos.pl/images/player.gif)](http://vidos.pl/mlodzi-jezdzcy-s02e20-sezon-2-odcinek-20-face-of-the-enemy)
+
+ Film ukazuje losy Pony Express tuż przed Wojną Secesyjną. Skupia się na grupie młodych jeźdźców Expressu znajdującego się w Sweetwater w Kansas. Założycielem Expressu jest były Texas Ranger i ekscentryk Teaspoon Hunter. Rola kucharza, gospodarza domu i matki przypadła najpierw Emmie a potem Rachel. Jeźdźcy łącznie z 'Buffalo Bill' Cody i Jamesem Butler'em ('Wild Bill') Hickok'iem oraz niemym Buck'iem - pół Białym, pół Kiowa zwiadowcą oraz Kidem - Południowcem, tworzą Pony Express. Ostatnim członkiem jest Lou - młoda dziewczyna, która mieszkała i pracowała z jeźdźcami w przebraniu chłopaka. W drugiej części serialu do grupy dołącza Noah Dixon.  ... Express. Ostatnim członkiem jest Lou - młoda dziewczyna, która mieszkała i pracowała z jeźdźcami w przebraniu chłopaka. W drugiej części serialu do grupy dołącza Noah Dixon.

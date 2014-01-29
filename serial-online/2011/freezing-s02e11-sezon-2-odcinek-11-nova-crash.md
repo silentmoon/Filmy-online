@@ -1,0 +1,5 @@
+Freezing s02e11 sezon 2 odcinek 11 Nova Crash
+=============
+[![Freezing s02e11 sezon 2 odcinek 11 Nova Crash](http://vidos.pl/images/player.gif)](http://vidos.pl/freezing-s02e11-sezon-2-odcinek-11-nova-crash)
+
+ Ziemia została najechana przez Obcych z innego wymiaru, nazwanych Nova. W walce z najeźdźcami, Kazuya Aoi stracił swoją siostrę i teraz sam zapisuje się do wojskowej Akademii Gentics, szkolącej do walki z wrogiem zmodyfikowane genetycznie dziewczęta nazywane Pandora i ich partnerów w walce - zwanych Limiterami. Limiterzy posiadają specjalną umiejętność nazwaną zamrożeniem (Freezeing), która ogranicza mobilność przeciwnika. Bohater poznaje niezwykłą starszą dziewczynę Bridgette L. Satellizer, która jest chyba najsilniejszą z Pandor a która jednocześnie do tej pory nie wybrała swojego Limitera, i mimo ostrzeżeń, postanawia zostać jej partnerem.   ... Bridgette L. Satellizer, która jest chyba najsilniejszą z Pandor a która jednocześnie do tej pory nie wybrała swojego Limitera, i mimo ostrzeżeń, postanawia zostać jej partnerem.

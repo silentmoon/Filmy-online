@@ -1,0 +1,5 @@
+Nagi patrol s02e11 sezon 2 odcinek 11 The Island of Dr. Merlot
+=============
+[![Nagi patrol s02e11 sezon 2 odcinek 11 The Island of Dr. Merlot](http://vidos.pl/images/player.gif)](http://vidos.pl/nagi-patrol-s02e11-sezon-2-odcinek-11-the-island-of-dr-merlot)
+
+ Bezlitosna parodia 'Słonecznego patrolu', politycznej poprawności oraz amerykańskiego popcornu i plastiku. Nic dziwnego, 'Nagi patrol' swoim nazwiskiem firmuje Howard Stern. Akcja serialu dzieje się na plaży. Grupie ratowników przewodzi nierozgarnięty Notch Johnson (Timothy Stack). Jedyną rozsądną w jego zespole jest Kimberlee Clark (Kimberly Oja). Jamaica (Leila Arcieri) i B.J. (Jaime Bergman) dość chętnie prezentują swoje wdzięki, a umięśniony Chip (Roland Kickinger) ledwie mówi po angielsku. Wszystkim działaniom Notcha przeciwstawia się burmistrz Anita Massengil (Lisa Banes) wraz ze swoim synem, gejem Kodym (Jason Hopkins).   ... mówi po angielsku. Wszystkim działaniom Notcha przeciwstawia się burmistrz Anita Massengil (Lisa Banes) wraz ze swoim synem, gejem Kodym (Jason Hopkins).

@@ -1,0 +1,5 @@
+Mucha Lucha s03e17 sezon 3 odcinek 17 Blue Demon (aka The Magnificent Three)
+=============
+[![Mucha Lucha s03e17 sezon 3 odcinek 17 Blue Demon (aka The Magnificent Three)](http://vidos.pl/images/player.gif)](http://vidos.pl/mucha-lucha-s03e17-sezon-3-odcinek-17-blue-demon-aka-the-magnificent-three)
+
+ Serial '¡Mucha Lucha!' opowiada o przygodach trójki dzieciaków: Rykoszeta (specjalność: Rycząca Kula Rykoszeta), Buena Dzidzi (specjalność: Spychacz Prawdy) i Pchły (specjalność: smród...), które uczęszczają do znanej na cały świat szkoły luchowania: Mucha Lucha. Na codzień muszą stawiać czoła swoim kolegom w szkole, wrogom z sąsiedniej szkoły walki i... groźnej dyrektorce, która wyrzuca ze szkoły za zaledwie trzy przewinienia. A najważniejszą zasadą, której absolutnie nie wolno łamać, a jaka znalazła się w Kodeksie Honorowego Zapaśnika, jest: nigdy nie zdejmuj swojej maski. Co czasem prowadzi do wyjątkowo zabawnych sytuacji i nieporozumień.  ... nie wolno łamać, a jaka znalazła się w Kodeksie Honorowego Zapaśnika, jest: nigdy nie zdejmuj swojej maski. Co czasem prowadzi do wyjątkowo zabawnych sytuacji i nieporozumień.

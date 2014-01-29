@@ -1,0 +1,5 @@
+Scooby-Doo i brygada detektywów s02e16 sezon 2 odcinek 16 Aliens Among Us
+=============
+[![Scooby-Doo i brygada detektywów s02e16 sezon 2 odcinek 16 Aliens Among Us](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-i-brygada-detektywow-s02e16-sezon-2-odcinek-16-aliens-among-us)
+
+ Ku rozpaczy rodziców, mających własne plany na przyszłość dzieci, 'Tajemnicza Spółka', czyli Fred, Daphne, Velma, Kudłaty i Scooby, wplątują się w kolejną niezwykłą przygodę. Przyjaciele odnajdują liczne wskazówki, mające pomóc im w rozwiązaniu zagadki i tajemnic ich rodzinnego Kryształowego Zdroju. We wszystko miesza się tajemniczy Pan E. Ale kim on jest? Czy to możliwe, że w Kryształowym Zdroju działała kiedyś inna 'Tajemnicza Spółka'? Co się stało z zaginionymi przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?   ... przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?

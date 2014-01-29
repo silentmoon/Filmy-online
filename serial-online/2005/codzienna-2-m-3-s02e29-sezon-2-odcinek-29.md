@@ -1,0 +1,5 @@
+Codzienna 2 m. 3 s02e29 sezon 2 odcinek 29 
+=============
+[![Codzienna 2 m. 3 s02e29 sezon 2 odcinek 29 ](http://vidos.pl/images/player.gif)](http://vidos.pl/codzienna-2-m-3-s02e29-sezon-2-odcinek-29)
+
+ Piotr właśnie stracił pracę w wydawnictwie i zupełnie nie wie, jak się odnaleźć w nowej sytuacji. Zwłaszcza, że jest to człowiek żyjący z głową w chmurach. Nowa sytuacja sprawia, że w rodzinie zamieniają się role. 'Szefem' staje się Lilka, żona Piotra, dynamiczna dziennikarka pisma kobiecego. Piotr zaś musi się zmierzyć ze zwykłymi, codziennymi obowiązkami. Dla niego, roztargnionego melomana, znawcy literatury, to wyzwanie nie lada. Zadania nie ułatwia tacie ośmioletni Franek. Ma własne zdanie na każdy temat i wie jak postawić na swoim. W domu przy ulicy Codziennej pojawiają się dwie babcie, dziadek, przyjaciele i sąsiedzi. Każdy z gości ma sporo dobrych rad i powoduje nieustanne zamieszanie.  ... Franek. Ma własne zdanie na każdy temat i wie jak postawić na swoim. W domu przy ulicy Codziennej pojawiają się dwie babcie, dziadek, przyjaciele i sąsiedzi. Każdy z gości ma sporo dobrych rad i powoduje nieustanne zamieszanie.

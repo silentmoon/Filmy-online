@@ -1,0 +1,5 @@
+Stróż prawa s02e11 sezon 2 odcinek 11 Good Heart and Willing Hand
+=============
+[![Stróż prawa s02e11 sezon 2 odcinek 11 Good Heart and Willing Hand](http://vidos.pl/images/player.gif)](http://vidos.pl/stroz-prawa-s02e11-sezon-2-odcinek-11-good-heart-and-willing-hand)
+
+ Kevin Corcoran (Tom Weston-Jones), były amerykański bokser irlandzkiego pochodzenia, obecnie policjant, powraca do domu po zakończeniu wojny secesyjnej. Na miejscu dowiaduje się, że jego żona zaginęła, a córka nie żyje. W trakcie pracy w patrolu, na ulicach cieszącej się złą sławą nowojorskiej dzielnicy Five Points, stara się odkryć prawdę o tym, co stało się z jego rodziną. W poszukiwaniach pomagają mu dwaj przyjaciele z czasów wojny: Robert Morehouse (Kyle Schmid), nieobliczalny syn bogatego przemysłowca i Matthew Freeman (Ato Essandoh), utalentowany afroamerykański lekarz. Trzej mężczyźni dzielą tajemnicę z pola walki, która łączy ich życie na zawsze.   ... nieobliczalny syn bogatego przemysłowca i Matthew Freeman (Ato Essandoh), utalentowany afroamerykański lekarz. Trzej mężczyźni dzielą tajemnicę z pola walki, która łączy ich życie na zawsze.

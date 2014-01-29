@@ -1,0 +1,5 @@
+Aparatka s02e07 sezon 2 odcinek 7 Skin Deep
+=============
+[![Aparatka s02e07 sezon 2 odcinek 7 Skin Deep](http://vidos.pl/images/player.gif)](http://vidos.pl/aparatka-s02e07-sezon-2-odcinek-7-skin-deep)
+
+ Trzynastoletnia dziewczyna, Sharon Spitz prowadzi zwykłe życie dojrzewającej nastolatki. Jej mama, doktor Helen Spitz rozwiodła się z mężem - muzykiem, który staje się dla Sharon odległym człowiekiem. Tytułowa bohaterka ma dwójkę oddanych przyjaciół: Marię Wong i wielkodusznego alergika - Connora. Obiektem jej westchnień jest Alden - kolega z klasy marzący o karierze w kapeli rockowej. Całe życie Sharon komplikuje się w momencie, gdy zostaje jej założony aparat ortodontyczny, a największy wróg bohaterki - Nina, komentuje ten specyficzny uśmiech przezwiskiem 'Aparatka'. Dzięki przeciwnościom losu blondwłosa dziewczyna odkrywa w sobie siłę, optymizm oraz bardziej niż rówieśnicy docenia cienie i blaski życia.  ... a największy wróg bohaterki - Nina, komentuje ten specyficzny uśmiech przezwiskiem 'Aparatka'. Dzięki przeciwnościom losu blondwłosa dziewczyna odkrywa w sobie siłę, optymizm oraz bardziej niż rówieśnicy docenia cienie i blaski życia.

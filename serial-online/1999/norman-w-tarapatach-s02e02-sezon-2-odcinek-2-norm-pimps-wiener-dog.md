@@ -1,0 +1,5 @@
+Norman w tarapatach s02e02 sezon 2 odcinek 2 Norm Pimps Wiener Dog
+=============
+[![Norman w tarapatach s02e02 sezon 2 odcinek 2 Norm Pimps Wiener Dog](http://vidos.pl/images/player.gif)](http://vidos.pl/norman-w-tarapatach-s02e02-sezon-2-odcinek-2-norm-pimps-wiener-dog)
+
+ Norm jest mającym blisko czterdzieści lat byłym zawodowym hokejstą. Musi przerwać karierę ze względu na uzależnienie od hazardu i oszustwa podatkowe. Mając do wyboru: więzienie lub pracę spłeczną wybiera drugą opcję. Nieznosi swojego nowego szefa - Maxa Denby'ego i robi mu coraz złośliwsze dowcipy. W pracy staje się jednak osobą lubianą. Zyskuje oddaną przyjaciłkę w dobrotliwej i wiecznie samotnej Laurie, kumpla w osobie pechowca Danny'ego oraz wsparcie byłej prostytutki - Taylor. Do jego bliskich należą też brat Artie i jamnik Serdelek. Wkrótce zakochuje się w innej koleżance z pracy - Shelley, która pozostaje obojętna na jego szelmowski urok.  ... Taylor. Do jego bliskich należą też brat Artie i jamnik Serdelek. Wkrótce zakochuje się w innej koleżance z pracy - Shelley, która pozostaje obojętna na jego szelmowski urok.

@@ -1,0 +1,5 @@
+Kot Ik! s02e11 sezon 2 odcinek 11 The Great Eekscape / Eek Goes to the Hot Spot
+=============
+[![Kot Ik! s02e11 sezon 2 odcinek 11 The Great Eekscape / Eek Goes to the Hot Spot](http://vidos.pl/images/player.gif)](http://vidos.pl/kot-ik-s02e11-sezon-2-odcinek-11-the-great-eekscape-eek-goes-to-the-hot-spot)
+
+ Kot Ik to opowieść o tytułowym bohaterze - fioletowym kocie. Ma on wiele zwariowanych pomysłów, które rzadko się udają, przez co wpada w kłopoty. Jego najwiekszą miłością jest Annabelle, a wrogiem zły rekinopies Shark. Od drugiego sezonu do serialu zostały dodane przygody Straszliwych Gromozaurów (Doc, Squatt i Kutter). Ich życie ubiega na bezowocnym polowaniu na dwóch ludzi ( Bill i Scooter). Czwarty sezon został wzbogacony o kolejną kreskówkę - Rupieć. Opowiada ona oona o rodzeństwie, które z powodu alergii ojca, nie mogą mieć zwierząt. Pewnego razu przy pomocy wyładowań elektrycznych udaje się im powołać do życia stertę 'rupieci'.   ... ona o rodzeństwie, które z powodu alergii ojca, nie mogą mieć zwierząt. Pewnego razu przy pomocy wyładowań elektrycznych udaje się im powołać do życia stertę 'rupieci'.

@@ -1,0 +1,5 @@
+M*A*S*H s11e12 sezon 11 odcinek 12 Say No More
+=============
+[![M*A*S*H s11e12 sezon 11 odcinek 12 Say No More](http://vidos.pl/images/player.gif)](http://vidos.pl/m-a-s-h-s11e12-sezon-11-odcinek-12-say-no-more)
+
+ Bohaterowie serialu 'M*A*S*H' to lekarze wojskowi pracujący w szpitalu polowym na froncie wojny w Korei. Są dni, kiedy po kilkanaście godzin spędzają na sali operacyjnej. Ranni płyną jak woda. Nie ma kiedy odpoczywać, personelu brakuje. Są to dla nich bardzo ciężkie dni. Przezywają ze smutkiem śmieć każdego z pacjentów. Ale nie zawsze pracują. Kiedy ataki cichną mają chwilowy spokój. Wtedy najczęściej robią sobie głupie kawały, pędzą bimber, słuchają muyzki, podrywają pielęgniarki i wspominają. O tak, każdy chciałby wreszcie wrócić do domu. Wśród lekarzy i personelu panuje miła, wręcz rodzinna atmosfera. Załoga co pewien czas się zmienia: jedni wracają do domów, inni zostają przeniesieni, część ginie.   ... pielęgniarki i wspominają. O tak, każdy chciałby wreszcie wrócić do domu. Wśród lekarzy i personelu panuje miła, wręcz rodzinna atmosfera. Załoga co pewien czas się zmienia: jedni wracają do domów, inni zostają przeniesieni, część ginie.

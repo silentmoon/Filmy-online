@@ -1,0 +1,5 @@
+Onegai Teacher s01e11 sezon 1 odcinek 11 Teacher
+=============
+[![Onegai Teacher s01e11 sezon 1 odcinek 11 Teacher](http://vidos.pl/images/player.gif)](http://vidos.pl/onegai-teacher-s01e11-sezon-1-odcinek-11-teacher)
+
+ Pewnej nocy na ziemi ląduje statek kosmiczny. Świadkiem tego zdarzenia jest Kei Kusanagi. Zauważa ona tam piękną kobietę. Następnego dnia w szkole pojawiła się młoda nauczycielka, która jak później się okazało jest kosmitką i na dodatek sąsiadką Kei. Kei postanawia pomóc nauczycielce w przenoszeniu rzeczy do nowego mieszkania. Wtedy to chłopak odkrywa kim jest Mizuho, a na dodatek opiekunowie Kei i dyrektor szkoły przyłapują ich w niezręcznej sytuacji, która powstała na skutek wywrócenia się . Nie wiedząc jak z tego wybrnąć, mając przed sobą widmo wyrzucenia ze szkoły, mówią dyrektorowi że są małżeństwem. I tak Mizuho Kazami stała się Mizuho Kusnagi. Jak potoczą się ich losy, zobaczcie sami.  ... skutek wywrócenia się . Nie wiedząc jak z tego wybrnąć, mając przed sobą widmo wyrzucenia ze szkoły, mówią dyrektorowi że są małżeństwem. I tak Mizuho Kazami stała się Mizuho Kusnagi. Jak potoczą się ich losy, zobaczcie sami.

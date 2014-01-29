@@ -1,0 +1,5 @@
+Życie w Cranford s02e01 sezon 2 odcinek 1 Return to Cranford: Part 1
+=============
+[![Życie w Cranford s02e01 sezon 2 odcinek 1 Return to Cranford: Part 1](http://vidos.pl/images/player.gif)](http://vidos.pl/ycie-w-cranford-s02e01-sezon-2-odcinek-1-return-to-cranford-part-1)
+
+ Historia, będąca adaptacją trzech powieści Elizabeth Gaskell, w ciepły i zabawny sposób pokazuje niedorzeczności i poruszające dramaty w życiu mieszkańców Cranford, które miały miejsce w ciągu jednego, niezwykłego roku. Anglia, lata '40 XIX wieku. Cranford, małe miasteczko handlowe w hrabstwie Cheshire, staje w obliczu zmian. Rozbudowująca się kolej przynosi zagrożenie napływu robotników i zakłócenie ładu i porządku, zaś przyjazd nowego, przystojnego lekarza z Londynu, Franka Harrisona, wywołuje poruszenie, nie tylko z powodu rewolucyjnych metod medycznych, ale ze względu na wrażenie, jakie zrobił na wielu kobietach w miasteczku...  ... Harrisona, wywołuje poruszenie, nie tylko z powodu rewolucyjnych metod medycznych, ale ze względu na wrażenie, jakie zrobił na wielu kobietach w miasteczku...

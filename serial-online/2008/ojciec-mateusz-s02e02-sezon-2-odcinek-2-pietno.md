@@ -1,0 +1,5 @@
+Ojciec Mateusz s02e02 sezon 2 odcinek 2 Piętno
+=============
+[![Ojciec Mateusz s02e02 sezon 2 odcinek 2 Piętno](http://vidos.pl/images/player.gif)](http://vidos.pl/ojciec-mateusz-s02e02-sezon-2-odcinek-2-pietno)
+
+ Akcja serialu rozgrywa się w Sandomierzu i jego okolicach. Każdy z odcinków opowiada odrębną historię. Powracający z misji na Białorusi ksiądz Mateusz (Artur Żmijewski) zostaje wezwany przez biskupa (Sławomir Orzechowski). Na spotkaniu w kurii dowiaduje się, że obejmie probostwo w niewielkiej miejscowej parafii. Na pierwszej mszy odprawianej przez Mateusza poznajemy barwne grono jego parafian. Jest wśród nich jego gospodyni Natalia (Kinga Preis), Piotr – kościelny i organista w jednej osobie (Łukasz Lewandowski) i policjant Nocul (Michał Piela). Gdy niezwykły detektywistyczny talent nowego proboszcza ujawni się, aspirant Nocul stanie się częstym gościem na plebanii.  ... w jednej osobie (Łukasz Lewandowski) i policjant Nocul (Michał Piela). Gdy niezwykły detektywistyczny talent nowego proboszcza ujawni się, aspirant Nocul stanie się częstym gościem na plebanii.

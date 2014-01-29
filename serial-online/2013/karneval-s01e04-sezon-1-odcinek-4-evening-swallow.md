@@ -1,0 +1,5 @@
+Karneval s01e04 sezon 1 odcinek 4 Evening Swallow
+=============
+[![Karneval s01e04 sezon 1 odcinek 4 Evening Swallow](http://vidos.pl/images/player.gif)](http://vidos.pl/karneval-s01e04-sezon-1-odcinek-4-evening-swallow)
+
+ Na razie nikt nie dodał streszczenia fabuły tego serialu. Możesz być pierwszy! Zamieść swój opis.

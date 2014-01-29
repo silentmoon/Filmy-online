@@ -1,0 +1,5 @@
+Gra pozorów s02e09 sezon 2 odcinek 9 Dead Flowers
+=============
+[![Gra pozorów s02e09 sezon 2 odcinek 9 Dead Flowers](http://vidos.pl/images/player.gif)](http://vidos.pl/gra-pozorow-s02e09-sezon-2-odcinek-9-dead-flowers)
+
+ Carter Shaw (Dylan McDermott) jest szefem tajnej grupy mającej za zadanie oczyścić Los Angeles z najgorszych kryminalistów. Działa ona we współpracy z LAPD (departament policji w Los Angeles). Bycie pod przykrywką powoduje, że koledzy, znajomi, nie mają pojęcia o ich 'drugim' życiu. Ty Curtis (Omari Hardwick) jest świeżo upieczonym mężem, który stara się pogodzić swoją pracę z nowym życiem. Dean Bendis (Logan Marshall-Green) tak dobrze radzi sobie, że aż jego współpracownicy mają wątpliwości po której stoi stronie. Natomiast Jamie Allen (Nicki Aycox), dotąd pracująca w patrolu, dołącza do grupy ze względu na swoje przeszłe doświadczenia w łamaniu prawa...   ... mają wątpliwości po której stoi stronie. Natomiast Jamie Allen (Nicki Aycox), dotąd pracująca w patrolu, dołącza do grupy ze względu na swoje przeszłe doświadczenia w łamaniu prawa...

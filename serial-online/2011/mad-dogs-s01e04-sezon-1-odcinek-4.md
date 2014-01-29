@@ -1,0 +1,5 @@
+Mad Dogs s01e04 sezon 1 odcinek 4 
+=============
+[![Mad Dogs s01e04 sezon 1 odcinek 4 ](http://vidos.pl/images/player.gif)](http://vidos.pl/mad-dogs-s01e04-sezon-1-odcinek-4)
+
+ Quinn (Philip Glenister) i Baxter (John Simm) - dwóch przyjaciół ze szkolnych lat, obecnie po czterdziestce - wybierają się wspólnie na wypoczynek na Majorce. Na miejscu dołączają do nich Woody (Max Beesley) i Rick (Marc Warren), również koledzy ze szkolnej ławy. Zatrzymują się w willi ich wspólnego kumpla, Alvo (Ben Chaplin). To, co miało być swobodnym wypoczynkiem  na słonecznym wybrzeżu zmierza w stronę koszmaru, kiedy okazuje się, że zostają wplątani w morderstwo i handel narkotykami, w dodatku w towarzystwie zabójcy w gumowej masce angielskiego premiera. Bohaterowie szybko przekonają się jak łatwo z dobrego przyjaciela można stać się groźnym wrogiem.   ... narkotykami, w dodatku w towarzystwie zabójcy w gumowej masce angielskiego premiera. Bohaterowie szybko przekonają się jak łatwo z dobrego przyjaciela można stać się groźnym wrogiem.

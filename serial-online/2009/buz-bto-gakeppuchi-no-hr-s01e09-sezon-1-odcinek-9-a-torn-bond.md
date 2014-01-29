@@ -1,0 +1,5 @@
+Buzâ bîto: Gakeppuchi no hîrô s01e09 sezon 1 odcinek 9 A Torn Bond
+=============
+[![Buzâ bîto: Gakeppuchi no hîrô s01e09 sezon 1 odcinek 9 A Torn Bond](http://vidos.pl/images/player.gif)](http://vidos.pl/buz-bto-gakeppuchi-no-hr-s01e09-sezon-1-odcinek-9-a-torn-bond)
+
+ Naoki Kamiya (Tomohisa Yamashita) od kiedy zaczął grać zawodowo w koszykówkę, przestał odnosić większe sukcesy, zaczęło brakować mu pewności siebie. Mieszka z mamą i młodszą siostrą. Dzięki swojej dziewczynie, Natsuki (Saki Aibu) przedłuża kontrakt na trzeci rok ze swoją drużyną, który może być jego ostatnią szansą na pokazanie swoich możliwości i zaistnienie w koszykarstwie. Jednocześnie poznaje optymistyczną bałaganiarę, Shirakawa Riko (Keiko Kitagawa), która pracuje na pół etatu w księgarni i marzy by zostać prawdziwą skrzypaczką. Ich spotkanie dodaje Naokiemu wiary w siebie i zaczyna zmieniać ich życie...   ... etatu w księgarni i marzy by zostać prawdziwą skrzypaczką. Ich spotkanie dodaje Naokiemu wiary w siebie i zaczyna zmieniać ich życie...

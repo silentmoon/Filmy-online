@@ -1,0 +1,5 @@
+Avengers: Potęga i moc s02e06 sezon 2 odcinek 6 Michael Korvac
+=============
+[![Avengers: Potęga i moc s02e06 sezon 2 odcinek 6 Michael Korvac](http://vidos.pl/images/player.gif)](http://vidos.pl/avengers-potega-i-moc-s02e06-sezon-2-odcinek-6-michael-korvac)
+
+ Zobacz jak Iron Man, Thor, Kapitan Ameryka, Hulk i inni niezwykli bohaterowie połączą siły, aby stawić czoła złoczyńcom, którzy próbują zobacz pełny opis

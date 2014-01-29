@@ -1,0 +1,5 @@
+Sonic X s02e06 sezon 2 odcinek 6 The Water Planet, Hydoo
+=============
+[![Sonic X s02e06 sezon 2 odcinek 6 The Water Planet, Hydoo](http://vidos.pl/images/player.gif)](http://vidos.pl/sonic-x-s02e06-sezon-2-odcinek-6-the-water-planet-hydoo)
+
+ Bohaterem tego serialu jest niebieski jeż - superbohater Sonic. Od dawna toczy on zaciętą walkę z przebiegłym Dr Eggmanem. Ten szalony naukowiec pragnie odszukać wszystkich siedem Szmaragdów Chaosu, aby za ich pomocą zdobyć władzę nad światem. W obronie szmaragdów pomagają Sonicowi jego przyjeciele: Tails - lisek o dwóch ogonach który potrafi latać, Amy - dziewczyna Sonica, będąca jeżem koloru różowego i Knuckles - czerwona kolczatka. Podczas decydującego pojedynku Centrum Chaosu Dr Eggmana eksploduje i Sonic X zostaje przeniesiony do Square City - do całkiem nowego dla siebie świata. Czy da sobie w nim radę? Czy odnajdzie w nim przyjaciół? Czy dogonią go tu wrogowie?   ... Chaosu Dr Eggmana eksploduje i Sonic X zostaje przeniesiony do Square City - do całkiem nowego dla siebie świata. Czy da sobie w nim radę? Czy odnajdzie w nim przyjaciół? Czy dogonią go tu wrogowie?

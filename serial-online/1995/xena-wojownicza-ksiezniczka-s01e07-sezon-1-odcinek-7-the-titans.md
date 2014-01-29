@@ -1,0 +1,5 @@
+Xena: wojownicza księżniczka s01e07 sezon 1 odcinek 7 The Titans
+=============
+[![Xena: wojownicza księżniczka s01e07 sezon 1 odcinek 7 The Titans](http://vidos.pl/images/player.gif)](http://vidos.pl/xena-wojownicza-ksiezniczka-s01e07-sezon-1-odcinek-7-the-titans)
+
+ Xena (Lucy Lawless) to wojownicza księżniczka, która mści się na ludziach za swoje krzywdy. Jest błyskotliwa, piękna i niesamowicie groźna. Sieje strach i spustoszenie wraz ze swoją armią i każdy słysząc jej imię drży ze strachu. Tak się dzieje, dopóki nie spotyka Herkulesa. Pod jego wpływem zaczyna żałować za swoje czyny i postanawia od tej pory pomagać innym. W tej walce pomaga jej Gabrielle (Renée O'Connor), która staje się jej najlepszą przyjaciółka i towarzyszką w walce. Razem z nią stawia czoła krzywdzie i złu panującym na ziemi. Walczy z różnymi szubrawcami, m.in.: z tak potężnym wojownikiem jak Juliusz Cezar. Za wszelką cenę chce odkupić winy za swoje postępki.   ... walce. Razem z nią stawia czoła krzywdzie i złu panującym na ziemi. Walczy z różnymi szubrawcami, m.in.: z tak potężnym wojownikiem jak Juliusz Cezar. Za wszelką cenę chce odkupić winy za swoje postępki. 

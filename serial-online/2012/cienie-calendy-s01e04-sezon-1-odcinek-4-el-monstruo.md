@@ -1,0 +1,5 @@
+Cienie Calendy s01e04 sezon 1 odcinek 4 El Monstruo
+=============
+[![Cienie Calendy s01e04 sezon 1 odcinek 4 El Monstruo](http://vidos.pl/images/player.gif)](http://vidos.pl/cienie-calendy-s01e04-sezon-1-odcinek-4-el-monstruo)
+
+ 'Luna, el misterio de Calenda' przedstawia historię Sary (Belén Rueda), która wraz z córką Leire (Lucia Guerrero) przyjeżdża do Calenda, by odzyskać swoje dawne życie z mężem Davidem (Leonardo Sbaraglia), kapitanem Gwardii Cywilnej. Niestety, wszystko ulega zmianie, gdy David wychodzi w nocy z domu i już nie wraca. Podczas gdy policja szuka zaginionego mężczyzny, Sara nie traci nadziei i nie poddaje się. Jednak na próżno, gdyż wkrótce zostaje odnalezione ciało Davida. Po tym dramatycznym wydarzeniu, Sara dowiaduje się, że mąż prowadził na własną rękę pewną sprawę i jest święcie przekonana, iż to właśnie osoba z tym związana stoi za jego zabójstwem. Postanawia więc za wszelką cenę poznać prawdę...  ... dramatycznym wydarzeniu, Sara dowiaduje się, że mąż prowadził na własną rękę pewną sprawę i jest święcie przekonana, iż to właśnie osoba z tym związana stoi za jego zabójstwem. Postanawia więc za wszelką cenę poznać prawdę...

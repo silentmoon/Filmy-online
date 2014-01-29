@@ -1,0 +1,5 @@
+Dzień za dniem s03e02 sezon 3 odcinek 2 Hello, Goodbye
+=============
+[![Dzień za dniem s03e02 sezon 3 odcinek 2 Hello, Goodbye](http://vidos.pl/images/player.gif)](http://vidos.pl/dzien-za-dniem-s03e02-sezon-3-odcinek-2-hello-goodbye)
+
+ Dzień za dniem opowiada o życiu codziennym rodziny Thatcherów, a zwłaszcza o Corkym (Chris Burke), chłopcu z Zespołem Downa. W momencie rozpoczęcia akcji serialu w 1989 roku, osiemnastoletni Corky zaczyna uczęszczać do zwykłej szkoły średniej, do tej samej co jego młodsza siostra Becca (Kellie Martin). Na początku Becca wstydzi się chodzić do szkoły z bratem jednak z czasem nauczyła się to akceptować. Jako niepełnosprawna osoba Corky próbuje funkcjonować w trudnym świecie, boryka się z trudnościami życiowymi. Serial nie opowiada wyłącznie o Corkym, można w nim zobaczyć również jak pozostali członkowie rodziny radzą sobie z własnymi problemami.  ... boryka się z trudnościami życiowymi. Serial nie opowiada wyłącznie o Corkym, można w nim zobaczyć również jak pozostali członkowie rodziny radzą sobie z własnymi problemami.

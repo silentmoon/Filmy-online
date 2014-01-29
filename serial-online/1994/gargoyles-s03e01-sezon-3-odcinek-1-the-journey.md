@@ -1,0 +1,5 @@
+Gargoyles s03e01 sezon 3 odcinek 1 The Journey
+=============
+[![Gargoyles s03e01 sezon 3 odcinek 1 The Journey](http://vidos.pl/images/player.gif)](http://vidos.pl/gargoyles-s03e01-sezon-3-odcinek-1-the-journey)
+
+ Na razie nikt nie dodał streszczenia fabuły tego serialu. Możesz być pierwszy! Zamieść swój opis.

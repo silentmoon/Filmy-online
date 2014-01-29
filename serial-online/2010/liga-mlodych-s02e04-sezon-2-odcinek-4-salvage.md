@@ -1,0 +1,5 @@
+Liga Młodych s02e04 sezon 2 odcinek 4 Salvage
+=============
+[![Liga Młodych s02e04 sezon 2 odcinek 4 Salvage](http://vidos.pl/images/player.gif)](http://vidos.pl/liga-mlodych-s02e04-sezon-2-odcinek-4-salvage)
+
+ Aby pomocnicy superbohaterów mogli dołączyć do Ligi Sprawiedliwych, muszą pokazać, że są prawdziwymi bohaterami.

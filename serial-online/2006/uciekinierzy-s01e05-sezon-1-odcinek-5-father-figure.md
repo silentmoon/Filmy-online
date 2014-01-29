@@ -1,0 +1,5 @@
+Uciekinierzy s01e05 sezon 1 odcinek 5 Father Figure
+=============
+[![Uciekinierzy s01e05 sezon 1 odcinek 5 Father Figure](http://vidos.pl/images/player.gif)](http://vidos.pl/uciekinierzy-s01e05-sezon-1-odcinek-5-father-figure)
+
+ Raderowie wyglądają jak normalna, amerykańska rodzina, w której skład wchodzą: Paul, jego urocza żona- Lily i trójka dzieci Henry, Hannah i ośmioletni Tommy. Tak brzmią ich prawdziwe imiona, ale w Bridgewater w stanie Iowa wszyscy muszą używać innych nazwisk. Okazuje się, że Raderowie są uciekinierami, którzy kryją się przed karą, która czeka na ich oskarżonego o niezwykle okrutny czyn przestępczy ojca. Równocześnie uzależniony od niebezpieczeństwa prawdziwy morderca igra z życiem Henry'ego, Hannah i Tommy'ego. Paul stara się chronić swoich najdroższych i równocześnie odkryć dowod swojej niewinności. Niestety każdy kolejny dzień napawa go strachem, że ktoś nieoczekiwanie odkryje jego najgłębszy sekret.  ... życiem Henry'ego, Hannah i Tommy'ego. Paul stara się chronić swoich najdroższych i równocześnie odkryć dowod swojej niewinności. Niestety każdy kolejny dzień napawa go strachem, że ktoś nieoczekiwanie odkryje jego najgłębszy sekret.

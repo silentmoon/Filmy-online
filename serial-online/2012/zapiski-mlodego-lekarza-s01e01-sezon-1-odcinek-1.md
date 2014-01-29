@@ -1,0 +1,5 @@
+Zapiski młodego lekarza s01e01 sezon 1 odcinek 1 
+=============
+[![Zapiski młodego lekarza s01e01 sezon 1 odcinek 1 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zapiski-mlodego-lekarza-s01e01-sezon-1-odcinek-1)
+
+ Komediodramat w czterech odcinkach oparty na opowiadaniach znanego rosyjskiego pisarza Michaiła Bułhakowa.  Vladimir Bomgard jest lekarzem w wiosce, która z trudem wchodzi w nowoczesność. Doktor przegląda swoje pamiętniki z czasów młodości i snuje rozważania nad swoim życiem i karierą. Zmagając się nie tylko z zabobonnymi i ubogimi pacjentami, ale również z własnymi demonami, lekarz przeżywa rozterki na temat swoich kompetencji oraz ciężaru odpowiedzialności, z jakim wiąże się medyczna profesja. W głównej roli występuje Jon Hamm ('Mad Men'), natomiast jako jego młodsze wcielenie znany z serii o Harrym Potterze Daniel Radcliffe.  ... się medyczna profesja. W głównej roli występuje Jon Hamm ('Mad Men'), natomiast jako jego młodsze wcielenie znany z serii o Harrym Potterze Daniel Radcliffe.

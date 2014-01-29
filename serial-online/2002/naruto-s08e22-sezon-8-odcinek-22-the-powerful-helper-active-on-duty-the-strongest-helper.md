@@ -1,0 +1,5 @@
+Naruto s08e22 sezon 8 odcinek 22 The Powerful Helper / Active on Duty, The Strongest Helper
+=============
+[![Naruto s08e22 sezon 8 odcinek 22 The Powerful Helper / Active on Duty, The Strongest Helper](http://vidos.pl/images/player.gif)](http://vidos.pl/naruto-s08e22-sezon-8-odcinek-22-the-powerful-helper-active-on-duty-the-strongest-helper)
+
+ Akcja serialu rozpoczyna się od ataku demona zwanego Dziewięcioogoniastym Demonicznym Lisem, który - posiadając dużą moc - mógł zniszczyć wszystko co było w okolicy. W walce z potworem wzięło udział wielu ninja, ale tylko jeden pokonał monstrum. Był nim 'Czwarty Hokage'. Głównym bohaterem jest Uzumaki Naruto, chłopiec, na którego została nałożona pieczęć, wiążąca z nim pokonanego demona. Marzeniem bohatera jest zostać ninja, a dokładnie osiągnąć najwyższy stopień wojownika - Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.   ... Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.

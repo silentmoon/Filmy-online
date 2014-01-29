@@ -1,0 +1,5 @@
+Orange Is the New Black s01e04 sezon 1 odcinek 4 Imaginary Enemies
+=============
+[![Orange Is the New Black s01e04 sezon 1 odcinek 4 Imaginary Enemies](http://vidos.pl/images/player.gif)](http://vidos.pl/orange-is-the-new-black-s01e04-sezon-1-odcinek-4-imaginary-enemies)
+
+ Komediodramat oparty na bestsellerowych wspomnieniach autorstwa Piper Kerman pod tym samym tytułem. Dobrze sytuowana mieszkanka Brooklynu, Piper Chapman (Taylor Schilling), zostaje skazana na karę roku pozbawienia wolności, na skutek związku z dilerką narkotyków Alex (Laura Prepon) sprzed blisko dekady. Aby spłacić swój dług wobec społeczeństwa, Piper musi zamienić wygodne życie w Nowym Jorku, u boku narzeczonego Larry'ego (Jason Biggs), na pomarańczowy kombinezon i społeczność więzienną. Wkrótce zaczyna kwestionować wszystko, w co dotąd wierzyła, i tworzyć sojusze z grupą ekscentrycznych i szczerych do bólu więźniarek.  ... społeczność więzienną. Wkrótce zaczyna kwestionować wszystko, w co dotąd wierzyła, i tworzyć sojusze z grupą ekscentrycznych i szczerych do bólu więźniarek.

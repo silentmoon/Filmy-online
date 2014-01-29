@@ -1,0 +1,5 @@
+Night Stalker s01e08 sezon 1 odcinek 8 Into Night
+=============
+[![Night Stalker s01e08 sezon 1 odcinek 8 Into Night](http://vidos.pl/images/player.gif)](http://vidos.pl/night-stalker-s01e08-sezon-1-odcinek-8-into-night)
+
+ Gdy pewna kobieta w ciąży zostaje brutalnie zamordowana, wstrząśnięci mieszkańcy Los Angeles uznają to za wynik przemocy w rodzinie. Jednak reporter Carl Kolchak uważa, że sprawa jest bardziej skomplikowana. 18 miesięcy wcześniej, w podobny sposób została zabita jego żona. Stał się wtedy głównym podejrzanym FBI. Kiedy rozpoczyna, na własną rękę śledztwo w sprawie morderstwa swojej żony, natrafia na inne podobne przestępstwa.Wszystkie mają w sobie nadnaturalne cechy. Składając powoli elementy tej układanki, stara się dowiedzieć kto lub co kryje się za tymi zbrodniami. Czy są one powiązane? I czy kiedy odkryje prawdę ktokolwiek mu uwierzy?  ... powoli elementy tej układanki, stara się dowiedzieć kto lub co kryje się za tymi zbrodniami. Czy są one powiązane? I czy kiedy odkryje prawdę ktokolwiek mu uwierzy?

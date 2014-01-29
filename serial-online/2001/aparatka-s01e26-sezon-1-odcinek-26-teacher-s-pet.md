@@ -1,0 +1,5 @@
+Aparatka s01e26 sezon 1 odcinek 26 Teacher's Pet
+=============
+[![Aparatka s01e26 sezon 1 odcinek 26 Teacher's Pet](http://vidos.pl/images/player.gif)](http://vidos.pl/aparatka-s01e26-sezon-1-odcinek-26-teacher-s-pet)
+
+ Trzynastoletnia dziewczyna, Sharon Spitz prowadzi zwykłe życie dojrzewającej nastolatki. Jej mama, doktor Helen Spitz rozwiodła się z mężem - muzykiem, który staje się dla Sharon odległym człowiekiem. Tytułowa bohaterka ma dwójkę oddanych przyjaciół: Marię Wong i wielkodusznego alergika - Connora. Obiektem jej westchnień jest Alden - kolega z klasy marzący o karierze w kapeli rockowej. Całe życie Sharon komplikuje się w momencie, gdy zostaje jej założony aparat ortodontyczny, a największy wróg bohaterki - Nina, komentuje ten specyficzny uśmiech przezwiskiem 'Aparatka'. Dzięki przeciwnościom losu blondwłosa dziewczyna odkrywa w sobie siłę, optymizm oraz bardziej niż rówieśnicy docenia cienie i blaski życia.  ... a największy wróg bohaterki - Nina, komentuje ten specyficzny uśmiech przezwiskiem 'Aparatka'. Dzięki przeciwnościom losu blondwłosa dziewczyna odkrywa w sobie siłę, optymizm oraz bardziej niż rówieśnicy docenia cienie i blaski życia.

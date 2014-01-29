@@ -1,0 +1,5 @@
+Bez śladu s05e21 sezon 5 odcinek 21 Crash and Burn
+=============
+[![Bez śladu s05e21 sezon 5 odcinek 21 Crash and Burn](http://vidos.pl/images/player.gif)](http://vidos.pl/bez-sladu-s05e21-sezon-5-odcinek-21-crash-and-burn)
+
+ Poszukiwanie ludzi, którzy znikają w niewyjaśnionych okolicznościach, wymaga zgłębienia ich osobowości, kontaktów i odtworzenia ostatnich momentów przed nastąpieniem tego faktu. Właśnie w tym miejscu zaczyna się praca nowojorskiej Brygady FBI do spraw Zaginionych Osób, dowodzonej przez agenta Jacka Malone'a. Jedną z podstawowych czynności proceduralnych jest określenie dokładnego portretu psychologicznego danej osoby i odtworzenie ostatnich 24 godzin życia przed jej zniknięciem. Dzięki takim działaniom można ustalić, czy ktoś został uprowadzony, zamordowany, popełnił samobójstwo, bądź też: zgodnie z własną wolą zerwał wszelkie kontakty z danym środowiskiem, które zgłasza jego zaginięcie.  ... zniknięciem. Dzięki takim działaniom można ustalić, czy ktoś został uprowadzony, zamordowany, popełnił samobójstwo, bądź też: zgodnie z własną wolą zerwał wszelkie kontakty z danym środowiskiem, które zgłasza jego zaginięcie.

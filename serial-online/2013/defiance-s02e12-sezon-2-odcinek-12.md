@@ -1,0 +1,5 @@
+Defiance s02e12 sezon 2 odcinek 12 
+=============
+[![Defiance s02e12 sezon 2 odcinek 12 ](http://vidos.pl/images/player.gif)](http://vidos.pl/defiance-s02e12-sezon-2-odcinek-12)
+
+ W roku 2046, Ziemia jest nową planetą, którą rządzą nowe zasady. Ponad trzydzieści lat po przybyciu różnych obcych na jej powierzchnię, krajobraz został niemal całkowicie zmieniony i przekształcony nie do poznania. Do miasta Defiance, dawniej zwanego St. Louis, przybywa tajemniczy Nolan (Grant Bowler) i jego podwładna Irisa (Stephanie Leonidas). Gdy tylko osiedlają się w mieście nadzorowanym przez burmistrz Amandę Rosewater (Julie Benz), zamieszkałym przez ludzi jak wpływowy Rafe McCawley (Graham Greene), przedsiębiorcza właścicielka salonu Kenia (Mia Kirshner) oraz ambitnych obcych - Tarrsów (Tony Curran i Jaime Murray) - rozwój wydarzeń zaczyna zagrażać nietrwałemu pokojowi, o który to graniczne miasto walczyło.  ... wpływowy Rafe McCawley (Graham Greene), przedsiębiorcza właścicielka salonu Kenia (Mia Kirshner) oraz ambitnych obcych - Tarrsów (Tony Curran i Jaime Murray) - rozwój wydarzeń zaczyna zagrażać nietrwałemu pokojowi, o który to graniczne miasto walczyło.

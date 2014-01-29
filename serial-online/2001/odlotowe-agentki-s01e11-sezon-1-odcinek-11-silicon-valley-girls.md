@@ -1,0 +1,5 @@
+Odlotowe agentki s01e11 sezon 1 odcinek 11 Silicon Valley Girls
+=============
+[![Odlotowe agentki s01e11 sezon 1 odcinek 11 Silicon Valley Girls](http://vidos.pl/images/player.gif)](http://vidos.pl/odlotowe-agentki-s01e11-sezon-1-odcinek-11-silicon-valley-girls)
+
+ Ten animowany serial opowiada o przygodach agentów - dziewczyn. Trzy koleżanki: Alex, Sam i Clover zostały wybrane przez Jerry'ego, szefa tajnego wywiadu, na agentki, które będą mogły rozwiązywać trudne sprawy. Dziewczyny trafiają na różne dziwne i niebezpieczne wypadki, raz spotykają ufo, raz walczą z porywaczami używającymi działa przeciw grawitacyjnego, raz muszą pokonać rycerza z przeszłości. W rozwiązaniu tych spraw pomagają im różne gad żety, podarowane im przez Jerry'ego. Lecz Alex, Sam i Clover muszą chodzić do szkoły i spotykać się z Mandy - ich największym wrogiem w szkole. Dotychczas wyprodukowano 52 odcinki serialu.  ... Jerry'ego. Lecz Alex, Sam i Clover muszą chodzić do szkoły i spotykać się z Mandy - ich największym wrogiem w szkole. Dotychczas wyprodukowano 52 odcinki serialu.

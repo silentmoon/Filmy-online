@@ -1,0 +1,5 @@
+Scooby-Doo i brygada detektywów s02e02 sezon 2 odcinek 2 House of the Nightmare Witch
+=============
+[![Scooby-Doo i brygada detektywów s02e02 sezon 2 odcinek 2 House of the Nightmare Witch](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-i-brygada-detektywow-s02e02-sezon-2-odcinek-2-house-of-the-nightmare-witch)
+
+ Ku rozpaczy rodziców, mających własne plany na przyszłość dzieci, 'Tajemnicza Spółka', czyli Fred, Daphne, Velma, Kudłaty i Scooby, wplątują się w kolejną niezwykłą przygodę. Przyjaciele odnajdują liczne wskazówki, mające pomóc im w rozwiązaniu zagadki i tajemnic ich rodzinnego Kryształowego Zdroju. We wszystko miesza się tajemniczy Pan E. Ale kim on jest? Czy to możliwe, że w Kryształowym Zdroju działała kiedyś inna 'Tajemnicza Spółka'? Co się stało z zaginionymi przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?   ... przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?

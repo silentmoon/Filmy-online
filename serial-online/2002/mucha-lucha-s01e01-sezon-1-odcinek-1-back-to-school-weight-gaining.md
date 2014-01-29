@@ -1,0 +1,5 @@
+Mucha Lucha s01e01 sezon 1 odcinek 1 Back to School/Weight Gaining
+=============
+[![Mucha Lucha s01e01 sezon 1 odcinek 1 Back to School/Weight Gaining](http://vidos.pl/images/player.gif)](http://vidos.pl/mucha-lucha-s01e01-sezon-1-odcinek-1-back-to-school-weight-gaining)
+
+ Serial '¡Mucha Lucha!' opowiada o przygodach trójki dzieciaków: Rykoszeta (specjalność: Rycząca Kula Rykoszeta), Buena Dzidzi (specjalność: Spychacz Prawdy) i Pchły (specjalność: smród...), które uczęszczają do znanej na cały świat szkoły luchowania: Mucha Lucha. Na codzień muszą stawiać czoła swoim kolegom w szkole, wrogom z sąsiedniej szkoły walki i... groźnej dyrektorce, która wyrzuca ze szkoły za zaledwie trzy przewinienia. A najważniejszą zasadą, której absolutnie nie wolno łamać, a jaka znalazła się w Kodeksie Honorowego Zapaśnika, jest: nigdy nie zdejmuj swojej maski. Co czasem prowadzi do wyjątkowo zabawnych sytuacji i nieporozumień.  ... nie wolno łamać, a jaka znalazła się w Kodeksie Honorowego Zapaśnika, jest: nigdy nie zdejmuj swojej maski. Co czasem prowadzi do wyjątkowo zabawnych sytuacji i nieporozumień.

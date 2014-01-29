@@ -1,0 +1,5 @@
+Smerfy s07e02 sezon 7 odcinek 2 Smurf On The Wild Side (2)
+=============
+[![Smerfy s07e02 sezon 7 odcinek 2 Smurf On The Wild Side (2)](http://vidos.pl/images/player.gif)](http://vidos.pl/smerfy-s07e02-sezon-7-odcinek-2-smurf-on-the-wild-side-2)
+
+ Smurfy to małe niebieskie postacie, żyjące w domkach o kształcie muchomorów. Przewodzi nimi Papa Smurf, który ma ponad 534 lata. W świecie Smurfów niemal każdy się czymś innym zajmuję. Spotkamy Osiłka, Smurfetkę, Malarza, Poetę, Marzyciela, Łasucha, Harmoniusza, Farmera, Śpiocha, Ważniaka, Marudę, Pracusia, Lalusia, Zgrywusa, Smurfika i wielu innych. Życie Smurfów było by doskonałe, gdyby nie Gargamel - zły czarownik i jego kot Klakier, którzy próbują schwytać Smurfy, aby przerobić je na złoto według pradawnego przepisu. Twórą Smurfów jest Peyo, który wymyślił cały magiczny, niezwykły świat w którym żyją Smurfy. Serial składa się z 421 odcinków.  ... przerobić je na złoto według pradawnego przepisu. Twórą Smurfów jest Peyo, który wymyślił cały magiczny, niezwykły świat w którym żyją Smurfy. Serial składa się z 421 odcinków.

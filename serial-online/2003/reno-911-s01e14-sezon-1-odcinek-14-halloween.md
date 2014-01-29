@@ -1,0 +1,5 @@
+Reno 911! s01e14 sezon 1 odcinek 14 Halloween
+=============
+[![Reno 911! s01e14 sezon 1 odcinek 14 Halloween](http://vidos.pl/images/player.gif)](http://vidos.pl/reno-911-s01e14-sezon-1-odcinek-14-halloween)
+
+ Serial produkowany m.in. przez Danny'ego DeVito, opowiadajający o pracy grupy policjantów z drogówki. zobacz pełny opis

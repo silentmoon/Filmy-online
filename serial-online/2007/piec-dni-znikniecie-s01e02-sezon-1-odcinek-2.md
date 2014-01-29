@@ -1,0 +1,5 @@
+Pięć dni. Zniknięcie s01e02 sezon 1 odcinek 2 
+=============
+[![Pięć dni. Zniknięcie s01e02 sezon 1 odcinek 2 ](http://vidos.pl/images/player.gif)](http://vidos.pl/piec-dni-znikniecie-s01e02-sezon-1-odcinek-2)
+
+ Matka, Leanne, znika z pola widzenia. Jej dzieci, pozostawione w samochodzie, także znikają. Policyjne śledztwo i cała sprawa znajdują się w świetle kamer przez ponad trzy miesiące. Mąż i rodzina Leanne przekonują się, że nikomu nie mogą zaufać. Każdy jest podejrzany. Ostatnie 5 dni stanowi przełom w rozwiązaniu tej sprawy. Mini serial HBO Films ukazuje pięć decydujących dni stanowiących sedno sensacyjnej sprawy uprowadzenia, coraz bardziej zdenerwowanych członków rodziny, labirynt niespodziewanych zdarzeń oraz złożone i frustrujące śledztwo policyjne. 5 dni to dramatyczny thriller przepełniony napięciem, w którym główną rolę zagrał David Oyelowo ('Ostatni król Szkocji').  ... labirynt niespodziewanych zdarzeń oraz złożone i frustrujące śledztwo policyjne. 5 dni to dramatyczny thriller przepełniony napięciem, w którym główną rolę zagrał David Oyelowo ('Ostatni król Szkocji').

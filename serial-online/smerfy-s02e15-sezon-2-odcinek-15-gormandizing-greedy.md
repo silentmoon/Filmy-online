@@ -1,0 +1,5 @@
+Smerfy s02e15 sezon 2 odcinek 15 Gormandizing Greedy
+=============
+[![Smerfy s02e15 sezon 2 odcinek 15 Gormandizing Greedy](http://vidos.pl/images/player.gif)](http://vidos.pl/smerfy-s02e15-sezon-2-odcinek-15-gormandizing-greedy)
+
+ Smurfy to małe niebieskie postacie, żyjące w domkach o kształcie muchomorów. Przewodzi nimi Papa Smurf, który ma ponad 534 lata. W świecie Smurfów niemal każdy się czymś innym zajmuję. Spotkamy Osiłka, Smurfetkę, Malarza, Poetę, Marzyciela, Łasucha, Harmoniusza, Farmera, Śpiocha, Ważniaka, Marudę, Pracusia, Lalusia, Zgrywusa, Smurfika i wielu innych. Życie Smurfów było by doskonałe, gdyby nie Gargamel - zły czarownik i jego kot Klakier, którzy próbują schwytać Smurfy, aby przerobić je na złoto według pradawnego przepisu. Twórą Smurfów jest Peyo, który wymyślił cały magiczny, niezwykły świat w którym żyją Smurfy. Serial składa się z 421 odcinków.  ... przerobić je na złoto według pradawnego przepisu. Twórą Smurfów jest Peyo, który wymyślił cały magiczny, niezwykły świat w którym żyją Smurfy. Serial składa się z 421 odcinków.

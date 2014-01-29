@@ -1,0 +1,5 @@
+Superman s01e01 sezon 1 odcinek 1 The Last Son of Krypton (1)
+=============
+[![Superman s01e01 sezon 1 odcinek 1 The Last Son of Krypton (1)](http://vidos.pl/images/player.gif)](http://vidos.pl/superman-s01e01-sezon-1-odcinek-1-the-last-son-of-krypton-1)
+
+ Bajka bazująca na popularnym filmie z 1978 roku pod tym samym tytułem, z Christopherem Reevem w roli głównej. Clark Kent to dziennikarz pracujący dla pewnego dziennika o nazwie 'Metropolis', jednak to stanowi tylko tło dla tego czym naprawdę się zajmuje. W rzeczywistości Clark to super bohater (tytułowy Superman) codziennie ratujący niewinnych przed niebezpieczeństwami. Swoje nadnaturalne zdolności zawdzięcza swoim niezwykłym rodzicom, którzy jako niemowlę podrzucili go na Ziemię z planety Krypton. Został znaleziony przez małżeństwo, którzy wychowali go jak własnego syna. Ponad to Superman podkochuje się w swojej redakcyjnej koleżance (z wzajemnością zresztą) Lois Lane.  ... Ziemię z planety Krypton. Został znaleziony przez małżeństwo, którzy wychowali go jak własnego syna. Ponad to Superman podkochuje się w swojej redakcyjnej koleżance (z wzajemnością zresztą) Lois Lane.

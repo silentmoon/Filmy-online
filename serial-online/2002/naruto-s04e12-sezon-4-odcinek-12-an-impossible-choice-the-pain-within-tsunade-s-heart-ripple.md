@@ -1,0 +1,5 @@
+Naruto s04e12 sezon 4 odcinek 12 An Impossible Choice: The Pain Within Tsunade's Heart / Ripple
+=============
+[![Naruto s04e12 sezon 4 odcinek 12 An Impossible Choice: The Pain Within Tsunade's Heart / Ripple](http://vidos.pl/images/player.gif)](http://vidos.pl/naruto-s04e12-sezon-4-odcinek-12-an-impossible-choice-the-pain-within-tsunade-s-heart-ripple)
+
+ Akcja serialu rozpoczyna się od ataku demona zwanego Dziewięcioogoniastym Demonicznym Lisem, który - posiadając dużą moc - mógł zniszczyć wszystko co było w okolicy. W walce z potworem wzięło udział wielu ninja, ale tylko jeden pokonał monstrum. Był nim 'Czwarty Hokage'. Głównym bohaterem jest Uzumaki Naruto, chłopiec, na którego została nałożona pieczęć, wiążąca z nim pokonanego demona. Marzeniem bohatera jest zostać ninja, a dokładnie osiągnąć najwyższy stopień wojownika - Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.   ... Hokage. Razem ze swoimi przyjaciółmi piękną Sakurą i rywalem Sasuke, musi przejść wiele przeszkód i walk z silnymi wojownikami, aby zrealizować swoje marzenia.

@@ -1,0 +1,5 @@
+Bogaci bankruci s02e10 sezon 2 odcinek 10 Ready, Aim, Marry Me
+=============
+[![Bogaci bankruci s02e10 sezon 2 odcinek 10 Ready, Aim, Marry Me](http://vidos.pl/images/player.gif)](http://vidos.pl/bogaci-bankruci-s02e10-sezon-2-odcinek-10-ready-aim-marry-me)
+
+ Michael Bluth, wdowiec z 13-letnim synem George'm Michaelem, musi ratować swoją dużą i dysfunkcyjną rodzinę po tym, jak jego ojciec zostaje aresztowany za podejrzane działania księgowe w prowadzonej przez niego korporacji a środki finansowe rodziny zostają zamrożone, wprawiając w przerażenie wszystkich członków owej ekscentrycznej rodziny. Matka Michaela, snobka Lucille, mieszka sama w apartamencie bez środków finansowych na utrzymanie go, podczas gdy dwaj bracia Michaela, GOB i Buster, oraz siostra Lindsay z mężem Tobiasem i córką Maeby również zostają zmuszeni do zmiany swojego stylu życia aby dostosować się do nowej sytuacji finansowej.   ... GOB i Buster, oraz siostra Lindsay z mężem Tobiasem i córką Maeby również zostają zmuszeni do zmiany swojego stylu życia aby dostosować się do nowej sytuacji finansowej.

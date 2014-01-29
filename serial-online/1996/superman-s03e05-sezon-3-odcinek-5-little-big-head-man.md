@@ -1,0 +1,5 @@
+Superman s03e05 sezon 3 odcinek 5 Little Big Head Man
+=============
+[![Superman s03e05 sezon 3 odcinek 5 Little Big Head Man](http://vidos.pl/images/player.gif)](http://vidos.pl/superman-s03e05-sezon-3-odcinek-5-little-big-head-man)
+
+ Bajka bazująca na popularnym filmie z 1978 roku pod tym samym tytułem, z Christopherem Reevem w roli głównej. Clark Kent to dziennikarz pracujący dla pewnego dziennika o nazwie 'Metropolis', jednak to stanowi tylko tło dla tego czym naprawdę się zajmuje. W rzeczywistości Clark to super bohater (tytułowy Superman) codziennie ratujący niewinnych przed niebezpieczeństwami. Swoje nadnaturalne zdolności zawdzięcza swoim niezwykłym rodzicom, którzy jako niemowlę podrzucili go na Ziemię z planety Krypton. Został znaleziony przez małżeństwo, którzy wychowali go jak własnego syna. Ponad to Superman podkochuje się w swojej redakcyjnej koleżance (z wzajemnością zresztą) Lois Lane.  ... Ziemię z planety Krypton. Został znaleziony przez małżeństwo, którzy wychowali go jak własnego syna. Ponad to Superman podkochuje się w swojej redakcyjnej koleżance (z wzajemnością zresztą) Lois Lane.

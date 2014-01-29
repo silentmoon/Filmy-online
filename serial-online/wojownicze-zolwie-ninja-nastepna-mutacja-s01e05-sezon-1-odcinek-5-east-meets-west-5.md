@@ -1,0 +1,5 @@
+Wojownicze żółwie ninja - następna mutacja s01e05 sezon 1 odcinek 5 East Meets West (5)
+=============
+[![Wojownicze żółwie ninja - następna mutacja s01e05 sezon 1 odcinek 5 East Meets West (5)](http://vidos.pl/images/player.gif)](http://vidos.pl/wojownicze-zolwie-ninja-nastepna-mutacja-s01e05-sezon-1-odcinek-5-east-meets-west-5)
+
+ Po filmach na temat zmutowanych żółwi ninja przyszedł również czas na serial. Tytułowi bohaterowie - Rafael, Leonardo, Michaelangelo i Donatello - mają już po 18 lat. Ich trenerem dalej jest szczur Splinter (Rębajło). No ale musi być też coś nowego - w Nowym Jorku miała miejsce kolejna mutacja żółwi, z której jak do tej pory nasi zieloni towarzysze odnaleźli tylko żółwicę o imieniu Venus. W każdym odcinku razem stają do walki przeciwko złym ludziom, a przy okazji poszukują swoich młodych towarzyszy. Ciekawostką jest brak w serialu znanej z kreskówki i filmów sympatycznej reporterki April O'Neil. Serial składa się z 26 odcinków.   ... swoich młodych towarzyszy. Ciekawostką jest brak w serialu znanej z kreskówki i filmów sympatycznej reporterki April O'Neil. Serial składa się z 26 odcinków.

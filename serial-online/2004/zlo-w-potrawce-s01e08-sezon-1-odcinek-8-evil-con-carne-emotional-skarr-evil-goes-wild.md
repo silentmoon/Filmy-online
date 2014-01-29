@@ -1,0 +1,5 @@
+Zło w potrawce s01e08 sezon 1 odcinek 8 Evil Con Carne / Emotional Skarr / Evil Goes Wild
+=============
+[![Zło w potrawce s01e08 sezon 1 odcinek 8 Evil Con Carne / Emotional Skarr / Evil Goes Wild](http://vidos.pl/images/player.gif)](http://vidos.pl/zlo-w-potrawce-s01e08-sezon-1-odcinek-8-evil-con-carne-emotional-skarr-evil-goes-wild)
+
+ Bohaterem serialu jest Hektor Potrawka, zły geniusz, który jak przystało na jemu podobnych, chce podbić świat. Ale Hektor nie jest taki, jak inni źli geniusze. Podczas jednej z prób podboju świata, komandor Dorsz, agent wysłany by go powstrzymać, doprowadza do eksplozji, w wyniku której ciało Hektora wylatuje w powietrze. Dzięki wiedzy medycznej Doktor Major Upiornej, mózg i żołądek Hektora, które cudem przetrwały eksplozję, zostają przytwierdzone do ciała niezbyt rozgarniętego niedźwiedzia cyrkowego, co pozwala Hektorowi ponownie snuć plany podboju świata. Niestety przeszkadza mu w tym jego własna głupota i brak kompetencji jego ludzi.  ... rozgarniętego niedźwiedzia cyrkowego, co pozwala Hektorowi ponownie snuć plany podboju świata. Niestety przeszkadza mu w tym jego własna głupota i brak kompetencji jego ludzi.

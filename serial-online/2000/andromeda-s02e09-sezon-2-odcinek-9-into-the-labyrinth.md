@@ -1,0 +1,5 @@
+Andromeda s02e09 sezon 2 odcinek 9 Into the Labyrinth
+=============
+[![Andromeda s02e09 sezon 2 odcinek 9 Into the Labyrinth](http://vidos.pl/images/player.gif)](http://vidos.pl/andromeda-s02e09-sezon-2-odcinek-9-into-the-labyrinth)
+
+ Największa organizacja gwarantująca spokój i bezpieczeństwo wszechświata - Wspólnota Planet - rozpada się w wyniku zdrady jednej z ras (Nietzhean). Kapitan statku Andromeda - Dylan Hunt, dostawszy się w zasadzkę, rozkazuje załodze opuścić statek, sam zaś próbuje odciągnąć wrogą flotę. Niestety, Andromeda wpada w czarną dziurę. Po 300 latach poszukiwacze wraków wyciągają ją z osobliwości razem z Huntem, dla którego czas się zatrzymał. Zorientowawszy się, że wszystko co znał i kochał zostało zniszczone, a wszechświat jest nękany wojnami i wyzyskiem, postanawia przywrócić Wspólnotę Planet. W tym celu sprzymierzając się z nową załogą, wyrusza z misją, aby zachęcić inne światy do przyłączenia się.   ... kochał zostało zniszczone, a wszechświat jest nękany wojnami i wyzyskiem, postanawia przywrócić Wspólnotę Planet. W tym celu sprzymierzając się z nową załogą, wyrusza z misją, aby zachęcić inne światy do przyłączenia się.

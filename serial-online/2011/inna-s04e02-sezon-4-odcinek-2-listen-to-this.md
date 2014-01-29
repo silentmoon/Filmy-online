@@ -1,0 +1,5 @@
+Inna s04e02 sezon 4 odcinek 2 Listen to This!
+=============
+[![Inna s04e02 sezon 4 odcinek 2 Listen to This!](http://vidos.pl/images/player.gif)](http://vidos.pl/inna-s04e02-sezon-4-odcinek-2-listen-to-this)
+
+ Jenna Hamilton to zwykła, nieco zakompleksiona, amerykańska nastolatka. Chciałaby być popularna w szkole, ale brakuje jej odwagi i przebojowości. Wyróżnia ją to, że wieczorami bloguje o swoich problemach i rozterkach. Tak było do tej pory, bo w serialu poznajemy Jennę w momencie, w którym przypadkowo ulega niegroźnemu wypadkowi, który wygląda... jak próba samobójcza. Od tego momentu życie Jenny zaczyna się zmieniać – zaczyna na niej ciążyć stygmat dziewczyny z poważnymi problemami, co budzi zainteresowanie dzieciaków w szkole. I choć nie jest to rodzaj popularności jakiego sobie życzyła, stara się jakoś odnaleźć w tej niewątpliwie dziwnej sytuacji.  ... poważnymi problemami, co budzi zainteresowanie dzieciaków w szkole. I choć nie jest to rodzaj popularności jakiego sobie życzyła, stara się jakoś odnaleźć w tej niewątpliwie dziwnej sytuacji.

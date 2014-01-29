@@ -1,0 +1,5 @@
+Vanpaia naito s01e01 sezon 1 odcinek 1 Night of the Vampire
+=============
+[![Vanpaia naito s01e01 sezon 1 odcinek 1 Night of the Vampire](http://vidos.pl/images/player.gif)](http://vidos.pl/vanpaia-naito-s01e01-sezon-1-odcinek-1-night-of-the-vampire)
+
+ Akcja tego anime rozgrywa się w Akademii Cross. Odbywają się tam dwie tury zajęć dzienne i nocne. Niezwykłości tego miejsca dodaje fakt, że uczniami nocnych zajęć są eleganckie i wytworne wampiry. Dowodzi nimi wampir czystej krwi - Kaname Kuran, który w sposób szczególny troszczy się o Yuuki Cross, adoptowaną córkę dyrektora. Dziewczyna wraz ze swoim przyjacielem Zero Kiryuu pełni funkcję osoby odpowiedzialnej za spokój w akademii. Z biegiem czasu wychodzą na jaw coraz to nowe tajemnice z przeszłości. Życie Zera i Yuuki zmienia się diametralnie. Pokój między wampirami a ludźmi, tak troskliwie pielęgnowany przez dyrektora akademii, wisi na włosku.  ... nowe tajemnice z przeszłości. Życie Zera i Yuuki zmienia się diametralnie. Pokój między wampirami a ludźmi, tak troskliwie pielęgnowany przez dyrektora akademii, wisi na włosku.

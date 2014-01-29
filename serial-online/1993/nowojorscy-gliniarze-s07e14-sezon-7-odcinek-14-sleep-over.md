@@ -1,0 +1,5 @@
+Nowojorscy gliniarze s07e14 sezon 7 odcinek 14 Sleep Over
+=============
+[![Nowojorscy gliniarze s07e14 sezon 7 odcinek 14 Sleep Over](http://vidos.pl/images/player.gif)](http://vidos.pl/nowojorscy-gliniarze-s07e14-sezon-7-odcinek-14-sleep-over)
+
+ Ten obsypany nagrodami serial, m.in. zdobywca Golden Glob w 1994 i Emmy w 1995, wzbudzał wielkie zainteresowanie i popularność. Jesteśmy świadkami zmagań jednostki policyjnej z codziennymi realiami życia w New Yorku. W serialu pojawiło się wielu aktorów tworzących wspaniałe kreacje jak David Caruso czy Jimmy Smith. Postacie kreowane były w sposób bardzo realny, pełne wad, śmieszności, wątpliwości, jak antypatyczny, burkliwy Andy Sipowicz (Dennis Franz) czy trochę żałosny Greg Medavoy (Gordon Clapp). Ale z czasem poznajemy ich lepiej, ich podejście do życia, pracy i ludzi. Poznajemy nie tylko ludzi, ale i miasto, jego brzydotę, ale także i piękno, poprzez szybkie, wręcz reporterskie ujęcia.  ... Medavoy (Gordon Clapp). Ale z czasem poznajemy ich lepiej, ich podejście do życia, pracy i ludzi. Poznajemy nie tylko ludzi, ale i miasto, jego brzydotę, ale także i piękno, poprzez szybkie, wręcz reporterskie ujęcia.

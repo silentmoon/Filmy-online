@@ -1,0 +1,5 @@
+Durham County s03e03 sezon 3 odcinek 3 Distance, Hunting and Home
+=============
+[![Durham County s03e03 sezon 3 odcinek 3 Distance, Hunting and Home](http://vidos.pl/images/player.gif)](http://vidos.pl/durham-county-s03e03-sezon-3-odcinek-3-distance-hunting-and-home)
+
+ Powiada się, że istnieje sześć poziomów oddzielenia pomiędzy tobą a kimś innym na świecie, ale czasem nie ma nawet tyle... Czasem największe zło jakie tylko jesteś w stanie sobie wyobrazić już znajduje się w twoim świecie. Czasem mieszka po przeciwnej stronie ulicy. 'Durham County' przedstawia detektywa wydziału zabójstw Mike'a Sweeney'a (Hugh Dillon) i jego rodzinę, kiedy to ściga on seryjnego mordercę i jest pewien, że jest nim jego sąsiad. Trudno będzie znaleźć różnicę między policjantem a zabójcą, pomiędzy nimi, a tobą. Mają wspólną historię, która zaczęła się w liceum. Wydaje ci się, że możesz zostawić przeszłość za sobą. Ale nie możesz...  ... między policjantem a zabójcą, pomiędzy nimi, a tobą. Mają wspólną historię, która zaczęła się w liceum. Wydaje ci się, że możesz zostawić przeszłość za sobą. Ale nie możesz...

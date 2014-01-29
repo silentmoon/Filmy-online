@@ -1,0 +1,5 @@
+Pod kopułą s02e10 sezon 2 odcinek 10 
+=============
+[![Pod kopułą s02e10 sezon 2 odcinek 10 ](http://vidos.pl/images/player.gif)](http://vidos.pl/pod-kopula-s02e10-sezon-2-odcinek-10)
+
+ Serial na podstawie powieści Stephena Kinga 'Pod kopułą'. Pewnego jesiennego i słonecznego dnia, amerykańskie miasteczko Chester's Mill zostaje niespodziewanie odcięte od reszty świata przez niewidzialne pole siłowe. Spadające z nieba płonące samoloty, eksplodujące samochody powodują chaos i panikę wśród ludzi, którzy próbują zrozumieć czym jest, skąd pochodzi i jak można zniszczyć tajemniczą barierę - tytułową kopułę. Na ratunek zdezorientowanym mieszkańcom spieszy były żołnierz Dale Barbara (Mike Vogel) wraz z grupką nieustraszonych obywateli. Kiedy próbują oni utrzymać spokój i porządek w mieście, na ich drodze pojawia się lokalny polityk, który nie cofnie się przed niczym, by zachować władzę...   ... żołnierz Dale Barbara (Mike Vogel) wraz z grupką nieustraszonych obywateli. Kiedy próbują oni utrzymać spokój i porządek w mieście, na ich drodze pojawia się lokalny polityk, który nie cofnie się przed niczym, by zachować władzę...

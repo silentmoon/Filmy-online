@@ -1,0 +1,5 @@
+Scooby-Doo i brygada detektywów s01e04 sezon 1 odcinek 4 Revenge of the Man Crab
+=============
+[![Scooby-Doo i brygada detektywów s01e04 sezon 1 odcinek 4 Revenge of the Man Crab](http://vidos.pl/images/player.gif)](http://vidos.pl/scooby-doo-i-brygada-detektywow-s01e04-sezon-1-odcinek-4-revenge-of-the-man-crab)
+
+ Ku rozpaczy rodziców, mających własne plany na przyszłość dzieci, 'Tajemnicza Spółka', czyli Fred, Daphne, Velma, Kudłaty i Scooby, wplątują się w kolejną niezwykłą przygodę. Przyjaciele odnajdują liczne wskazówki, mające pomóc im w rozwiązaniu zagadki i tajemnic ich rodzinnego Kryształowego Zdroju. We wszystko miesza się tajemniczy Pan E. Ale kim on jest? Czy to możliwe, że w Kryształowym Zdroju działała kiedyś inna 'Tajemnicza Spółka'? Co się stało z zaginionymi przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?   ... przed laty detektywami? W przeciwieństwie do turystów nasi bohaterowie od dawna nie wierzą w zjawiska paranormalne. Czy coś to zmieni?

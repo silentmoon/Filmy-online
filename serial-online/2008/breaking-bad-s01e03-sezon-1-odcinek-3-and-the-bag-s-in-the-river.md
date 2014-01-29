@@ -1,0 +1,5 @@
+Breaking Bad s01e03 sezon 1 odcinek 3 and the Bag's in the River
+=============
+[![Breaking Bad s01e03 sezon 1 odcinek 3 and the Bag's in the River](http://vidos.pl/images/player.gif)](http://vidos.pl/breaking-bad-s01e03-sezon-1-odcinek-3-and-the-bag-s-in-the-river)
+
+ Głównym bohaterem 'Breaking Bad' jest Walter White (Bryan Cranston), nauczyciel chemii mieszkający w Nowym Meksyku wraz z żoną (Anna Gunn) oraz nastoletnim synem (RJ Mitte) cierpiącym na porażenie mózgowe. Kiedy u Waltera zostaje zdiagnozowany rak w trzecim stadium, lekarze rokują, że pozostały mu dwa lata życia. Dzięki tym prognozom Walter wyzbywa się wszelkich lęków i pragnąc zabezpieczyć swoją rodzinę finansowo decyduje się wkroczyć do niebezpiecznego świata narkotyków i zbrodni. Serial ukazuje jak śmiertelna diagnoza jaką postawiono White'owi, zwyczajnemu mężczyźnie z typowymi, codziennymi problemami zmienia go z łagodnego domatora w trzon narkotykowej branży.  ... zbrodni. Serial ukazuje jak śmiertelna diagnoza jaką postawiono White'owi, zwyczajnemu mężczyźnie z typowymi, codziennymi problemami zmienia go z łagodnego domatora w trzon narkotykowej branży.

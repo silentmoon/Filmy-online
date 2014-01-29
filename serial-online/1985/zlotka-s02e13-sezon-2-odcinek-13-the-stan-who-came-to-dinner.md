@@ -1,0 +1,5 @@
+Złotka s02e13 sezon 2 odcinek 13 The Stan Who Came to Dinner
+=============
+[![Złotka s02e13 sezon 2 odcinek 13 The Stan Who Came to Dinner](http://vidos.pl/images/player.gif)](http://vidos.pl/zlotka-s02e13-sezon-2-odcinek-13-the-stan-who-came-to-dinner)
+
+ Historia oparta na życiu i wzajemnych relacjach czterech starszych kobiet, które po przeżyciach związanych z rozwodami lub śmiercią małżonków zostają współlokatorkami. Głównym celem Dorothy (Bea Arthur) jest znalezienie nowego towarzysza życia, podczas gdy jej matka, Sophia (Estelle Getty), chcąc 'upiększyć' córkę nadaje jej w istocie zabawny wygląd. Rose (Betty White) natomiast staje się coraz bardziej staromodną, aczkolwiek niezwykle przemiłą kobietą. Jedyną rzeczą, która zmienia się praktycznie niemal w każdym epizodzie, jest obiekt zalotów Blanche (Rue McClanahan), która z kolei jest za mało konkretna ze względu na własne dobro.  ... zmienia się praktycznie niemal w każdym epizodzie, jest obiekt zalotów Blanche (Rue McClanahan), która z kolei jest za mało konkretna ze względu na własne dobro.

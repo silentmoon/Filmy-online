@@ -1,0 +1,5 @@
+Orange Is the New Black s01e01 sezon 1 odcinek 1 I Wasn't Ready
+=============
+[![Orange Is the New Black s01e01 sezon 1 odcinek 1 I Wasn't Ready](http://vidos.pl/images/player.gif)](http://vidos.pl/orange-is-the-new-black-s01e01-sezon-1-odcinek-1-i-wasn-t-ready)
+
+ Komediodramat oparty na bestsellerowych wspomnieniach autorstwa Piper Kerman pod tym samym tytułem. Dobrze sytuowana mieszkanka Brooklynu, Piper Chapman (Taylor Schilling), zostaje skazana na karę roku pozbawienia wolności, na skutek związku z dilerką narkotyków Alex (Laura Prepon) sprzed blisko dekady. Aby spłacić swój dług wobec społeczeństwa, Piper musi zamienić wygodne życie w Nowym Jorku, u boku narzeczonego Larry'ego (Jason Biggs), na pomarańczowy kombinezon i społeczność więzienną. Wkrótce zaczyna kwestionować wszystko, w co dotąd wierzyła, i tworzyć sojusze z grupą ekscentrycznych i szczerych do bólu więźniarek.  ... społeczność więzienną. Wkrótce zaczyna kwestionować wszystko, w co dotąd wierzyła, i tworzyć sojusze z grupą ekscentrycznych i szczerych do bólu więźniarek.

@@ -1,0 +1,5 @@
+Sabrina s01e10 sezon 1 odcinek 10 Teacher's Pet
+=============
+[![Sabrina s01e10 sezon 1 odcinek 10 Teacher's Pet](http://vidos.pl/images/player.gif)](http://vidos.pl/sabrina-s01e10-sezon-1-odcinek-10-teacher-s-pet)
+
+ Bohaterką tego serialu jest Sabrina Spellman - dwunastoletnią dziewczyną o wielkim sercu. Nie jest ona jednak zwykłą nastolatką. Jest w połowie śmiertelniczką a w połowie czarownicą. Osobami, które znają jej sekret są jej ciotki, również czarownice Hilda i Zelda, wuj Quigley, najlepsza przyjaciółka Chloe oraz Salem, z pozoru zwykły kot, a w rzeczywistości czarownik zaklęty w kota. Mimo ostrzeżeń ciotek i wuja Sabrina często rozwiązuje swoje problemu za pomocą czarów. Dzięki magii przeżywa ze swoimi przyjaciółmi, Chloe i Harvey'em wiele ciekawych i niebezpiecznych przygód. W końcu Sabrina przekonuje się, że czary i magia to nie zabawa.  ... magii przeżywa ze swoimi przyjaciółmi, Chloe i Harvey'em wiele ciekawych i niebezpiecznych przygód. W końcu Sabrina przekonuje się, że czary i magia to nie zabawa.

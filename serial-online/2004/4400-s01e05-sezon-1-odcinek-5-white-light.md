@@ -1,0 +1,5 @@
+4400 s01e05 sezon 1 odcinek 5 White Light
+=============
+[![4400 s01e05 sezon 1 odcinek 5 White Light](http://vidos.pl/images/player.gif)](http://vidos.pl/4400-s01e05-sezon-1-odcinek-5-white-light)
+
+ Produkcja nawiązująca do komiksowej serii 'Rising Stars'. Podczas ostatniego stulecia, z powierzchni Ziemi - w niewytłumaczalny sposób - zniknęło kilka tysięcy osób. Okazuje się, że uprowadziło je UFO. Teraz zaś, w równie tajemniczych okolicznościach, 4400 porwanych powróciło na naszą planetę. Władze, obawiając się reakcji na to niespodziewane wydarzenie, postanowiły poddać bohaterów obserwacji. Po krótkim czasie jednak wypuszczono ich na wolność. I wtedy zaczęły się problemy. Okazało się bowiem, że ofiary 'kosmitów' zyskały dziwne, nadludzkie właściwości. Czy ich moc stanowi zagrożenie dla Ziemian? Wszystko na to wskazuje. Tym bardziej, że zaczynają używać swych umiejętności przeciwko sobie...  ... problemy. Okazało się bowiem, że ofiary 'kosmitów' zyskały dziwne, nadludzkie właściwości. Czy ich moc stanowi zagrożenie dla Ziemian? Wszystko na to wskazuje. Tym bardziej, że zaczynają używać swych umiejętności przeciwko sobie...

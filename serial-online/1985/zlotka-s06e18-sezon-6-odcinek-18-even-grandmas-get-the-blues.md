@@ -1,0 +1,5 @@
+Złotka s06e18 sezon 6 odcinek 18 Even Grandmas Get the Blues
+=============
+[![Złotka s06e18 sezon 6 odcinek 18 Even Grandmas Get the Blues](http://vidos.pl/images/player.gif)](http://vidos.pl/zlotka-s06e18-sezon-6-odcinek-18-even-grandmas-get-the-blues)
+
+ Historia oparta na życiu i wzajemnych relacjach czterech starszych kobiet, które po przeżyciach związanych z rozwodami lub śmiercią małżonków zostają współlokatorkami. Głównym celem Dorothy (Bea Arthur) jest znalezienie nowego towarzysza życia, podczas gdy jej matka, Sophia (Estelle Getty), chcąc 'upiększyć' córkę nadaje jej w istocie zabawny wygląd. Rose (Betty White) natomiast staje się coraz bardziej staromodną, aczkolwiek niezwykle przemiłą kobietą. Jedyną rzeczą, która zmienia się praktycznie niemal w każdym epizodzie, jest obiekt zalotów Blanche (Rue McClanahan), która z kolei jest za mało konkretna ze względu na własne dobro.  ... zmienia się praktycznie niemal w każdym epizodzie, jest obiekt zalotów Blanche (Rue McClanahan), która z kolei jest za mało konkretna ze względu na własne dobro.

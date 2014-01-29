@@ -1,0 +1,5 @@
+Fantastyczna Czwórka s02e07 sezon 2 odcinek 7 Prey of the Black Panther
+=============
+[![Fantastyczna Czwórka s02e07 sezon 2 odcinek 7 Prey of the Black Panther](http://vidos.pl/images/player.gif)](http://vidos.pl/fantastyczna-czworka-s02e07-sezon-2-odcinek-7-prey-of-the-black-panther)
+
+ Podczas próby zbadania dziwnych zjawisk kosmicznych, Reed Richards, jego żona Sue, jej brat Johnny Storm oraz Ben Grimm przechodzą nieziemskie transformacje kiedy ich statek zostaje zbombardowany przez odłamki kosmiczne. Mr. Fantastic jest liderem drużyny, który potrafi rozciągnąć swoje ciało do dowolnych rozmiarów i kształtów. Invisible Woman potrafi stać się niewidzialna i posiada kontrolę nad energią magnetyczną. Human Torch potrafi generować płomienie, kontrolować ogień oraz latać. Kamienny Thing posiada nadludzką siłę i wytrzymałość. Od tej pory tworzą drużynę bohaterów, która za pomocą swoich mocy rozpoczyna walkę ze złem i odkrywanie nieznanego.   ... oraz latać. Kamienny Thing posiada nadludzką siłę i wytrzymałość. Od tej pory tworzą drużynę bohaterów, która za pomocą swoich mocy rozpoczyna walkę ze złem i odkrywanie nieznanego.

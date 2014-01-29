@@ -1,0 +1,5 @@
+Zaklinacz dusz s04e15 sezon 4 odcinek 15 Greek Tragedy
+=============
+[![Zaklinacz dusz s04e15 sezon 4 odcinek 15 Greek Tragedy](http://vidos.pl/images/player.gif)](http://vidos.pl/zaklinacz-dusz-s04e15-sezon-4-odcinek-15-greek-tragedy)
+
+ Melinda Gordon jest świeżo upieczoną mężatką, która niedawno przeprowadziła się do jednego z małych amerykańskich miasteczek. Nowością nie jest jednak dla niej zdolność porozumiewania się z umarłymi, którą posiada od dziecka. Dzięki swojemu darowi Melinda stara się pomagać zagubionym duszom, choć często jest to niełatwe zadanie gdyż jej wizje nie zawsze są spójne i oczywiste. Z tego powodu ci, którzy nadal żyją sceptycznie lub z niedowierzaniem odnoszą się do jej talentu. Nadchodzą jednak chwile, kiedy Melindzie udaje się pomóc zarówno umarłym, jak i tym stąpającym jeszcze po ziemi dzięki czemu uświadamia sobie, że zdolność, którą posiadła jest zaletą, a nie przykrym obowiązkiem.  ... Nadchodzą jednak chwile, kiedy Melindzie udaje się pomóc zarówno umarłym, jak i tym stąpającym jeszcze po ziemi dzięki czemu uświadamia sobie, że zdolność, którą posiadła jest zaletą, a nie przykrym obowiązkiem.

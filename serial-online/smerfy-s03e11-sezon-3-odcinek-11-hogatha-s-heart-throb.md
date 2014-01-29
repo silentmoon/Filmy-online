@@ -1,0 +1,5 @@
+Smerfy s03e11 sezon 3 odcinek 11 Hogatha's Heart Throb
+=============
+[![Smerfy s03e11 sezon 3 odcinek 11 Hogatha's Heart Throb](http://vidos.pl/images/player.gif)](http://vidos.pl/smerfy-s03e11-sezon-3-odcinek-11-hogatha-s-heart-throb)
+
+ Smurfy to małe niebieskie postacie, żyjące w domkach o kształcie muchomorów. Przewodzi nimi Papa Smurf, który ma ponad 534 lata. W świecie Smurfów niemal każdy się czymś innym zajmuję. Spotkamy Osiłka, Smurfetkę, Malarza, Poetę, Marzyciela, Łasucha, Harmoniusza, Farmera, Śpiocha, Ważniaka, Marudę, Pracusia, Lalusia, Zgrywusa, Smurfika i wielu innych. Życie Smurfów było by doskonałe, gdyby nie Gargamel - zły czarownik i jego kot Klakier, którzy próbują schwytać Smurfy, aby przerobić je na złoto według pradawnego przepisu. Twórą Smurfów jest Peyo, który wymyślił cały magiczny, niezwykły świat w którym żyją Smurfy. Serial składa się z 421 odcinków.  ... przerobić je na złoto według pradawnego przepisu. Twórą Smurfów jest Peyo, który wymyślił cały magiczny, niezwykły świat w którym żyją Smurfy. Serial składa się z 421 odcinków.

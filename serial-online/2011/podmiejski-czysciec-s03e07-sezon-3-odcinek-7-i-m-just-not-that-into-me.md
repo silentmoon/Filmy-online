@@ -1,0 +1,5 @@
+Podmiejski czyściec s03e07 sezon 3 odcinek 7 I'm Just Not That Into Me
+=============
+[![Podmiejski czyściec s03e07 sezon 3 odcinek 7 I'm Just Not That Into Me](http://vidos.pl/images/player.gif)](http://vidos.pl/podmiejski-czysciec-s03e07-sezon-3-odcinek-7-i-m-just-not-that-into-me)
+
+ Świetny sitcom ukazujący w krzywym zwierciadle życie amerykańskiej prowincji. Jego bohaterką jest nastolatka, która wraz z ojcem opuszcza Nowy Jork i przeprowadza się na eleganckie przedmieścia. Samotny ojciec (Jeremy Sisto) postanawia uciec z Nowego Jorku na przedmieścia, po tym jak niespodziewanie znajduje w szafce swojej piętnastoletniej córki Tessy (Jane Levy) paczkę prezerwatyw. Przerażony mężczyzna wierzy, że na prowincji uda mu się uchronić dziecko przed przedwczesnym dorastaniem. Ojciec i córka przenoszą się do tytułowego Suburgatory - pełnego fasad i pozornej perfekcji podmiejskiego świata, w którym królują „nabotoksowane” gospodynie domowe.  ... dorastaniem. Ojciec i córka przenoszą się do tytułowego Suburgatory - pełnego fasad i pozornej perfekcji podmiejskiego świata, w którym królują „nabotoksowane” gospodynie domowe.

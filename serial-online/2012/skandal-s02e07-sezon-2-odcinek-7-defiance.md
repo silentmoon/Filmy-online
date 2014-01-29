@@ -1,0 +1,5 @@
+Skandal s02e07 sezon 2 odcinek 7 Defiance
+=============
+[![Skandal s02e07 sezon 2 odcinek 7 Defiance](http://vidos.pl/images/player.gif)](http://vidos.pl/skandal-s02e07-sezon-2-odcinek-7-defiance)
+
+ Olivia Pope (Kerry Washington) poświęciła swoje życie chroniąc wizerunku państwowej elity i pilnując, żeby ich sekrety nie wyszły na światło dzienne. Olivia była doradcą prezydenta USA ds. mediów, ale odeszła, ponieważ zdecydowała się otworzyć własną firmę specjalizującą się w zarządzaniu kryzysowym. Pragnie zacząć nowy rozdział w życiu, ale okazuje się, że nie może zupełnie odciąć się od przeszłości. Zespół Olivii łączy Stephena Fincha (Henry Ian Cusick), kobieciarza rozważającego w końcu się ustatkować, Harrisona Wrighta (Columbus Short), zręcznego  prawnika procesowego, Abby Whelan (Darby Stanchfield),panią detektyw, Hucka (Guillermo Diaz), hakera z przeszłością w CIA i Quinn Perkins (Katie Lowes).   ... rozważającego w końcu się ustatkować, Harrisona Wrighta (Columbus Short), zręcznego  prawnika procesowego, Abby Whelan (Darby Stanchfield),panią detektyw, Hucka (Guillermo Diaz), hakera z przeszłością w CIA i Quinn Perkins (Katie Lowes).

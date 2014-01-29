@@ -1,0 +1,5 @@
+Kamuflaż s05e11 sezon 5 odcinek 11 
+=============
+[![Kamuflaż s05e11 sezon 5 odcinek 11 ](http://vidos.pl/images/player.gif)](http://vidos.pl/kamuflaz-s05e11-sezon-5-odcinek-11)
+
+ Główną bohaterką jest Annie Walker (Piper Perabo), która niespodziewanie zostaje awansowana na agentkę CIA pracującą w terenie. W nowej rzeczywistości pomaga jej się odnaleźć niewidomy współpracownik -  Auggie Anderson (Christopher Gorham). Ich bezpośrednią przełożoną, a także szefową Domestic Protection Division jest wiecznie zazdrosna o swojego męża i zarazem szefa Arthura (Peter Gallagher), Joan Campbell (Kari Matchett). Nieoczekiwany transfer przystojnego Jai'a Wilcoxa (Sendhil Ramamurthy) do jej działu wzbudza nie tylko jej podejrzliwość. Annie choć za dnia agentka CIA, dla rodziny i najbliższej siostry Danielle (Anne Dudek) uchodzi za pracownicę muzeum.   ... (Sendhil Ramamurthy) do jej działu wzbudza nie tylko jej podejrzliwość. Annie choć za dnia agentka CIA, dla rodziny i najbliższej siostry Danielle (Anne Dudek) uchodzi za pracownicę muzeum.

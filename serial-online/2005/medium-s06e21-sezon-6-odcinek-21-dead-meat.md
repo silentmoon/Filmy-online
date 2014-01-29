@@ -1,0 +1,5 @@
+Medium s06e21 sezon 6 odcinek 21 Dead Meat
+=============
+[![Medium s06e21 sezon 6 odcinek 21 Dead Meat](http://vidos.pl/images/player.gif)](http://vidos.pl/medium-s06e21-sezon-6-odcinek-21-dead-meat)
+
+ Allison DuBois jest młodą matką trójki dzieci, oddaną żoną oraz studentką prawa, która zaczyna podejrzewać, że potrafi rozmawiać z martwymi ludźmi, widzieć przyszłość w snach i czytać w ludzkich myślach. Bojąc się o swoje zdrowie psychiczne poszukuje wsparcia w swoim mężu Joe, inżynierze przestrzeni powietrznej, który powoli zaczyna wierzyć, że to, co mówi jego żona może być prawdą. Prawdziwym wyzwaniem jest jednak przekonanie o tym jej szefa, prokuratora okręgowego Devalosa, że psychiczne zdolności Allison mogą dać im przewagę w rozwiązywaniu przerażających i gwałtownych zbrodni, których tajemnice zamieszkują pomiędzy tymi, co żyją poza grobem.  ... że psychiczne zdolności Allison mogą dać im przewagę w rozwiązywaniu przerażających i gwałtownych zbrodni, których tajemnice zamieszkują pomiędzy tymi, co żyją poza grobem.

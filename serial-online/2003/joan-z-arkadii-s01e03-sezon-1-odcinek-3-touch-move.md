@@ -1,0 +1,5 @@
+Joan z Arkadii s01e03 sezon 1 odcinek 3 Touch Move
+=============
+[![Joan z Arkadii s01e03 sezon 1 odcinek 3 Touch Move](http://vidos.pl/images/player.gif)](http://vidos.pl/joan-z-arkadii-s01e03-sezon-1-odcinek-3-touch-move)
+
+ Serial koncentruje się na z pozoru typowej nastolatce - Joan Girardi, której złożone relacje z rodziną komplikują się jeszcze bardziej, gdy Joan zaczyna rozmawiać z Bogiem. Bóg objawia się jej jako różne osoby - raz przystojny chłopak, a raz mała dziewczynka - i daje jej do wykonania rozmaite i z pozoru bezsensowne zadania. Joan, początkowo sceptycznie nastawiona do całej sytuacji, stosuje się do poleceń Boga i stopniowo zaczyna rozumieć, że nic nie dzieje się bez przyczyny i każda, nawet najprostsza czynność może mieć wielkie znaczenie zarówno dla jej bliskich, jej samej, jak i dla przypadkowych ludzi, których Joan poznaje w trakcie wypełniania zadań.  ... każda, nawet najprostsza czynność może mieć wielkie znaczenie zarówno dla jej bliskich, jej samej, jak i dla przypadkowych ludzi, których Joan poznaje w trakcie wypełniania zadań.

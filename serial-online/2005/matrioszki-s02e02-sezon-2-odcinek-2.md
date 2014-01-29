@@ -1,0 +1,5 @@
+Matrioszki s02e02 sezon 2 odcinek 2 
+=============
+[![Matrioszki s02e02 sezon 2 odcinek 2 ](http://vidos.pl/images/player.gif)](http://vidos.pl/matrioszki-s02e02-sezon-2-odcinek-2)
+
+ Belgijski gang werbuje ubogie dziewczyny z Europy Wschodniej do rzekomej pracy jako tancerki. Jednak po specjalnym szkoleniu na Cyprze trafiają do nocnych klubów jako striptizerki lub do domów publicznych w Belgii, Holandii i Niemczech jako prostytutki. Przestępcy, handlujący żywym towarem od wielu lat, są bezkarni, mając w swoich rękach skorumpowanych urzędników imigracyjnych. Policja nie reaguje ignorując sprawę rosyjskich prostytutek. Jednak ambitny dziennikarz rozpoczyna prywatne śledztwo. Próbuje ostrzec dziewczyny przed grożącym im niebezpieczeństwem. Swoimi działaniami wprowadza zamieszanie w szeregach gangu, a gangsterzy nagle uświadamiają sobie, że grunt zaczyna im się palić pod nogami.  ... prywatne śledztwo. Próbuje ostrzec dziewczyny przed grożącym im niebezpieczeństwem. Swoimi działaniami wprowadza zamieszanie w szeregach gangu, a gangsterzy nagle uświadamiają sobie, że grunt zaczyna im się palić pod nogami.

@@ -1,0 +1,5 @@
+Rozwodnik Gary s02e12 sezon 2 odcinek 12 Gary Feels Tom Slipping Away
+=============
+[![Rozwodnik Gary s02e12 sezon 2 odcinek 12 Gary Feels Tom Slipping Away](http://vidos.pl/images/player.gif)](http://vidos.pl/rozwodnik-gary-s02e12-sezon-2-odcinek-12-gary-feels-tom-slipping-away)
+
+ Serial jest skupiony na życiu Garego Brooksa (Jay Mohr) w trzy miesiące po tym jak on i jego była żona Allison Brooks (Paula Marshall) oficjalnie się rozwiedli. Teraz jego życie kręci się wokół prób wyjścia z tego małżeństwa  i ponownie zacząć imprezować i randkować, ale niestety ciągle ma do czynienia ze swoją eks-żoną ponieważ obydwoje mają dwójkę nastoletnich dzieci: syna Toma (Ryan Malgarini) i córkę Louise (Laura Marano). Z tych powodów, Gary ma trudności w dostosowaniu się do życia bez Allison, a niechętny stosunek do niej wcale mu tego nie ułatwia. Pomimo ich zjadliwych stosunków i ciągłego dogryzania sobie, zawsze pod koniec dochodzą do porozumienia.   ... się do życia bez Allison, a niechętny stosunek do niej wcale mu tego nie ułatwia. Pomimo ich zjadliwych stosunków i ciągłego dogryzania sobie, zawsze pod koniec dochodzą do porozumienia.

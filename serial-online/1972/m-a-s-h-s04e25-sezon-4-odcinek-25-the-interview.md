@@ -1,0 +1,5 @@
+M*A*S*H s04e25 sezon 4 odcinek 25 The Interview
+=============
+[![M*A*S*H s04e25 sezon 4 odcinek 25 The Interview](http://vidos.pl/images/player.gif)](http://vidos.pl/m-a-s-h-s04e25-sezon-4-odcinek-25-the-interview)
+
+ Bohaterowie serialu 'M*A*S*H' to lekarze wojskowi pracujący w szpitalu polowym na froncie wojny w Korei. Są dni, kiedy po kilkanaście godzin spędzają na sali operacyjnej. Ranni płyną jak woda. Nie ma kiedy odpoczywać, personelu brakuje. Są to dla nich bardzo ciężkie dni. Przezywają ze smutkiem śmieć każdego z pacjentów. Ale nie zawsze pracują. Kiedy ataki cichną mają chwilowy spokój. Wtedy najczęściej robią sobie głupie kawały, pędzą bimber, słuchają muyzki, podrywają pielęgniarki i wspominają. O tak, każdy chciałby wreszcie wrócić do domu. Wśród lekarzy i personelu panuje miła, wręcz rodzinna atmosfera. Załoga co pewien czas się zmienia: jedni wracają do domów, inni zostają przeniesieni, część ginie.   ... pielęgniarki i wspominają. O tak, każdy chciałby wreszcie wrócić do domu. Wśród lekarzy i personelu panuje miła, wręcz rodzinna atmosfera. Załoga co pewien czas się zmienia: jedni wracają do domów, inni zostają przeniesieni, część ginie.

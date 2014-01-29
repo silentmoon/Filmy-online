@@ -1,0 +1,5 @@
+Arrow s01e13 sezon 1 odcinek 13 Betrayal
+=============
+[![Arrow s01e13 sezon 1 odcinek 13 Betrayal](http://vidos.pl/images/player.gif)](http://vidos.pl/arrow-s01e13-sezon-1-odcinek-13-betrayal)
+
+ Serial „Arrow” to współczesna historia Zielonej Strzały, superbohatera komiksów DC Comics. Po 5 latach od katastrofy morskiej miliarder Oliver Queen (Stephen Amell), jak dotąd uznawany za zmarłego, zostaje odnaleziony na bezludnej wyspie na Pacyfiku. Kiedy powraca do domu, rodzina zauważa, że pobyt na wyspie bardzo go odmienił. Oliver próbuje pojednać się z najbliższymi i swoją byłą dziewczyną Laurel Lance (Katie Cassidy), jednocześnie kreując swoją sekretną tożsamość. Odtąd za dnia Oliver jest bogatym, beztroskim i nieostrożnym kobieciarzem, jakim zwykł być, natomiast pod osłoną nocy jako Zielona Strzała walczy ze złem i stara się przywrócić miasto do jego dawnej świetności.   ... za dnia Oliver jest bogatym, beztroskim i nieostrożnym kobieciarzem, jakim zwykł być, natomiast pod osłoną nocy jako Zielona Strzała walczy ze złem i stara się przywrócić miasto do jego dawnej świetności.

@@ -1,0 +1,5 @@
+Pomoc domowa s05e14 sezon 5 odcinek 14 Not Without My Nanny
+=============
+[![Pomoc domowa s05e14 sezon 5 odcinek 14 Not Without My Nanny](http://vidos.pl/images/player.gif)](http://vidos.pl/pomoc-domowa-s05e14-sezon-5-odcinek-14-not-without-my-nanny)
+
+ Fran Fine, młoda atrakcyjna Żydówka właśnie szuka pilnie pracy i narzeczonego. Nie bardzo odpowiada jej wykonywany zawód akwizytorki zobacz pełny opis

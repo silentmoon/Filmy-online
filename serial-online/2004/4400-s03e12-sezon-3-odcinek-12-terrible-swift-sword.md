@@ -1,0 +1,5 @@
+4400 s03e12 sezon 3 odcinek 12 Terrible Swift Sword
+=============
+[![4400 s03e12 sezon 3 odcinek 12 Terrible Swift Sword](http://vidos.pl/images/player.gif)](http://vidos.pl/4400-s03e12-sezon-3-odcinek-12-terrible-swift-sword)
+
+ Produkcja nawiązująca do komiksowej serii 'Rising Stars'. Podczas ostatniego stulecia, z powierzchni Ziemi - w niewytłumaczalny sposób - zniknęło kilka tysięcy osób. Okazuje się, że uprowadziło je UFO. Teraz zaś, w równie tajemniczych okolicznościach, 4400 porwanych powróciło na naszą planetę. Władze, obawiając się reakcji na to niespodziewane wydarzenie, postanowiły poddać bohaterów obserwacji. Po krótkim czasie jednak wypuszczono ich na wolność. I wtedy zaczęły się problemy. Okazało się bowiem, że ofiary 'kosmitów' zyskały dziwne, nadludzkie właściwości. Czy ich moc stanowi zagrożenie dla Ziemian? Wszystko na to wskazuje. Tym bardziej, że zaczynają używać swych umiejętności przeciwko sobie...  ... problemy. Okazało się bowiem, że ofiary 'kosmitów' zyskały dziwne, nadludzkie właściwości. Czy ich moc stanowi zagrożenie dla Ziemian? Wszystko na to wskazuje. Tym bardziej, że zaczynają używać swych umiejętności przeciwko sobie...

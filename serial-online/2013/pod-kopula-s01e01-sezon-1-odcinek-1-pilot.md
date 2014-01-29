@@ -1,0 +1,5 @@
+Pod kopułą s01e01 sezon 1 odcinek 1 Pilot
+=============
+[![Pod kopułą s01e01 sezon 1 odcinek 1 Pilot](http://vidos.pl/images/player.gif)](http://vidos.pl/pod-kopula-s01e01-sezon-1-odcinek-1-pilot)
+
+ Serial na podstawie powieści Stephena Kinga 'Pod kopułą'. Pewnego jesiennego i słonecznego dnia, amerykańskie miasteczko Chester's Mill zostaje niespodziewanie odcięte od reszty świata przez niewidzialne pole siłowe. Spadające z nieba płonące samoloty, eksplodujące samochody powodują chaos i panikę wśród ludzi, którzy próbują zrozumieć czym jest, skąd pochodzi i jak można zniszczyć tajemniczą barierę - tytułową kopułę. Na ratunek zdezorientowanym mieszkańcom spieszy były żołnierz Dale Barbara (Mike Vogel) wraz z grupką nieustraszonych obywateli. Kiedy próbują oni utrzymać spokój i porządek w mieście, na ich drodze pojawia się lokalny polityk, który nie cofnie się przed niczym, by zachować władzę...   ... żołnierz Dale Barbara (Mike Vogel) wraz z grupką nieustraszonych obywateli. Kiedy próbują oni utrzymać spokój i porządek w mieście, na ich drodze pojawia się lokalny polityk, który nie cofnie się przed niczym, by zachować władzę...

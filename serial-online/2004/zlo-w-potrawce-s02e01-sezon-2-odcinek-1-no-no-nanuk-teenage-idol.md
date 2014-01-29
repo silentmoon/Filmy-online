@@ -1,0 +1,5 @@
+Zło w potrawce s02e01 sezon 2 odcinek 1 No No Nanuk / Teenage Idol
+=============
+[![Zło w potrawce s02e01 sezon 2 odcinek 1 No No Nanuk / Teenage Idol](http://vidos.pl/images/player.gif)](http://vidos.pl/zlo-w-potrawce-s02e01-sezon-2-odcinek-1-no-no-nanuk-teenage-idol)
+
+ Bohaterem serialu jest Hektor Potrawka, zły geniusz, który jak przystało na jemu podobnych, chce podbić świat. Ale Hektor nie jest taki, jak inni źli geniusze. Podczas jednej z prób podboju świata, komandor Dorsz, agent wysłany by go powstrzymać, doprowadza do eksplozji, w wyniku której ciało Hektora wylatuje w powietrze. Dzięki wiedzy medycznej Doktor Major Upiornej, mózg i żołądek Hektora, które cudem przetrwały eksplozję, zostają przytwierdzone do ciała niezbyt rozgarniętego niedźwiedzia cyrkowego, co pozwala Hektorowi ponownie snuć plany podboju świata. Niestety przeszkadza mu w tym jego własna głupota i brak kompetencji jego ludzi.  ... rozgarniętego niedźwiedzia cyrkowego, co pozwala Hektorowi ponownie snuć plany podboju świata. Niestety przeszkadza mu w tym jego własna głupota i brak kompetencji jego ludzi.

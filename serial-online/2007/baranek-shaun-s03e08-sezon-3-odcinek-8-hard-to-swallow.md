@@ -1,0 +1,5 @@
+Baranek Shaun s03e08 sezon 3 odcinek 8 Hard To Swallow
+=============
+[![Baranek Shaun s03e08 sezon 3 odcinek 8 Hard To Swallow](http://vidos.pl/images/player.gif)](http://vidos.pl/baranek-shaun-s03e08-sezon-3-odcinek-8-hard-to-swallow)
+
+ Shaun to sympatyczna owca znana z filmu 'Wallace & Gromit: Golenie owiec'. Tytułowy bohater nie lubi podążać za stadem. Na ogół to stado biegnie na Shaunem, którego nadzwyczajny entuzjazm i energia w połączeniu z jego brakiem doświadczenia są receptą na coraz to nowsze tarapaty. Bohaterami serialu są także jagnię Timmy, ogromna, wszystkożerna owca Shirley, niegrzeczne świnki, nieświadomy niczego Farmer, a także pies pasterski Bitzer, który zrobi wszystko, by utrzymać swego pana w przekonaniu, że jego owce są niczym innym jak zwyczajnymi zwierzętami. Razem tworzą towarzyską mieszankę wybuchową, która sieje spustoszenie w spokojnej dolinie.  ... pana w przekonaniu, że jego owce są niczym innym jak zwyczajnymi zwierzętami. Razem tworzą towarzyską mieszankę wybuchową, która sieje spustoszenie w spokojnej dolinie.

@@ -1,0 +1,5 @@
+Rozwodnik Gary s01e20 sezon 1 odcinek 20 Gary Fixes Allison's Garbage Disposal
+=============
+[![Rozwodnik Gary s01e20 sezon 1 odcinek 20 Gary Fixes Allison's Garbage Disposal](http://vidos.pl/images/player.gif)](http://vidos.pl/rozwodnik-gary-s01e20-sezon-1-odcinek-20-gary-fixes-allison-s-garbage-disposal)
+
+ Serial jest skupiony na życiu Garego Brooksa (Jay Mohr) w trzy miesiące po tym jak on i jego była żona Allison Brooks (Paula Marshall) oficjalnie się rozwiedli. Teraz jego życie kręci się wokół prób wyjścia z tego małżeństwa  i ponownie zacząć imprezować i randkować, ale niestety ciągle ma do czynienia ze swoją eks-żoną ponieważ obydwoje mają dwójkę nastoletnich dzieci: syna Toma (Ryan Malgarini) i córkę Louise (Laura Marano). Z tych powodów, Gary ma trudności w dostosowaniu się do życia bez Allison, a niechętny stosunek do niej wcale mu tego nie ułatwia. Pomimo ich zjadliwych stosunków i ciągłego dogryzania sobie, zawsze pod koniec dochodzą do porozumienia.   ... się do życia bez Allison, a niechętny stosunek do niej wcale mu tego nie ułatwia. Pomimo ich zjadliwych stosunków i ciągłego dogryzania sobie, zawsze pod koniec dochodzą do porozumienia.

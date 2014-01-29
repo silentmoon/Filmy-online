@@ -1,0 +1,5 @@
+Star Trek: Voyager s04e21 sezon 4 odcinek 21 The Omega Directive
+=============
+[![Star Trek: Voyager s04e21 sezon 4 odcinek 21 The Omega Directive](http://vidos.pl/images/player.gif)](http://vidos.pl/star-trek-voyager-s04e21-sezon-4-odcinek-21-the-omega-directive)
+
+ Serial poprzedza długometrażowy film wprowadzający widzów w historię Voyagera. Statek Federacji USS Voyager podczas pościgu za statkiem rebelii Maquis, wkracza na niebezpieczną przestrzeń kosmiczną znaną jako Badlands. Oba statki w tajemniczy sposób zostają przeniesione do kwadrantu Delta, 75000 lat świetlnych od przestrzeni Federacji. Po zniszczeniu statku rebelii, uratowani ludzie zaczynają służbę na statku Voyager. Jak się okazuję podróż do domu z maksymalną prędkością zajmie około 75 lat. Od tego momentu zjednoczona załoga rozpoczyna swoją tułaczkę po kosmosie poszukując szybszego sposobu powrotu... Serial składa się ze 172 odcinków.  ... zajmie około 75 lat. Od tego momentu zjednoczona załoga rozpoczyna swoją tułaczkę po kosmosie poszukując szybszego sposobu powrotu... Serial składa się ze 172 odcinków.

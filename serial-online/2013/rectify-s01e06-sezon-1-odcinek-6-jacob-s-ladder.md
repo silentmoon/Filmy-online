@@ -1,0 +1,5 @@
+Rectify s01e06 sezon 1 odcinek 6 Jacob's Ladder
+=============
+[![Rectify s01e06 sezon 1 odcinek 6 Jacob's Ladder](http://vidos.pl/images/player.gif)](http://vidos.pl/rectify-s01e06-sezon-1-odcinek-6-jacob-s-ladder)
+
+ Po spędzeniu 19 lat w celi śmierci za gwałt i morderstwo swojej nastoletniej dziewczyny, Daniel Holden wraca do domu. Jego wyrok został anulowany ze względu na nowe dowody DNA, wpychając go ponownie do świata, którego już nie zna. Spędziwszy swoje dorosłe życie w oczekiwaniu na śmierć, Daniel musi teraz nauczyć się żyć na nowo. Jego powrót do świata zewnętrznego okazuje się być równie bezlitosny jak więzienie. Nawiedzany przez przeszłość, zdominowany przez teraźniejszość i niepewną przyszłość, usiłuje dostosować się do nowego życia. Jego wyjście na wolność ponownie wywołuje obawy małego miasteczka i grozi rozbiciem kruchego pokoju w jego rodzinie. Domniemane przestępstwo Daniela zaczyna dzielić społeczność.  ... niepewną przyszłość, usiłuje dostosować się do nowego życia. Jego wyjście na wolność ponownie wywołuje obawy małego miasteczka i grozi rozbiciem kruchego pokoju w jego rodzinie. Domniemane przestępstwo Daniela zaczyna dzielić społeczność.

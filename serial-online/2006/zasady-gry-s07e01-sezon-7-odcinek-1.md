@@ -1,0 +1,5 @@
+Zasady gry s07e01 sezon 7 odcinek 1 
+=============
+[![Zasady gry s07e01 sezon 7 odcinek 1 ](http://vidos.pl/images/player.gif)](http://vidos.pl/zasady-gry-s07e01-sezon-7-odcinek-1)
+
+ Melanie Barnett (Tia Mowry) to studentka medycyny, która odrzuciła propozycję od prestiżowej szkoły, by wspierać karierę swojego chłopaka, Derwina Davisa (Pooch Hall), profesjonalnego gracza futbolowego. Przeciw zaleceniom swoich rodziców przenosi się z nim do San Diego, gdzie spotyka Tashę Mack (Wendy Raquel Robinson), matkę początkującego rozgrywającego z drużyny Derwina, Malika Wrighta (Hosea Chanchez), oraz  Kelly Pitts (Brittany Daniel), byłej żony kapitana drużyny, Jasona Pittsa (Coby Bell). Gdy uczy się godzić życie studentki medycyny i partnerki profesjonalnego gracza w futbol, Tasha and Kelly ostrzegają ją, by chroniła swojego chłopaka przed kobietami, które mogą chcieć go wykorzystać dla sławy i pieniędzy.   ... Jasona Pittsa (Coby Bell). Gdy uczy się godzić życie studentki medycyny i partnerki profesjonalnego gracza w futbol, Tasha and Kelly ostrzegają ją, by chroniła swojego chłopaka przed kobietami, które mogą chcieć go wykorzystać dla sławy i pieniędzy.

@@ -1,0 +1,5 @@
+Pełna chata s06e05 sezon 6 odcinek 5 Lovers and Other Tanners
+=============
+[![Pełna chata s06e05 sezon 6 odcinek 5 Lovers and Other Tanners](http://vidos.pl/images/player.gif)](http://vidos.pl/pelna-chata-s06e05-sezon-6-odcinek-5-lovers-and-other-tanners)
+
+ Wdowiec Danny Tanner mający trójkę dzieci (Donna Jo, Stephanie, Michelle) dochodzi do wniosku, że samotne wychowywanie dziewczynek jest zobacz pełny opis
